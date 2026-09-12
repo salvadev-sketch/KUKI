@@ -92,7 +92,7 @@ Muri Episode 1B, tuzoraba abo bombi — kandi tuzobona ko na ho hariho inkuru is
 
 Uwatanze iyi nkuru yitwa Dominique Ruvugazinaniwe, umusaza wo mu karere ka Bisoro (Mugamba). Igitangaje: yayivuze **inshuro ebiri**, imyaka 25 hagati — mu 1954 (mu bushakashatsi bwa IRSAC) no mu 1979 (mu bushakashatsi bwa Joseph Gahama). Umuhinga Jean-Pierre Chrétien yagereranije izo verisiyo ebiri, asanga urukurikirane rw'inkuru **rudahindutse cane** mu myaka 25 yose.
 
-**Nk'uko tubisoma mu gitabo «Burundi : l'histoire retrouvée» canditswe na Jean-Pierre Chrétien, ku rupapuro rwa 33**, hivugwa hati:
+**Nk'uko tubisoma mu gitabo «Burundi : l'histoire retrouvée» canditswe na Jean-Pierre Chrétien, ku rupapuro rwa 43**, hivugwa hati:
 
 > « Ntwero, celui qui pénétra au Bututsi le premier. »
 
@@ -130,7 +130,7 @@ Ubushakashatsi bwa Chrétien bwerekanye ko iyi nkuru igizwe n'ibice icenda bikur
 
 Chrétien avuga ko Ntare, muri iyi nkuru, yinjira mu **mwidudu w'imigenzo ya Cwezi** ikwiragiye mu karere kose k'Ibiyaga Bigari — akaba amera nk'**umwungere wa Kiranga**, imana ikuru mu Kubandwa yo mu Burundi (nk'uko Ryangombe abera mu Rwanda). Nka Kiranga, Ntare aratsinda ubwami bwiwe muri kibuguzo n'umwami mugenzi.
 
-**Nk'uko tubisoma mu gitabo «Burundi : l'histoire retrouvée» canditswe na Jean-Pierre Chrétien, ku rupapuro rwa 39**, hivugwa hati:
+**Nk'uko tubisoma mu gitabo «Burundi : l'histoire retrouvée» canditswe na Jean-Pierre Chrétien, ku rupapuro rwa 43**, hivugwa hati:
 
 > « Ntare Rushatsi est le roi qui a débuté dans le pays. »
 
@@ -152,8 +152,60 @@ Ikintu gitangaje: imigenzo imwe ivuga ko Ntare atari umututsi nk'uko benshi bomw
 
 ---
 
+## IGICE CA 10 — IZINA "NTARE": IRIVA HE? (🟢🟡)
+
+**[VISUAL: Ijambo "Ntare" ryerekanwa, hamwe n'ikarata y'Ibiyaga Bigari yerekana ibihugu bikoresha iryo zina ry'ubwami]**
+
+**NARATION:**
+
+Muri Kirundi, "Ntare" bisobanura "intare" (lion), naho ijambo risanzwe rikoreshwa mu kuvuga iyo nyamaswa ari **intambwe**. Umuhinga w'indimi Christopher Ehret avuga ko igice c'iryo zina, -tare, gishobora kuba gifitaniye isano n'ururimi rwa kera rwo mu majaruguru y'Ubushi (langues sud-kouchitiques), gikiboneka muri bamwe mu bantu bo mu karere ka Rift muri Tanzaniya.
+
+Iryo zina ry'ubwami "Ntare" ntiryari iry'Uburundi gusa: ryabonetse mu bwami bwinshi bwo mu Biyaga Bigari — Nkore, Karagwe, Ihangiro, Buzinza, Buha yo mu bumanuko, na Buhavu — ariko ntiryabonetse mu Rwanda, mu Bunyoro, canke mu bihugu biri ku nkombe y'amajaruguru y'ikiyaga Victoria (Buganda, Kiziba). Ivyo bishobora kwerekana isano ikomeye hagati y'ubwo bwami hose, canke gusa ururimi rusa, canke ahantu hakwiye intambwe kubaho.
+
+🟢 **Ico twemeza:** Izina "Ntare" ryari ubwami bukwiragiye mu bihugu byinshi vy'Ibiyaga Bigari, atari Uburundi bwonyene.
+🟡 **Ico dutandukanya:** Isano y'ururimi hamwe n'insobanuro nyayo y'uko iryo zina ryakwirakwiye biracari ikibazo abahinga batarahuriranyako.
+
+🔖 **Isoko:** Chrétien, *Burundi : l'histoire retrouvée* (1993), p. 48, ivuga C. Ehret, *The historical reconstruction of Southern Cushitic phonology and vocabulary*, Berlin, 1980.
+
+---
+
+## IGICE CA 11 — MUROGANZARA: UWUCISHA INZARA (🟡)
+
+**[VISUAL: Umwami ahagaze hagati y'itungo n'imisozi y'amasaka — stylized illustration]**
+
+**NARATION:**
+
+Imigenzo ivuga ko Ntare Rushatsi yagize izina rindi: **Muroganzara**, bisobanura "uwucisha inzara." Iryo zina ryerekana isano rikomeye afitaniye n'ubuhinzi n'uburumbuke, atari ubworozi bw'amatungo gusa.
+
+Bamwe mu batanze imigenzo bavuga ko yasubiye avuye i Buha azanye amatungo, ariko akaba yarahereye n'abavurira ibisimba by'amasaka. Inkuru imwe yakuwe n'umuhinga Jan Vansina mu 1958 ivuga ko yishe amatungo yiwe ashika ku Nkoma, imyanda yayo ikoreshwa nk'ifumbire yo gutera imbuto z'amasaka n'ibihagati yari asigaranywe kuva avutse.
+
+🟡 **Ico dutandukanya:** Iyi ni imigenzo yerekana insanamu y'ubwami, atari raporo y'ivyabaye ku buryo bw'amateka.
+
+🔖 **Isoko:** Chrétien, *Burundi : l'histoire retrouvée* (1993), p. 51, ivuga J. Vansina (ubushakashatsi bwo mu 1958).
+
+---
+
+## IGICE CA 12 — IBIMENYETSO MU GIHUGU (🟡🔴)
+
+**[VISUAL: Ikarata y'akarere ka Nkoma yerekana Ngomante, Giheko, hamwe n'ibuye ry'igishuho]**
+
+**NARATION:**
+
+Hari ahantu hamwe mu gihugu hafitanye isano ya hafi na Ntare Rushatsi bwite. Mu Kumoso, hari **iteka rya Ngomante**, ahavugwa ko Ntare yaciyeho ava i Buha, imbere yo "kuzamuka" ku murwa mukuru w'Uburundi. Hari kandi **ibuye rifise igishuho**, aho bavuga ko yasize agasozora kiwe ku Nkoma.
+
+Ku bijanye n'ivuka rya Karyenda, imigenzo ivuga ko umugina (termitière) waje kuba ingoma ya mbere, imbere yuko ureseke rw'ishereka rushirwa hejuru.
+
+🟡 **Ico dutandukanya:** Aya mahantu yose ni ibimenyetso vy'imigenzo, atari ivyacukuwe mu vy'ubucukuzi.
+🔴 **Ico tutemeza:** Ubucukuzi (archéologie) ntibwarakorwa muri utwo turere kugira twemeze igihe nyaco utwo turere twashinzwe.
+
+🔖 **Isoko:** Chrétien, *Burundi : l'histoire retrouvée* (1993), pp. 24, 26-27, 52.
+
+---
+
 ## ICYITONDERWA KU BUSHAKASHATSI (Editorial note — ntibigomba kuvugwa mu video)
 
-✅ **Iyi verisiyo yanoswe**: dufise ubu citation nyayo ifise urupapuro, ivuye mu gitabo ca Chrétien ubwiwe (*Burundi : l'histoire retrouvée*, 1993), atari secondary sources gusa.
+✅ **Iyi verisiyo yanoswe**: dufise ubu citation nyayo ifise urupapuro nyawo (bikosowe: 43, atari 33/39), ivuye mu gitabo ca Chrétien ubwiwe (*Burundi : l'histoire retrouvée*, 1993), atari secondary sources gusa.
 
-⚠️ **Ikibazo gikomeye gisigaye**: Chrétien avuga ko hariho ukudahuza hagati y'inkuru ivuga Ntare ava i Buha (cycle du Nkoma, iyi dossier) n'iyindi ivuga ko haba hariho **Ntare wo mu Rwanda**, uwatanguye imbere ya Rushatsi — ikibazo c'"Aba-Ntare babiri" (reba dosiye "ep 1", ariko twemeje ko tutakoresha iryo gishushanyo mu buryo bw'iki gishasha; iki kibazo gishobora kuza mu kindi gice).
+✅ **Ikibazo c'"Aba-Ntare babiri" — bugarutseko ubu (p. 49)**: Chrétien ashira ahagaragara amazina n'ibihe: **Ntare Karemera** (hamwe rimwe yitwa Ntare Kibogora mu bindi bihe), yobaye hagati mu kinjana ca 16, avuye i Bugesera, akaba akoranye n'umwami w'i Rwanda Mibambwe Mutabazi — na **Ntare Rushatsi**, uwaje impera y'ikinjana ca 17, avuye i Buha yo mu Bumanuko, akaba ari we mutwe nyamukuru w'iyi dossier yacu. Chrétien avuga ko ubushakashatsi bw'inkuru 75 zakusanyijwe, 64 muri zo zikurikira urukurikirane rwa Ntare Rushatsi ("cycle du Nkoma"), bikaba biha uwo mucyo agaciro gakomeye kurusha uw'inkomoko y'i Rwanda (Ntare Karemera), iyo yaje kwemezwa mu gihe c'ubukoloni bw'Ababiligi.
+
+🟡 **Ico dutandukanya kigikomeye**: Naho dufise amazina n'ibihe, isano hagati y'aba-Ntare babiri (ese Rushatsi ni umukomoka wa Karemera? Ni umutware mushasha atarafitaniye isano? Canke ni izina rimwe ryagirwa n'abami batandukanye?) ntiracamenyekana neza.
