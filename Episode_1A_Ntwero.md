@@ -202,6 +202,30 @@ Ku bijanye n'ivuka rya Karyenda, imigenzo ivuga ko umugina (termitière) waje ku
 
 ---
 
+## IGICE CA 13 — HOOK Y'IMPERA (Bridge kuri Episode 1B)
+
+**[VISUAL: Amazina Jabwe na Nsoro aragaragara buhorobuhoro ku mugaragaro, umwe ku ruhande rw'undi, hagati yabo umwanya urimwo icuya]**
+
+**NARATION (ijwi rigabanuka, rifise ubwoba buke):**
+
+Ntwero ntiyasize umwana umwe. Yasize babiri: **Jabwe na Nsoro**.
+
+Bombi bahawe ubutware. Bombi bari bafise igihugu ciwe. Kandi bombi, ku musi umwe, bagize icemezo cabahinduye impanga ku rugamba, atari abavukana gusa.
+
+**[VISUAL: Umuriro w'igiti utangura kwaka gahorogahoro hagati y'amazina yombi]**
+
+Kuko hagati yabo hariho hakiri ikintu na kimwe: **umugore, umwana, n'ijambo rimwe ryavuzwe ridashobora gusubizwa inyuma**.
+
+Iryo jambo ni ryo ryavyaye umwami wa mbere w'Uburundi.
+
+**[VISUAL: Ikarata iratangura kwerekana inzira ija i Gitanga, hamwe n'ikimenyetso "Episode 1B"]**
+
+Muri Episode 1B, tuzobona ico Jabwe na Nsoro bagizanye — kandi tuzobona ko iryo jambo ryatumye umwe muri bo **azimira burundu mu mateka**.
+
+**[END CARD: "MON PAYS NATAL" — Episode 1B, vuba]**
+
+---
+
 ## ICYITONDERWA KU BUSHAKASHATSI (Editorial note — ntibigomba kuvugwa mu video)
 
 ✅ **Iyi verisiyo yanoswe**: dufise ubu citation nyayo ifise urupapuro nyawo (bikosowe: 43, atari 33/39), ivuye mu gitabo ca Chrétien ubwiwe (*Burundi : l'histoire retrouvée*, 1993), atari secondary sources gusa.
