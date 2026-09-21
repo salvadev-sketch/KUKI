@@ -1,0 +1,85 @@
+# MON PAYS NATAL — EP14 — NTARE III KIVIMIRA SEMUGANZASHAMBA
+
+Inyuma y'abami benshi tumaze kubona bafise izina gusa, hari uno atandukanye rwose.
+
+Kivimira.
+
+Uyu ni umwami afise inkuru — intambara, uturere yigaruriye, umwami wo mu Rwanda yahanganye na we, n'inkuru y'inka imwe izwi cane, ivugwa ko yamuhitanye.
+
+---
+
+## Umwami w'intambara
+
+Mu bushakashatsi bw'amateka y'u Rwanda, Ntare III Kivimira avugwa nk'umwami w'Uburundi wagaba ibitero ku bihugu bibanyi, cane cane **u Bugesera**. Umuhinga Alexis Kagame amwandika nk'umwami wateye Bugesera. Hari abamwita **"guerrier et conquérant d'envergure"** — umwami w'intambara no kwagura ububasha.
+
+Uruhara rwiwe mu kwagura ubutegetsi bw'Uburundi rufise ibimenyetso vyinshi kuruta abami bamubanjirije — ni co gituma dossier yiwe ari iy'ingenzi kuruta iya benshi muri bo.
+
+---
+
+## Intambara na Bugesera
+
+Inkuru izwi cane ivuga: Ntare III Kivimira atera u Bugesera; **Nsoro III Nyabarega**, umwami wa Bugesera, aratsindwa, ahungira mu Rwanda.
+
+Nyabarega yagerageje kuronka ubufasha bw'umwami w'u Rwanda, **Yuhi III Mazimpaka**, ngo bamurwanye. Ariko Mazimpaka ntiyabimwemereye, kubera imimaro yari hagati y'ibihugu bibiri.
+
+Kivimira ntiyahagaritse. Yarabandanije ibitero.
+
+Ariko dutegerezwa kubivuga uko bikwiye: izi nkuru zivuye mu **migenzo y'amateka yanditswe nyuma**, si inyandiko zo mu gihe Kivimira yabayeho.
+
+---
+
+## Inka Gitare
+
+Iyi ni imwe mu nkuru zizwi cane kuri Kivimira.
+
+Imigenzo ivuga ko yateye hafi ya Bwisha/Mpembe, afata inka z'umwami Yuhi III Mazimpaka. Muri izo nka hari iyitwa **Gitare**.
+
+Inkuru ivuga ko Ntare yanyoye amata y'iyo nka, hanyuma ararwara, amaherezo agapfa.
+
+Ntitwovuga "Ntare Kivimira yapfuye kubera kunywa amata ya Gitare" nk'ukuri kwemejwe. Tuvuga: **mu migenzo y'amateka y'u Rwanda, havugwa ko urupfu rwa Ntare Kivimira rwakurikiye kunywa amata y'inka Gitare yari yanyazwe.**
+
+---
+
+## Umushumba Rugaju
+
+Hari n'iyindi nkuru, itandukanye rwose.
+
+Ivuga ko Kivimira yigeze kwambuka umupaka ari kumwe n'ingabo nke, kugira anyage inka. Umushumba w'izo nka yitwa **Rugaju**.
+
+Rugaju ngo yarwanije Kivimira, amukubita inkoni ku gakanu — Kivimira agwa hasi, ataye ubwenge. Abarundi bari kumwe na we baca bahagarika igikorwa cabo.
+
+Iyi nkuru na yo ni imigenzo, ivuye mu masoko y'amateka y'u Rwanda, atari inyandiko y'ico gihe.
+
+---
+
+## Hari versions zibiri ku rupfu rwiwe
+
+**Version A** — amata ya Gitare amwica.
+
+**Version B** — apfa mu ntambara n'u Rwanda.
+
+Ntitwemeza imwe muri izo nk'ukuri kw'amateka. Zombi ni imigenzo, kandi zombi zibitswe n'amasoko atandukanye.
+
+---
+
+## Ikibazo c'amatariki
+
+Nk'uko bimaze kuba akamenyero muri iyi documentaire: hari **urutonde rwa kera**, rushira Kivimira hagati ya 1720 na 1750; hari n'**urundi rutonde rwa none**, rumushira hagati ya 1680 na 1709. Itandukaniro ni rirenga imyaka 40.
+
+Kandi izina "Kivimira" ryonyene rifise ivyongereza: mu zindi genealogy, amazina menshi ayongerekwako — **Savuyimba Semunganzashamba Rushatsi**. Ntitwovuga ngo ayo mazina yose ni ay'umuntu umwe yemejwe n'inyandiko z'ico gihe.
+
+---
+
+## Ico dutazi
+
+Se, nyina, aho yavukiye, umugore wiwe, abana biwe, n'aho yahambwe — vyose biracari 🔴.
+
+Ariko Ntare III Kivimira, ugereranije n'abandi twize mbere, afise inkuru ihagije: intambara, kwagura ubutegetsi, umubano n'u Rwanda, Yuhi III Mazimpaka, inka Gitare — vyose bituma agira ikibanza cizewe muri iyi documentaire.
+
+---
+
+Uwakurikiye Ntare III Kivimira ku ngoma, mu rutonde rwa kera, ni **Mwezi III Kavuyimbo/Ndagushimiye** — uwo twamaze kubona muri EP11.
+
+Umwami ukurikira, ufise na we inkuru ikomeye — kandi uwo, mu vy'ukuri, tumaze kumuvuga rimwe nka "Mutaga Senyamwiza" muri EP11, ariko tutigeze tumwiga wenyene:
+
+**MON PAYS NATAL — EP15 — MUTAGA III SEBITUNGWA**, ni ho tuzomubona.
