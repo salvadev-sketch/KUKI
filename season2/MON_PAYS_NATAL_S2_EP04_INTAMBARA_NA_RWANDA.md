@@ -30,6 +30,20 @@ Intambara na Gahindiro na Rwogera zombi zifise, mu magambo y'umwe mu bahinga biy
 
 ---
 
+## Cohoha na Shinge na Rugero
+
+Hari amasoko avuga ko mu ntango z'ingoma ya Ntare Rugamba, habaye ibitero hagati y'ingabo z'Uburundi n'iz'u Rwanda hafi y'ikiyaga **Cohoha**, mu karere ka Kirundo.
+
+Muri ako karere nyene hari imisozi ibiri izwi cane: **Shinge** na **Rugero**. Ntabwo ari abantu — ni imisozi, iri hafi y'igisagara ca Kirundo, mu karere ka Bugesera.
+
+Imigenzo ivuga ko intambara ikomeye yabereye ng'aho, ingabo z'Uburundi zigabanijwe mu migwi itatu, umwe uhishe inyuma ya Rugero, uwundi hagati y'imisozi yombi, n'uwundi uzengurutse inyuma y'abanyarwanda — maze abarwanyi b'u Rwanda baratsindwa cane. Iyo ntsinzi yaje kuvamwo imvugo ikoreshwa gushika none: **"kubura Shinge na Rugero"** — ni ukuvuga gutsindwa bikomeye, kubura aho uhagarara.
+
+Ariko hari amakuru abiri tugomba kuvuga uko ari: amasoko atanga imyaka ibiri itandukanye ku ntambara y'i Shinge na Rugero — **1763** na **1775**. Kandi amasoko atandukanya n'umwami wa Burundi wagabye izo ntambara: amwe avuga **Mutaga Senyamwiza** (uwo twize muri Season 1, EP15), ayandi akavuga **Ntare Rugamba**. N'umwami wo mu Rwanda na we aratandukana: Yuhi Gahindiro ku bamwe, Yuhi III Mazimpaka ku bandi.
+
+Ntitwohitamwo umwami umwe tutabanje kugira gihamya ikomeye. Tuzogumya kuvuga: 🟡 **Shinge na Rugero ni ahantu h'intambara zikomeye hagati y'Uburundi n'u Rwanda, kandi amasoko atandukanye ayihuza n'abami batandukanye, harimwo Mutaga Senyamwiza na Ntare Rugamba.**
+
+---
+
 ## Kinyaga: intsinzi idahoraho
 
 Imigenzo n'ubushakashatsi vyerekana ko ingabo z'Uburundi zinjiye mu bice vya **Kinyaga**, ku nkengera z'ikiyaga Kivu.
