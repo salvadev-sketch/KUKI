@@ -26,15 +26,15 @@ Muri abo, yavyaye abana benshi. Ariko mu bahungu biwe bose, hari batanu imigenzo
 
 ---
 
-## Ndivyariye: umwungere w'iherezo ributse
+## Ndivyariye: umuvukanyi, atari umwungere
 
-Ndivyariye ni we mukuru muri bo.
+Ndivyariye ni we mukuru muri bo, mu masoko amwe.
 
-Imigenzo ivuga ko ashinzwe kuba **umwungere** w'uwomusubira, mushiki wiwe Mwezi Gisabo, igihe uyu yari akiri muto.
+Ntare Rugamba yamuhaye akarere ka **Bweru**, mu buraruko bushira ubuseruko, kugira ngo awucungere — nk'uko yagenje abandi bahungu biwe.
 
-Ariko iherezo rya Ndivyariye ryagumye rizwi cane kubera urupfu rwiwe, atari ubuzima bwiwe: imigenzo ivuga ko yanigiwe.
+Inyuma y'urupfu rwa se, Ndivyariye ntiyabaye umwungere wa Mwezi Gisabo. Ahubwo, ni ho intandaro y'ikibazo iva: Ndivyariye, afise uturere, abantu, n'ubushobozi yari yaronse mu gihe ca se, aca aba umwe mu ba mbere **barwanya** ubutegetsi bushasha bwa Mwezi.
 
-Ntitwovuga ngo turazi neza uwamwishe canke igituma. Ni imigenzo. Ariko yerekana ko imbere y'uko ingoma yiherereza ku muhungu umwe, hari amakimbirane akomeye hagati y'abandi.
+Imigenzo ivuga ko Ndivyariye yaguye mu buryo **butasobanutse neza**. Ntitwovuga ngo turazi ico catumye canke uwamwishe — nta soko riduha iyo detail. Ico dushobora kuvuga ni ukuvuga ko urupfu rwiwe rwabaye rufunguye, kandi ko abakomotse kuri we bahavuye bimukira mu buraruko bushira ubuseruko, bagumana ari abatavuga rumwe n'ubutegetsi bushasha.
 
 ---
 
