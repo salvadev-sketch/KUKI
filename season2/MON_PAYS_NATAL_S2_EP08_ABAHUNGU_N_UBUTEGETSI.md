@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 2 — EP06 — ABAHUNGU N'UBUTEGETSI
+# MON PAYS NATAL — SEASON 2 — EP08 — ABAHUNGU N'UBUTEGETSI
 
 Uburundi bwarakuze cane muri ingoma ya Ntare Rugamba.
 
@@ -72,4 +72,4 @@ Aha ni ho urugendo rwa Ntare Rugamba ruberekana rudasanzwe: intambwe yamugejeje 
 
 Ariko imbere yo kubandanya kuri ico kibazo, hari ikindi cane Ntare Rugamba yakoze, kijanye n'uburyo bw'ubutegetsi bwo hagati ubwabwo.
 
-**MON PAYS NATAL — SEASON 2 — EP07 — UBUGABIRE N'UBUTUNZI**, ni ho tuzoraba iyo ngingo.
+**MON PAYS NATAL — SEASON 2 — EP09 — UBUGABIRE N'UBUTUNZI**, ni ho tuzoraba iyo ngingo.

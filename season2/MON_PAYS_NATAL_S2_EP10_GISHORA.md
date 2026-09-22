@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 2 — EP08 — GISHORA
+# MON PAYS NATAL — SEASON 2 — EP10 — GISHORA
 
 Twaramaze kubona ukuntu Gishora yavutse — inyuma y'intsinzi ku mwigomeke Ntibirangwa.
 
@@ -30,4 +30,4 @@ Iyi ni imwe mu mvo zishimishije kuri documentaire nk'iyi: aho tudakurikirana ink
 
 Ariko naho Gishora yari ikimenyetso c'ubukomezi bw'ubwami, hari ikibazo kimwe Ntare Rugamba atashoboye gukemura mu buzima bwiwe: uwomusubira.
 
-**MON PAYS NATAL — SEASON 2 — EP09 — BATARE NA BEZI**, ni ho tuzoraba ico kibazo, gikaba kizoba kimwe mu bibazo bikomeye vy'Uburundi bwo mu binjana bikurikira.
+**MON PAYS NATAL — SEASON 2 — EP11 — BATARE NA BEZI**, ni ho tuzoraba ico kibazo, gikaba kizoba kimwe mu bibazo bikomeye vy'Uburundi bwo mu binjana bikurikira.

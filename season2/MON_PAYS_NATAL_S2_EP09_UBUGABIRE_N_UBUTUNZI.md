@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 2 — EP07 — UBUGABIRE N'UBUTUNZI
+# MON PAYS NATAL — SEASON 2 — EP09 — UBUGABIRE N'UBUTUNZI
 
 Ubwami bugutse ntibukura gusa ku ntambara n'abatware.
 
@@ -46,4 +46,4 @@ Ivyo vyose — Ivyibare, Bishikira, Mbuye, ubugabire — bimwe na bimwe vyari ig
 
 Hari n'ikindi kintu Ntare Rugamba yasize, kirenze ubutegetsi n'ubutunzi — ikintu ku bwaco kiriho ubu, dushobora kukibona.
 
-**MON PAYS NATAL — SEASON 2 — EP08 — GISHORA**, ni ho tuzosubira kuri urwo rugo, tukaraba uruhara rwarwo mu buzima bw'idini n'ubwami bwa Ntare Rugamba.
+**MON PAYS NATAL — SEASON 2 — EP10 — GISHORA**, ni ho tuzosubira kuri urwo rugo, tukaraba uruhara rwarwo mu buzima bw'idini n'ubwami bwa Ntare Rugamba.

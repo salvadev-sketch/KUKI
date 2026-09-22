@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 2 — EP09 — BATARE NA BEZI
+# MON PAYS NATAL — SEASON 2 — EP11 — BATARE NA BEZI
 
 Twarabibonye kera: Ntare Rugamba yashize abahungu biwe mu turere, kugira babe abategetsi.
 
@@ -54,4 +54,4 @@ Ubu, twaramaze kubona ubwami bwiwe bwose: ukwagura, ibikanga, abahungu, ubugabir
 
 Rasigaye ikibazo kimwe.
 
-**MON PAYS NATAL — SEASON 2 — EP10 — ISOZERO**, ni ho tuzoraba urupfu rwiwe, aho yahambwe, n'umurage yasigiye Uburundi — umurage udasanzwe, ufise ubugari n'ibibazo icarimwe.
+**MON PAYS NATAL — SEASON 2 — EP12 — ISOZERO**, ni ho tuzoraba urupfu rwiwe, aho yahambwe, n'umurage yasigiye Uburundi — umurage udasanzwe, ufise ubugari n'ibibazo icarimwe.

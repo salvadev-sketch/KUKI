@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 2 — EP05 — IBIKANGA
+# MON PAYS NATAL — SEASON 2 — EP07 — IBIKANGA
 
 Ubwami bugutse ntibushobora kugumaho ku ntambara zimwe zimwe gusa.
 
@@ -32,4 +32,4 @@ Ariko ico dukwiye kuvuga ni ico: iki gikorwa ntigiterwa n'isoko rimwe. Amasoko m
 
 Ariko ingabo zonyene ntizatuma ubwami buguma. Bukeneye kandi uburyo bwo kubutunganya — abantu bo kubugenzura, no gutuma ubutunzi bugana ku ntebe y'ubwami.
 
-**MON PAYS NATAL — SEASON 2 — EP06 — ABAHUNGU N'UBUTEGETSI**, ni ho tuzoraba ingingo Ntare Rugamba yafashe, izoba ari yo nkuru ikomeye — kandi izoba n'iyo izovamwo ibibazo bikomeye inyuma yiwe.
+**MON PAYS NATAL — SEASON 2 — EP08 — ABAHUNGU N'UBUTEGETSI**, ni ho tuzoraba ingingo Ntare Rugamba yafashe, izoba ari yo nkuru ikomeye — kandi izoba n'iyo izovamwo ibibazo bikomeye inyuma yiwe.
