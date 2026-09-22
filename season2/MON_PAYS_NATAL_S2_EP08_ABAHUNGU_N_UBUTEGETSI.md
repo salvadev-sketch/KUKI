@@ -12,7 +12,7 @@ Ntare Rugamba yaronse inyishu: abahungu biwe ubwabo.
 
 Ntare Rugamba yarongoye abagore cumi na umwe.
 
-Muri abo, yavyaye abana benshi. Ariko mu bahungu biwe bose, hari batanu imigenzo yagumije nk'ab'ingenzi mu mateka y'Uburundi:
+Muri abo, yavyaye abana benshi. Ariko mu bahungu biwe bose, hari batandatu imigenzo yagumije nk'ab'ingenzi mu mateka y'Uburundi:
 
 **Ndivyariye.**
 
@@ -21,6 +21,8 @@ Muri abo, yavyaye abana benshi. Ariko mu bahungu biwe bose, hari batanu imigenzo
 **Birori.**
 
 **Busumano.**
+
+**Twarereye** — uwo na we, nk'uko tuzobibona muri Season 3, azoba umwe mu barwanya Mwezi Gisabo, mu ntambara ya Nkondo.
 
 **Gisabo** — uwo, nyuma y'urupfu rwa se, azoba umwami, azitwa **Mwezi IV Gisabo**.
 
