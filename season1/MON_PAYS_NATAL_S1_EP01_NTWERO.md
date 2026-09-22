@@ -26,13 +26,13 @@ Imbere y'uko Ntare Rushatsi ahuza igihugu, hariho isi indi.
 
 Isi y'uturere.
 
-Isi y'abakuru b'utwo turere, imigenzo ikabita **"roitelets"** — abatware bato bategeka bagenda bagenda, buri wese ku murima wiwe, ku musozi wiwe, ku bantu biwe.
+Isi y'abakuru b'utwo turere, imigenzo ikabita **"roitelets"** — abatware bato bategeka bagenda bagenda, buri wese ku murima wiwe, ku musozi wiwe, ku bantu biwe. 🔴 *(Iri jambo ntiraboneka mu masoko dufise ubu muri iyi repo — rikeneye kwongera kwemezwa mu kindi gitabo imbere yo gukoreshwa nk'ikimenyetso cemejwe.)*
 
 Ntwero ni umwe muri bo.
 
 Imigenzo ivuga ko yaganzuraga mu bice vya **Bututsi**, hanyuma aza kwimukira mu bumanuko, ahantu tuvuga ngo ni **Mugamba na Kwijuru**.
 
-Hari kandi inyandiko y'akarere ka Bururi ivuga ko urugo rwa Ntwero rwari ruri ng'aho, mu bibira bikikije Bururi — kandi ko ibisigarira vy'urwo rugo vyari bikiriho igihe kirekire.
+Hari kandi inyandiko y'akarere ka Bururi ivuga ko urugo rwa Ntwero rwari ruri ng'aho, mu bibira bikikije Bururi — kandi ko ibisigarira vy'urwo rugo vyari bikiriho igihe kirekire. 🔴 *(Na ryo ntiraboneka mu masoko dufise ubu — rigomba kwongera kwemezwa.)*
 
 Ariko turabe maso: ntitwovuga ngo imbibe z'ubutegetsi bwiwe zari nk'iz'akarere ka none. Ivyo ntibizwi neza.
 
@@ -50,6 +50,8 @@ Ni co gituma tudashaka guhitamwo imwe ngo ni yo y'ukuri.
 
 Tuzobika zombi, uko zabitswe.
 
+[FR-CITATION] 🟡 Nk'uko tubisoma mu gitabo canditswe na Jean-Pierre Chrétien, citwa *Burundi, l'histoire retrouvée* (1993), yagize ati: « un faiseur de pluie nommé Ntwero venu du lac Tanganyika » — arivyo bisobanura mu Kirundi ngo: "umuntu w'imvura yitwa Ntwero, yavuye ku kiyaga Tanganyika." Igitabu kivuga ko uwo Ntwero yarongoye umwamikazi Namirembe. Iyi nkuru yatanzwe n'umuvugizi Dominique Ruvugazinaniwe, wo i Bisoro, yabajijwe kabiri: mu Werurwe 1954 no ku wa 21 Nyakanga 1979.
+
 ---
 
 Naho ivyo bitandukanye, hari ikintu kimwe imigenzo myinshi ihuriraho.
@@ -65,6 +67,8 @@ Abo bahungu babiri ni bo bazoba bakomeye mu nkuru ikurikira.
 Jabwe afatwa nk'uwafashe agace k'i Mugamba, Kwijuru na Ntunda.
 
 Nsoro na we afatwa nk'uwafashe agace k'i Bututsi, cane cane ahantu hazwi nka Ryansoro na Gitanga — izina Ryansoro nyene rikaba risobanurwa mu migenzo nk'"itongo rya Nsoro."
+
+[FR-CITATION] 🟡 Nk'uko tubisoma muri thesis ya Nduwamahoro (asubiramwo Mworoha, 1987), havugwa ko: "yagérereye mu Butütsi, mu Gitânga" — bivuga ko Nsoro yaganje muri ako karere, hafi y'aho hitwa Ryansoro.
 
 Kandi biba ngombwa kwibaza ikibazo kimwe cane:
 
@@ -97,6 +101,8 @@ Ivyakurikiye ni vyo bizoba intango y'inkuru ikurikira — inkuru izokwama itwara
 Ariko iyo si iyo none.
 
 Ni iyo mu gice gikurikira.
+
+[FR-CITATION] 🟡 Iyi nkuru ya Jabwe asanga umugore wa Nsoro i Gashinyira na yo ivugwa muri thesis ya Nduwamahoro (asubiramwo Mworoha, 1987, urup. 106) — nk'imwe mu migenzo yabitswe ivuga ku ntango y'ivuka rya Ntare Rushatsi.
 
 ---
 
