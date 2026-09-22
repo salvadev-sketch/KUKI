@@ -12,11 +12,13 @@ Ariko ico tutarabaza ni ikindi kibazo, kikaba ari co gituma inkuru y'Uburundi it
 
 Jabwe yari afise agace k'i Ntunda, Mugamba na Kwijuru.
 
-Nsoro na we, umuvandimwe wiwe, yari afise agace k'i Bututsi, Gitanga na Ryansoro — akarere kamwe kamwe kitwa Nyabikenke, aho imigenzo ivuga ko Nsoro yabaga.
+Nsoro na we, umuvandimwe wiwe, yari afise agace k'i Bututsi, Gitanga na Ryansoro — akarere kamwe kamwe kitwa Nyabikenke, aho imigenzo ivuga ko Nsoro yabaga. 🔴 *(Izina "Nyabikenke" ntiraboneka mu masoko dufise ubu — rikeneye kwongera kwemezwa.)*
 
 Izina Ryansoro ubwaryo risobanurwa mu migenzo nk'**"itongo rya Nsoro"** — ubutaka bwa Nsoro.
 
-Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato.
+[FR-CITATION] 🟡 Nk'uko tubisoma muri thesis ya Nduwamahoro (asubiramwo Mworoha, 1987, urup. 106), havugwa ko Nsoro "yagérereye mu Butütsi, mu Gitânga" — akarere kagera no muri Gashinyira, Matana na Matutu/Rutana.
+
+Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato. 🔴 *(Iyi ndondogoro ya kabiri ("Rufuku") ntiraboneka mu masoko dufise ubu — rikeneye kwongera kwemezwa mu kindi gitabo.)*
 
 Tuzobika izo mvyerekano zombi. Ntituzohitamwo imwe ngo ni yo y'ukuri.
 
@@ -49,6 +51,8 @@ Uwo mugore aca avyara umwana.
 Uwo mwana ni:
 
 **Ntare Rushatsi Cambarantama.**
+
+[FR-CITATION] 🟡 Iyi nkuru y'ivuka rya Ntare Rushatsi (yitwa na "Bijoga") avuka ku mugore wa Nsoro, mu rugo rwa Gashinyira, na yo ivugwa muri thesis ya Nduwamahoro (asubiramwo Rodegem, 1965:94; Mworoha, 1987:106; Ndayishingunje na Guillet, 1984:13-23).
 
 ---
 
@@ -100,6 +104,8 @@ Mu Kirundi, kunyika ni ukuzimira, kurohama mu kintu — umuntu akagenda ntamenye
 
 Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari version ivuga ko azimiye, izindi zikavuga ko yapfuye mu ntambara. Ico dushobora kuvuga neza ni ico: bararwanye, Nsoro akazimira i Gitanga, kandi izina ryiwe ryaje kuguma mu rurimi rw'ikirundi nk'umugani, uwundi na uwundi akawukoresha ata n'aho aribuka Nsoro ubwiwe.
 
+[FR-CITATION] 🟡 Nk'uko thesis ya Nduwamahoro ibivuga (asubiramwo Rodegem, 1965:94; Mworoha, 1987:106), Nsoro yatsinzwe muri iyo ntambara "acaazimanganira mu Gitânga" — kandi abakomotse kuri we baritwa Abasoro.
+
 ---
 
 Hari abahinga bibajije ikindi kintu: amazina Jabwe na Nsoro nyene, mbega afise insobanuro?
@@ -108,7 +114,7 @@ Bamwe bavuga ko **Jabwe** ashobora kuba afitaniye isano n'ijambo "kujaba" — ku
 
 Nsoro na we, bamwe bavuga ko yibutsa **ubusoro** — amabuye yo mu ruzi — canke **igisoro**, umukino wo mu migenzo ukoreshwa amabuye.
 
-Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis. Ariko birashimishije kubona ko inkuru yabo yuzuyemwo amashusho y'amazi, amabuye, imigezi, ibishanga — kuva ku mvura yafashe Jabwe, gushika ku bishanga vya Gitanga vyanyitse Nsoro.
+Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis. 🔴 *(Sinabonye aho iyi nsiguro y'amazina ivuye mu masoko dufise ubu — igomba kwongera kwemezwa.)* Ariko birashimishije kubona ko inkuru yabo yuzuyemwo amashusho y'amazi, amabuye, imigezi, ibishanga — kuva ku mvura yafashe Jabwe, gushika ku bishanga vya Gitanga vyanyitse Nsoro.
 
 Bishoboka ko izo si biographies z'abantu gusa, ahubwo ari n'uburyo imigenzo yagenze isobanura inkomoko y'uturere n'imiryango.
 
