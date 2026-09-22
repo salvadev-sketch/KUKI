@@ -32,7 +32,7 @@ Newbury na we avuga ko inyuma y'urupfu rwa Ntare Rugamba habaye ihiganwa rikomey
 
 ---
 
-Aha nidusubira ku gitekerezo twabonye muri EP06:
+Aha nidusubira ku gitekerezo twabonye muri EP08:
 
 Ntare Rugamba yari afise ubushobozi bwo gushira abahungu biwe mu turere.
 

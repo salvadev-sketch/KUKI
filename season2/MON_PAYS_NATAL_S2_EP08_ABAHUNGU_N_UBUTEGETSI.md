@@ -28,15 +28,13 @@ Muri abo, yavyaye abana benshi. Ariko mu bahungu biwe bose, hari batandatu imige
 
 ---
 
-## Ndivyariye: umuvukanyi, atari umwungere
+## Ndivyariye
 
 Ndivyariye ni we mukuru muri bo, mu masoko amwe.
 
 Ntare Rugamba yamuhaye akarere ka **Bweru**, mu buraruko bushira ubuseruko, kugira ngo awucungere — nk'uko yagenje abandi bahungu biwe.
 
-Inyuma y'urupfu rwa se, Ndivyariye ntiyabaye umwungere wa Mwezi Gisabo. Ahubwo, ni ho intandaro y'ikibazo iva: Ndivyariye, afise uturere, abantu, n'ubushobozi yari yaronse mu gihe ca se, aca aba umwe mu ba mbere **barwanya** ubutegetsi bushasha bwa Mwezi.
-
-Imigenzo ivuga ko Ndivyariye yaguye mu buryo **butasobanutse neza**. Ntitwovuga ngo turazi ico catumye canke uwamwishe — nta soko riduha iyo detail. Ico dushobora kuvuga ni ukuvuga ko urupfu rwiwe rwabaye rufunguye, kandi ko abakomotse kuri we bahavuye bimukira mu buraruko bushira ubuseruko, bagumana ari abatavuga rumwe n'ubutegetsi bushasha.
+Ico Ndivyariye yaje kuba inyuma y'urupfu rwa se — uruhara rwiwe rukomeye mu ntango y'ingoma ya Mwezi Gisabo, n'uko yaje kubura — ni inkuru ya Mwezi ubwiwe. Tuzoyiraba, uko iri yose, mu **Season 3**.
 
 ---
 
@@ -70,7 +68,7 @@ Ariko ntiyari afise ubushobozi buhagije bwo kubinjiza bose mu butegetsi bukomeye
 
 ---
 
-Aha ni ho urugendo rwa Ntare Rugamba ruberekana rudasanzwe: intambwe yamugejeje ku kuguka kw'ubwami ni yo yazoba intambwe izobera ibibazo abamukurikira — nk'uko turabibona muri EP09.
+Aha ni ho urugendo rwa Ntare Rugamba ruberekana rudasanzwe: intambwe yamugejeje ku kuguka kw'ubwami ni yo yazoba intambwe izobera ibibazo abamukurikira — nk'uko turabibona muri EP11.
 
 Ariko imbere yo kubandanya kuri ico kibazo, hari ikindi cane Ntare Rugamba yakoze, kijanye n'uburyo bw'ubutegetsi bwo hagati ubwabwo.
 
