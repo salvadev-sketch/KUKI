@@ -32,6 +32,8 @@ Hari umwami akwiye kwitwa **Ntare Rugamba**, azoba yarategetse mu myaka y'inyuma
 
 Iyo mizina yombi — Ntare Rushatsi na Ntare Rugamba — yagiye ivangwa mu migenzo. Abashakashatsi bavuga ko hari "amalgames spatio-temporels" — ibintu vyabaye mu bihe bitandukanye bikaza guhurizwa hamwe n'imigenzo yo mu kanwa.
 
+🔴 *(Imibare y'imyaka yihariye (1530-1550, 1680-1709) n'ijambo ryihariye "amalgames spatio-temporels" ntiraboneka ku buryo bweruye mu masoko dufise ubu muri iyi repo — bigomba kwongera kwemezwa ku mugereka w'ibitabu bimwe bimwe (nka Vansina 1972) tutarasoma umwimerere wabyo.)*
+
 Ni co gituma inkuru zimwe zivuga ko Ntare Rushatsi yarwanye na Ruhaga, izindi zikavuga ko yarwanye na Nsoro, izindi zikamuha ibikorwa bisa n'ivya Ntare Rugamba. Buri nkuru dutegerezwa kuyitohoza ukwayo, ntitwovanga ibihe bibiri mu kimwe.
 
 ---
@@ -52,6 +54,8 @@ Mu bwami, Ntare Rushatsi afatanywa n'itanguriro ry'inzego zimwe zikomeye.
 
 **Bashingantahe** — urwego rw'ubutungane — bafatanywa n'itanguriro canke ukomezwa kwarwo ku ngoma yiwe. Umwami ntiyari gusa umutware w'ingabo; yari afise uruhara mu gutunganya igihugu, gutanga ubutungane, guhuza imiryango.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko "nta wuzi neza inkomoko y'intahe mu Burundi" — akemeza ko Abashingantahe "bari bafise uruhara mu guca imanza no mu gutunganiriza abantu."
+
 Ubwami rero, uko busobanurwa n'imigenzo, ntibwari ubutegetsi bw'intambara gusa. Bwari n'ubutegetsi bw'ubutungane n'imigenzo.
 
 ---
@@ -61,6 +65,8 @@ Hari n'ibibanza bifatwa nk'ubuhamya bw'ahantu Ntare Rushatsi yagiyemwo.
 **Gashinyira i Matana** ivugwa nk'aho yavukiye. Inyandiko za leta zivuga ko ahantu hafitaniye isano n'inka z'ubwami na Karyenda. Ariko hari n'abavuze ko ico kibanza kitari kibungabunzwe ku rugero rwari rukwiye, naho gifise agaciro gakomeye k'amateka.
 
 Kandi hari **necropoles royales du Nkiko-Mugamba**, aho abami bane ba mbere — Ntare Rushatsi, Mwezi, Mutaga na Mwambutsa — bafatwa nk'abashyinguwe, i **Budandari**, mu karere ka Kabarore.
+
+[FR-CITATION] 🟡 Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashyinze abami bane ba kera."
 
 Ariko turakwiye kuvuga "imva ifatwa nk'iya Ntare Rushatsi", aho kuvuga "archaeology yemeje ko ari imva yiwe" — kuko ivyo bisaba ubushakashatsi bw'ubucukuzi bwihariye tutari dufise.
 

@@ -62,6 +62,8 @@ Ni ho hava izina rimwe rizoguma rimwomekeye ku muntu wiwe kugeza none:
 
 Abahinga bavuga ko iryo zina rifitaniye isano n'urwo rusato — kandi ko intama, mu migenzo y'idini, yari ifise agaciro gakomeye, kajanye n'Imana.
 
+[FR-CITATION] 🟡 Nduwamahoro (asubiramwo Bahenduzi 1991:12; Vansina 1970:70; Mworoha 1987:106-198) avuga ko Ntare "yaraharonkeye agatazirano ka Cambarantama kubera urusato rw'intama yambara." Ariko muri Chrétien (1993), umwami akoresha irindi zina, avuga ko ari "mon-petit-qui-se-nourrit-de-mouton" — arivyo bisobanura ngo "akobwa kanje kariyo ku mutima w'intama." Ni imigenzo ibiri itandukanye, ariko yombi ihuza Cambarantama n'intama.
+
 Rero Ntare, umwana w'umuryango w'abatware, akaba yarabayeho igihe kimwe nk'umwungere w'umukene, mu rugo rw'uwundi mwami.
 
 ---
@@ -75,6 +77,10 @@ Bavuga ko impfizi yiwe, mu matongo, itsinda iy'umwami.
 Bavuga ko umwami w'i Buha yararose ikintu kimuha ikimenyetso c'uko uwo mwungere afise amaherezo adasanzwe.
 
 Hari na versions ziravuga ko **abapfumu**, bamwe baturutse mu Burundi ubwabwo, bazana amazina atandukanye — Bajiji, Nyamigogo, Ndwano, Runyota, Mitimigamba, Shaka — kandi bakaza gushakisha uwo mwami mushasha wari agiye kuboneka.
+
+[FR-CITATION] 🟡 Nk'uko tubisoma mu gitabo canditswe na Jean-Pierre Chrétien, citwa *Burundi, l'histoire retrouvée* (1993), yagize ati: « il avait des devins: Mbibe, Nyamigogo et Ndwano » — arivyo bisobanura mu Kirundi ngo: "yari afise abapfumu: Mbibe, Nyamigogo na Ndwano," ari bo bajanye umwana i Buha.
+
+[FR-CITATION] 🟡 Muri ikindi giciro ca Chrétien ("Du hirsute au hamite," 1981), urutonde rwuzuye rw'ayo mazina 6 (Bajiji, Nyamigogo, Ndwano, Runyota, Mitimigamba, Shaka) ruragaragara nk'imigenzo ibiri itandukanye ivugwa hamwe: "soit la lignée des Bajiji - Nyamigogo, Ndwano et Runyota -, soit Mitimigamba ou Shaka fils du Bakeba."
 
 Izi ni nkuru z'ubuhanuzi n'imigenzo y'idini. Ntitwazishira ku rwego rumwe n'ivyabaye vy'amateka yemejwe — ariko ntitwakwirengagiza ko ari zo zagize uruhara mu kubaka izina rya Ntare mu migenzo y'Uburundi.
 
@@ -101,6 +107,8 @@ Ariko uruhara nyarwo rwa Inamabuye muri iyo mpunga — nimba yari azi, nimba yar
 Ico dushobora kuvuga neza kuri Inamabuye:
 
 Yari umukobwa wa Ntwero, mushiki wa Jabwe na Nsoro.
+
+[FR-CITATION] 🟡 Nk'uko tubisoma muri Chrétien (1993), yagize ati: « Ruhaga, roi du Buha qui avait épousé Namabuye fille de Namirembe » — arivyo bisobanura mu Kirundi ngo: "Ruhaga, umwami w'i Buha, yarongoye Namabuye, umukobwa wa Namirembe" (Namirembe akaba ari we mugore wa Ntwero, nyina wa Jabwe na Nsoro nk'uko twabibonye muri EP01).
 
 Yari umugore w'umwami w'i Buha.
 

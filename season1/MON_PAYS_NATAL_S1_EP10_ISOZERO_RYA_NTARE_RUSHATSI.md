@@ -20,7 +20,7 @@ Ntibavuga Buha. Ntibavuga Inamabuye canke umwami w'i Buha.
 
 Bavuga ko Ntare yaturutse mu **Rwanda**, akaca ku ruzi rwitwa **Kanyaru**, hanyuma akinjira mu Burundi biciye mu buraruko. Izina ryayo ryakomotse kuri urwo ruzi ubwarwo.
 
-Ariko dutegerezwa kuvuga ukuri: iyi tradition, muri BBG, ntiyaraboneka mu buryo burambuye nk'uko cycle du Nkoma yaboneka. Nta nkuru irambuye tudufise ivuga ico Ntare yakoze akiri mu Rwanda, ni bande yahuye na bo, canke ni iki cabaye igihe yashika mu Burundi biciye muri iyo nzira.
+Ariko dutegerezwa kuvuga ukuri: iyi tradition, mu masoko dufise ubu, ntiyaraboneka mu buryo burambuye nk'uko cycle du Nkoma yaboneka. Nta nkuru irambuye tudufise ivuga ico Ntare yakoze akiri mu Rwanda, ni bande yahuye na bo, canke ni iki cabaye igihe yashika mu Burundi biciye muri iyo nzira.
 
 Aya makuru make afise agaciro gakomeye nyene: avuga ko **nta version imwe gusa yigeze ivuga ku nkomoko ya Ntare Rushatsi**. Iyo tudufise ibisigo bibiri — kimwe kivuye mu buseruko, i Buha, kandi kikaba ariko cane cane cabitswe; ikindi kivuye mu buraruko, mu Rwanda, kikaba gato mu migenzo isigaye. Ntitwovuga ngo kimwe ni co "cy'ukuri" kandi ikindi ari "ikinyoma" — ni ukwibutsa gusa ko amateka y'inkomoko ya Ntare, uko yabitswe mu migenzo mvugo, atari umurongo umwe utagira ivunjwe.
 
@@ -34,7 +34,9 @@ Imigenzo ivuga ko Ntare, ashaka guhuza ibice bitandukanye vy'Uburundi bwa kera, 
 
 Hari **Jabwe**, twaramaze kwiga inkuru yiwe — atari intambara y'akarere, ahubwo ikibazo cagutse kubera kumugumana Ntare mu rugo rwiwe.
 
-Hari n'andi mazina abiri: **Fumbije**, uwo Institut français du Burundi ivuga ko Ntare yatsinze — nta karere kavugwa, nta gihe, nta nkuru y'intambara ubwayo, ijambo rimwe gusa. Kandi hari **Ruhinda**, intambara BBG ubwayo yita "itamenyekana neza" — kandi tudashobora kwemeza ko ari uwundi muntu, atari uwo mu Rugo rwo i Buha twize kera, uwitwa na we, mu bindi bisigo, Ruhaga.
+Hari n'andi mazina abiri: **Fumbije**, uwo imigenzo imwe ivuga ko Ntare yatsinze — nta karere kavugwa neza, nta gihe, nta nkuru y'intambara ubwayo, ijambo rimwe gusa. Kandi hari **Ruhinda**, intambara itamenyekana neza — kandi tudashobora kwemeza ko ari uwundi muntu, atari uwo mu Rugo rwo i Buha twize kera, uwitwa na we, mu bindi bisigo, Ruhaga.
+
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) yagize ati: « Jabwe et Fumbije voisinent, alors qu'un siècle et demi les séparent au moins » — bivuga ko Fumbije ari izina nyakuri riboneka mu migenzo y'aba "roitelets," ariko Chrétien ubwiwe avuga ko iyo migenzo ihuza abantu batandukanijwe n'ibihe birebire, ku buryo tutashobora kwizera intambara zabo nk'inkuru imwe ifise igihe kimwe.
 
 Aha tugomba kwibuka: kutamenya ni na ryo igice c'amateka. Twashoboye kwerekana ukuntu Kiranga yapfuye kubera ko imigenzo yabitse inkuru irambuye. Ntitushoboye kwerekana ukuntu Ntare yatsinze Fumbije, kubera ko imigenzo ntiyabitse uwo murongo w'inkuru — izina gusa.
 
@@ -46,7 +48,7 @@ Hari ikibazo tutigeze dushobora gusubiza, naho twagerageje kenshi:
 
 **Ni nde yamwemeye? Ni nde yamushize ku ngoma?**
 
-BBG, uko iri, ntabwo ifise inyishu. Amasoko yose ari muri iki gitabu ku vyerekeye "ukwimikwa" ni ay'abami bo mu myaka ya vuba — Mwambutsa, Ntare V — atari ay'uwo twita umwami wa mbere. Ni ikibazo dusigaranye, ata guhimba.
+Amasoko dufise ubu ntafise inyishu. Amasoko yose ari muri iyi repo ku vyerekeye "ukwimikwa" ni ay'abami bo mu myaka ya vuba — Mwambutsa, Ntare V — atari ay'uwo twita umwami wa mbere. Ni ikibazo dusigaranye, ata guhimba.
 
 ---
 

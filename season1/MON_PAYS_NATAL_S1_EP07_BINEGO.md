@@ -38,6 +38,8 @@ Iyi nkuru ivuga ko yakuze afise inguvu zidasanzwe, akagira ibikorwa bikomeye kur
 
 Kandi hari igice kimwe kizwi cane: Ryangombe amaze kwicwa n'imbogo, Binego arahora, akica iyo nyamaswa yishe se, akoresheje icumu.
 
+[FR-CITATION] 🟡 Nk'uko Chrétien avuga muri "Du hirsute au hamite" (1981), asubiramwo Luc de Heusch (*Le Rwanda et la civilisation interlacustre*, 1966, urup. 263): iki gikorwa ca Binego kije gufasha se Ryangombe gihuzwa n'ikindi gikorwa gisa, ica Kyomya (umuhungu w'umwami Wamara) uza gufasha se muri izindi migenzo yo mu karere k'ibiyaga bigari.
+
 Ni umugani. Atari inyandiko y'amateka yemejwe. Ariko ni umugani ufise agaciro: urerekana Binego nk'umwana w'intwari, umwana w'umurwanyi, umwana ufise agatima ko kwihoreza.
 
 ---
@@ -54,7 +56,7 @@ Ibi ntibivuze ko hari Binego babiri batandukanye rwose. Ntibivuze na none ko ari
 
 ---
 
-Rero, Binego tumufunga aha, uko BBG nyene ibivuga:
+Rero, Binego tumufunga aha:
 
 Binego ni umuntu w'ingenzi mu migenzo ya Kubandwa yo mu karere k'ibiyaga bigari. Mu Rwanda avugwa nk'umwana wa Ryangombe, mu Burundi no mu Buha akavugwa nk'umwana wa Kiranga, akaba n'umwambari wiwe utwara icumu. Uruhara rwiwe nyamukuru ni ugufasha no kurinda imihango ya Kubandwa. Ntidufise icemezo c'amateka co kuvuga ko abo Binego bombi ari umuntu umwe nyene.
 

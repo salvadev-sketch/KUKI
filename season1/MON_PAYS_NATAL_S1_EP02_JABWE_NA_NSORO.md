@@ -18,7 +18,9 @@ Izina Ryansoro ubwaryo risobanurwa mu migenzo nk'**"itongo rya Nsoro"** — ubut
 
 [FR-CITATION] 🟡 Nk'uko tubisoma muri thesis ya Nduwamahoro (asubiramwo Mworoha, 1987, urup. 106), havugwa ko Nsoro "yagérereye mu Butütsi, mu Gitânga" — akarere kagera no muri Gashinyira, Matana na Matutu/Rutana.
 
-Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato. 🔴 *(Iyi ndondogoro ya kabiri ("Rufuku") ntiraboneka mu masoko dufise ubu — rikeneye kwongera kwemezwa mu kindi gitabo.)*
+Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato.
+
+[FR-CITATION] 🟡 Nasanze muri Chrétien (1981) ikindi kintu gitandukanye: aho avuga ko "Rufuku" ari rimwe mu mazina ya Ntare Rushatsi ubwiwe (Rufuku, "Imvubu," biva ku mugani "Rufuku rwafukiye Uburundi"), atari izina ry'umuvyeyi wa Ntwero. Muri kimwe mu bisigo (ico Vansina yise "l'Anonyme de Kigamba"), harimwo Ntare wa mbere yitwa "Rushatsi ou Rufuku (ou encore Ruhinda)," hanyuma nyuma y'ivyago biba muri uwo muryango, "Ntwero" akaza nk'uwakomotse ku muryango wa nyuma. 🔴 *(Iyi si iyo ndondogoro nyene EP02 ivuga — igomba kwongera gusuzumwa hano, kuko Chrétien avuga ikindi kintu gitandukanye n'ico dusanzwe tuvuze.)*
 
 Tuzobika izo mvyerekano zombi. Ntituzohitamwo imwe ngo ni yo y'ukuri.
 
@@ -114,7 +116,11 @@ Bamwe bavuga ko **Jabwe** ashobora kuba afitaniye isano n'ijambo "kujaba" — ku
 
 Nsoro na we, bamwe bavuga ko yibutsa **ubusoro** — amabuye yo mu ruzi — canke **igisoro**, umukino wo mu migenzo ukoreshwa amabuye.
 
-Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis. 🔴 *(Sinabonye aho iyi nsiguro y'amazina ivuye mu masoko dufise ubu — igomba kwongera kwemezwa.)* Ariko birashimishije kubona ko inkuru yabo yuzuyemwo amashusho y'amazi, amabuye, imigezi, ibishanga — kuva ku mvura yafashe Jabwe, gushika ku bishanga vya Gitanga vyanyitse Nsoro.
+Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis.
+
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981, asubiramwo F.M. Rodegem) yagize ati: « Jabwe peut dériver de kujaba, "troubler l'eau" » — arivyo bisobanura mu Kirundi ngo: "Jabwe ashobora kuva ku ijambo 'kujaba,' 'gutera akajagari mu mazi.'" Uwo muhinga anavuga ko Nsoro na we ashobora kwibutsa "ubusoro" (amabuye yo mu ruzi) n'umukino w'igisoro.
+
+Ariko birashimishije kubona ko inkuru yabo yuzuyemwo amashusho y'amazi, amabuye, imigezi, ibishanga — kuva ku mvura yafashe Jabwe, gushika ku bishanga vya Gitanga vyanyitse Nsoro.
 
 Bishoboka ko izo si biographies z'abantu gusa, ahubwo ari n'uburyo imigenzo yagenze isobanura inkomoko y'uturere n'imiryango.
 

@@ -18,6 +18,8 @@ Ayandi amwita **Ruhinda**.
 
 Kandi ntawuvuga rimwe ngo ni amazina abiri y'umuntu umwe, ngo ni umuntu umwe agira amazina abiri gusa. Abashakashatsi berekana neza ko iyo migenzo itahuza: hari inkuru zivuga Ruhaga umwe wo mu Burundi ubwabwo, hari izindi zivuga Ruhaga w'i Buha, kandi Jean-Pierre Chrétien yerekana ko mu miganzo itandukanye y'inkuru ya Ntare Rushatsi, uyu mwami w'i Buha yitwa rimwe Ruhinda, ubundi Ruhaga.
 
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) yagize ati: « Le roi du Buha est appelé tantôt Ruhinda, tantôt Ruhaga, ce qui ferait référence soit au Buha du Sud, soit au Buha du Nord » — arivyo bisobanura mu Kirundi ngo: "umwami w'i Buha yitwa rimwe Ruhinda, rindi Ruhaga, bishobora kuba bijanye n'uko ari Buha yo mu bumanuko canke iy'amajyaruguru."
+
 Ntitwovuga ngo iryo hindagurika ry'izina ni ikosa ryo mu migenzo. Ni ikimenyetso c'ico dukwiye kwama twibuka: iyo turiko turavuga ku bantu babayeho imbere y'inyandiko, amazina ubwayo arashobora guhinduka uko inkuru igiye ivuye ku muntu ku wundi.
 
 ---
@@ -27,6 +29,8 @@ Hari n'ikindi kibazo gikomeye tudakwiye kwirengagiza.
 Izina **Ruhinda** ntirivugwa mu Burundi gusa.
 
 Mu karere k'ibiyaga bigari — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Bachwezi/Hinda**.
+
+[FR-CITATION] 🟡 Chrétien (1981) avuga ko iyi "thèse Hinda" yakomeje kuvugwa n'abanditsi b'ubukoloni (Stuhlmann, Van der Burgt, de Heusch 1966) kugira bahuze ubwami bwa Burundi na Ruhinda w'ibiyaga bigari, ariko Chrétien ubwiwe ararwanya iyi hypothesis, ayita ikintu cavuye ku "bricolage intellectuel" bw'abanditsi b'inyuma, atari ikimenyetso c'amateka cemejwe.
 
 Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri izo ndi migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe wategetse ahantu hose.
 
@@ -67,6 +71,8 @@ Ico dushobora kuvuga neza kuri Ruhaga/Ruhinda:
 Yari umwami w'i Buha.
 
 Yari yararongoye Inamabuye, mushiki wa Jabwe na Nsoro.
+
+[FR-CITATION] 🟡 Nk'uko twabibonye muri EP03, iyi sano igaragara muri Chrétien (1993): « Ruhaga, roi du Buha qui avait épousé Namabuye fille de Namirembe ».
 
 Ni mu rugo rwiwe Ntare yakuriye, ari umwungere yambaye urusato rw'intama.
 

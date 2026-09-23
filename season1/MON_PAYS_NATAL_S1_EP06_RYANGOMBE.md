@@ -24,7 +24,7 @@ Kandi hari ikibazo kimwe kikomeye kuruta ibindi vyose:
 
 **Ryangombe na Kiranga, mbega ni umuntu umwe?**
 
-Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi.
+Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi. 🔴 *(Igitabu ca Luc de Heusch ubwaco ntikiraboneka muri iyi repo — dufise gusa aho Chrétien (1993) awuvugako mu bisobanuro biwe, atari umwandiko nyawo wa de Heusch. Rikeneye kwongera kwemezwa hakoreshejwe igitabu ciwe nyaco.)*
 
 Impamvu yatanze: bombi ni abahigi bakomeye, kandi inkuru z'urupfu rwabo zisa cane — bombi bishwe n'inyamaswa ifise amahembe. Twaraye tubibona kuri Kiranga: yishwe n'impongo. Muri Rwanda, Ryangombe na we avugwa ko yishwe agiye guhiga kwa nyuma, n'inyamaswa ifise amahembe.
 

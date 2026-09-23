@@ -20,6 +20,8 @@ Iyo nzoka ivugwa ko yavuye muri uwo mugina, igakubita umutwe kuri urwo rusato.
 
 Haca humvikana ijwi.
 
+[FR-CITATION] 🟡 Nk'uko umuvugizi Stanislas Masasu yabitangaje (yasomewe muri Chrétien, "Du hirsute au hamite," 1981), yagize ati: « le serpent nkoma... cogne la peau de sa tête... et elle résonne comme un tambour » — arivyo bisobanura mu Kirundi ngo: "inzoka nkoma... ikubita umutwe ku ruhu... hakumvikana ijwi risa n'iry'ingoma."
+
 ---
 
 Ntitwovuga ngo ijwi ryahavuye ari ijwi ry'ingoma nk'uko dufata ingoma z'uyu munsi. Iyo nkuru ni imigenzo y'akanwa, ibitswe mu bisekuru vyagiye biraheruka. Ariko ico dushobora kuvuga ni ico: ni iyo nkuru y'urwo rusato n'iyo nzoka yitwa inkoma, ni yo ifatanya n'itanguriro ry'ingoma izwi cane, ingoma izoba umutima w'ubwami bwose bukurikira:
@@ -43,6 +45,8 @@ Ariko ivyo vyose ni ibintu vyaje nyuma, biciye mu bisekuru n'ibihe vyinshi. Iyo 
 Nkoma ntiyari gusa ikibanza c'ijwi ry'ingoma.
 
 Ni na ng'aho, imigenzo ivuga, Ntare yatanguje **Umuganuro** — umunsi mukuru w'ubwami, ufitaniye isano n'isarura n'imbuto z'amasaka, uwaje kuba umuhango ukomeye w'ubwami bwose bukurikira.
+
+[FR-CITATION] 🟡 Muri iyo nkuru nyene ya Masasu (Chrétien, 1981), harangijwe hti: « C'est ainsi qu'on célèbre le muganuro depuis lors » — bivuze ko Umuganuro ubwawo uvugwa nk'aho watanguriye ng'aho, mu gihe c'iryo banga rya Nkoma.
 
 Rero Nkoma iba ahantu hahurira ibintu bibiri:
 

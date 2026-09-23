@@ -26,7 +26,9 @@ Imbere y'uko Ntare Rushatsi ahuza igihugu, hariho isi indi.
 
 Isi y'uturere.
 
-Isi y'abakuru b'utwo turere, imigenzo ikabita **"roitelets"** — abatware bato bategeka bagenda bagenda, buri wese ku murima wiwe, ku musozi wiwe, ku bantu biwe. 🔴 *(Iri jambo ntiraboneka mu masoko dufise ubu muri iyi repo — rikeneye kwongera kwemezwa mu kindi gitabo imbere yo gukoreshwa nk'ikimenyetso cemejwe.)*
+Isi y'abakuru b'utwo turere, imigenzo ikabita **"roitelets"** — abatware bato bategeka bagenda bagenda, buri wese ku murima wiwe, ku musozi wiwe, ku bantu biwe.
+
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) avuga ko abanditsi bo mu gihe c'ubukoloni bahuje abo batware bose munsi y'izina "roitelets" — yagize ati: « Jabwe et Fumbije voisinent, alors qu'un siècle et demi les séparent au moins ». Ni ukuvuga Chrétien ubwiwe ararikangira: iryo zina rihuza abantu batandukanijwe n'ibihe birenga imyaka 150 — ni igitekerezo c'abanditsi b'inyuma, atari ikimenyetso c'uko bose bari mu gihe kimwe.
 
 Ntwero ni umwe muri bo.
 
