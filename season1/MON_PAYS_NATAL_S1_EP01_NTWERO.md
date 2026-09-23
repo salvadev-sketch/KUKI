@@ -6,7 +6,7 @@ Imbere y'uko haba ubwami bumwe buhuriweko.
 
 Imbere y'uko haba umwami umwe wo kuvuga ngo ni we wa mbere.
 
-Icaryo izina ni:
+Iryo zina ni:
 
 **Ntwero.**
 
@@ -14,11 +14,11 @@ Ariko uwo yari nde koko?
 
 Ico kibazo ntikizoshobora gusubizwa vuba.
 
-Kuko Ntwero atari umuntu twiganjemwo n'inyandiko.
+Kuko Ntwero atari umuntu twamenye biciye ku nyandiko.
 
-Ni umuntu twiganjemwo n'ijwi.
+Ni umuntu twamenye biciye ku jwi.
 
-Ijwi ryagiye rica ku bantu, kuva ku muvyeyi ku mwana, kuva ku kiraro ku kindi, gushika kuri twebwe none.
+Ijwi ryagiye rica ku bantu, kuva ku muvyeyi ku mwana, kuva ku gisekuru ku gisekuru, gushika kuri twebwe none.
 
 ---
 
@@ -44,7 +44,7 @@ Iyo nkuru ivuga ko yavuye i **Bushi**, hakurya y'ikiyaga Tanganyika, akaza mu Bu
 
 Iyo tradition ihuza izina rya Ntwero n'ahantu bita **Kizingwe** — ikibanza kibitse ubwo bwibutso.
 
-Ntitwokwemeza iyi nkuru nk'iy'iyindi. Zombi ziratandukanye. Zombi ni imigenzo. Kandi zombi zibitswe n'abantu batandukanye, ahantu hatandukanye.
+Ntitwokwemeza ko iyi nkuru ari yo y'ukuri kuruta iyindi. Zombi ziratandukanye. Zombi ni imigenzo. Kandi zombi zibitswe n'abantu batandukanye, ahantu hatandukanye.
 
 Ni co gituma tudashaka guhitamwo imwe ngo ni yo y'ukuri.
 
@@ -70,7 +70,7 @@ Nsoro na we afatwa nk'uwafashe agace k'i Bututsi, cane cane ahantu hazwi nka Rya
 
 [FR-CITATION] 🟡 Nk'uko tubisoma muri thesis ya Nduwamahoro (asubiramwo Mworoha, 1987), havugwa ko: "yagérereye mu Butütsi, mu Gitânga" — bivuga ko Nsoro yaganje muri ako karere, hafi y'aho hitwa Ryansoro.
 
-Kandi biba ngombwa kwibaza ikibazo kimwe cane:
+Kandi biba ngombwa kwibaza ikibazo kimwe gikomeye:
 
 Ntwero amaze gusaza — canke agapfa —
 
@@ -122,7 +122,7 @@ Kandi mu migenzo imwe, yavuye kure cane, azana n'imvura.
 
 Ariko itariki y'ivuka ryiwe, iy'urupfu rwiwe, n'imbibe nyakuri z'ubutegetsi bwiwe — ivyo ntibizwi.
 
-Ni co gituma tudashobora kumugira "umwami wa mbere w'Uburundi" nk'uko rimwe na rimwe bivugwa mu miganzo isanzwe.
+Ni co gituma tudashobora kumugira "umwami wa mbere w'Uburundi" nk'uko rimwe na rimwe bivugwa mu migenzo isanzwe.
 
 Ntwero ni **umuryango w'inkuru**, atari inkuru yuzuye ubwayo.
 

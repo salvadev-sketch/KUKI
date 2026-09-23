@@ -228,11 +228,11 @@ Aho izina rya **Ruhaga** canke **Ruhinda** rizoca ryinjira mu nkuru.
 
 Ariko na ho nyene...
 
-hari versions.
+hari imvugo zitandukanye.
 
 Hari amazina atandukanye.
 
-Hari genealogy zitandukanye.
+Hari imiryango itandukanye.
 
 Hari ibintu bitandukanye bivugwa n'imigenzo.
 
@@ -334,11 +334,11 @@ Kandi hejuru ya vyose:
 
 Kuko hari ikibazo tutazokwigera twirengagiza.
 
-**Imigenzo mvugo si ko yama ari amateka yanditse.**
+**Imigenzo mvugo ntabwo ari amateka yanditse.**
 
 Inkuru yashizwe mu kanwa ishobora kuba ifise agaciro gakomeye cane ku bantu bayibitse.
 
-Ariko agaciro k'imigenzo si ko guca kuyigira inyandiko yemejwe.
+Ariko agaciro k'imigenzo si ko gaca kayigira inyandiko yemejwe.
 
 Ni co gituma muri **MON PAYS NATAL**, tuzokwama dutandukanya ivyiciro.
 
@@ -390,7 +390,7 @@ Ariko ntituzobashira bose hamwe ngo tubashire mu nkuru imwe gusa.
 
 Tuzobagenda umwe umwe.
 
-Uko chronology ibidutwara.
+Uko ibihe bikurikirana bibidutwara.
 
 Uko inkuru yabitswe.
 
@@ -404,7 +404,7 @@ Nta gusimbuka ibihe kubera ko umuntu umwe azoba azwi cane.
 
 Nta gusubiza inyuma umuntu mu gihe atarabonekamo.
 
-Nta kuvanga genealogy y'imigenzo n'amateka yemejwe.
+Nta kuvanga umuryango w'imigenzo n'amateka yemejwe.
 
 Tuzogenda buhoro.
 
@@ -456,7 +456,7 @@ Ni ukubaza:
 
 **Yabikuye hehe?**
 
-**Ni iyihe version?**
+**Ni iyihe mvugo?**
 
 **Ni ibiki vyemezwa n'ahandi?**
 
@@ -530,7 +530,7 @@ Tuzomugerako igihe inkuru imugejeje.
 
 Kuko muri **MON PAYS NATAL**...
 
-**chronology ni yo itwara inkuru.**
+**uko ibihe bikurikirana ni ko gutwara inkuru.**
 
 ---
 
@@ -616,7 +616,7 @@ N'ibihe vya vuba, aho abandi bantu na bo basize ikimenyetso mu mateka adufitiye 
 
 Ariko ivyo ntituzobivuga uyu musi.
 
-Tuzobigereranya uko chronology izotugejeza kuri vyo.
+Tuzobigereranya uko ibihe bizotugejeza kuri vyo.
 
 Kimwe gusa dushobora kubivugira ubu:
 
