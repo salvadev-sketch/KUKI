@@ -22,11 +22,11 @@ Ntitwovanga abo babiri:
 
 **Ririkumutima** — uwagize uruhara mu butegetsi.
 
-Ntitwovuga ngo turazi ukuri kwose. Ni ivyo BBG idutangira, kandi ni ivyo tuzogumana.
+Ntitwovuga ngo turazi ukuri kwose. Ni ivyo tuzogumana, kugeza amasoko yiyongera akatugezako insobanuro isumba iyi.
 
 ---
 
-Ubwo bushobozi bwose bwatumye habaho **regency** — ubutegetsi bw'abakuru bafasha umwami akiri muto. Ntarugera n'abandi baganwa na bo bavugwa nk'abari bafise uruhara muri ubwo butegetsi.
+Ubwo bushobozi bwose bwatumye habaho ubutegetsi bw'abakuru bafasha umwami akiri muto. Ntarugera n'abandi baganwa na bo bavugwa nk'abari bafise uruhara muri ubwo butegetsi.
 
 Mutaga IV rero yari umwami ku izina, ariko igihugu carongowe n'abandi.
 

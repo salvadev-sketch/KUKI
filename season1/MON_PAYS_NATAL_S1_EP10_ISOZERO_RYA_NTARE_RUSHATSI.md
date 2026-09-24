@@ -2,7 +2,7 @@
 
 Twaramaze kwiyumvamwo inkuru imwe.
 
-Inkuru ya Ntwero, Jabwe na Nsoro, Inamabuye, Buha n'umwungere Cambarantama — inkuru yitwa **cycle du Nkoma**, iyiganje cane mu migenzo yakusanyijwe.
+Inkuru ya Ntwero, Jabwe na Nsoro, Inamabuye, Buha n'umwungere Cambarantama — inkuru yitwa **umuzunguruko wa Nkoma**, iyiganje cane mu migenzo yakusanyijwe.
 
 Ariko si yo yonyene.
 
@@ -20,9 +20,9 @@ Ntibavuga Buha. Ntibavuga Inamabuye canke umwami w'i Buha.
 
 Bavuga ko Ntare yaturutse mu **Rwanda**, akaca ku ruzi rwitwa **Kanyaru**, hanyuma akinjira mu Burundi biciye mu buraruko. Izina ryayo ryakomotse kuri urwo ruzi ubwarwo.
 
-Ariko dutegerezwa kuvuga ukuri: iyi tradition, mu masoko dufise ubu, ntiyaraboneka mu buryo burambuye nk'uko cycle du Nkoma yaboneka. Nta nkuru irambuye tudufise ivuga ico Ntare yakoze akiri mu Rwanda, ni bande yahuye na bo, canke ni iki cabaye igihe yashika mu Burundi biciye muri iyo nzira.
+Ariko dutegerezwa kuvuga ukuri: iyi migenzo, mu masoko dufise ubu, ntiyaraboneka mu buryo burambuye nk'uko umuzunguruko wa Nkoma waboneka. Nta nkuru irambuye tudufise ivuga ico Ntare yakoze akiri mu Rwanda, ni bande yahuye na bo, canke ni iki cabaye igihe yashika mu Burundi biciye muri iyo nzira.
 
-Aya makuru make afise agaciro gakomeye nyene: avuga ko **nta version imwe gusa yigeze ivuga ku nkomoko ya Ntare Rushatsi**. Iyo tudufise ibisigo bibiri — kimwe kivuye mu buseruko, i Buha, kandi kikaba ariko cane cane cabitswe; ikindi kivuye mu buraruko, mu Rwanda, kikaba gato mu migenzo isigaye. Ntitwovuga ngo kimwe ni co "cy'ukuri" kandi ikindi ari "ikinyoma" — ni ukwibutsa gusa ko amateka y'inkomoko ya Ntare, uko yabitswe mu migenzo mvugo, atari umurongo umwe utagira ivunjwe.
+Aya makuru make afise agaciro gakomeye nyene: avuga ko **nta mvugo imwe gusa yigeze ivuga ku nkomoko ya Ntare Rushatsi**. Iyo tudufise ibisigo bibiri — kimwe kivuye mu buseruko, i Buha, kandi kikaba ariko cane cane cabitswe; ikindi kivuye mu buraruko, mu Rwanda, kikaba gato mu migenzo isigaye. Ntitwovuga ngo kimwe ni co "cy'ukuri" kandi ikindi ari "ikinyoma" — ni ukwibutsa gusa ko amateka y'inkomoko ya Ntare, uko yabitswe mu migenzo mvugo, atari umurongo umwe utagira ivunjwe.
 
 ---
 

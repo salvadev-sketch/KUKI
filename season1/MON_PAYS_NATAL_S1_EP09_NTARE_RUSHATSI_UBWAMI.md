@@ -18,7 +18,7 @@ Hari uwushira Ntare Rushatsi hagati ya 1530 na 1550, ashingiye ku rutonde rwa ke
 
 Hari abandi bamushira hagati ya 1680 na 1709, bashingiye ku bushakashatsi bugereranya ibisekuru vy'abami bakurikira — Mwezi Ndagushimiye, Mutaga Senyamwiza, Mwambutsa Mbariza, Ntare Rugamba.
 
-Hari n'itheorie ivuga ko yobayeho mu kinjana ca cumi n'itanu, ishingiye ku bijanye n'amapanga y'abami n'ahashinguwe abamikazi-mamawabo.
+Hari n'igitekerezo kivuga ko yobayeho mu kinjana ca cumi n'itanu, gishingiye ku bijanye n'amapanga y'abami n'ahashinguwe abamikazi-mamawabo.
 
 Kandi hari abashakashatsi bo muri Kaminuza y'Uburundi bavuga umwanya munini, hagati ya 1500 na 1700, bakemeza yuko amatariki y'ibintu vy'ubwami bwa mbere atandukana bivanye n'umushakashatsi.
 
@@ -64,11 +64,11 @@ Hari n'ibibanza bifatwa nk'ubuhamya bw'ahantu Ntare Rushatsi yagiyemwo.
 
 **Gashinyira i Matana** ivugwa nk'aho yavukiye. Inyandiko za leta zivuga ko ahantu hafitaniye isano n'inka z'ubwami na Karyenda. Ariko hari n'abavuze ko ico kibanza kitari kibungabunzwe ku rugero rwari rukwiye, naho gifise agaciro gakomeye k'amateka.
 
-Kandi hari **necropoles royales du Nkiko-Mugamba**, aho abami bane ba mbere — Ntare Rushatsi, Mwezi, Mutaga na Mwambutsa — bafatwa nk'abashyinguwe, i **Budandari**, mu karere ka Kabarore.
+Kandi hari **amaziko y'abami yo i Nkiko-Mugamba**, aho abami bane ba mbere — Ntare Rushatsi, Mwezi, Mutaga na Mwambutsa — bafatwa nk'abashyinguwe, i **Budandari**, mu karere ka Kabarore.
 
 [FR-CITATION] 🟡 Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashyinze abami bane ba kera."
 
-Ariko turakwiye kuvuga "imva ifatwa nk'iya Ntare Rushatsi", aho kuvuga "archaeology yemeje ko ari imva yiwe" — kuko ivyo bisaba ubushakashatsi bw'ubucukuzi bwihariye tutari dufise.
+Ariko turakwiye kuvuga "imva ifatwa nk'iya Ntare Rushatsi", aho kuvuga "ubushakashatsi bw'ivyacukuwe bwemeje ko ari imva yiwe" — kuko ivyo bisaba ubushakashatsi bw'ubucukuzi bwihariye tutari dufise.
 
 ---
 

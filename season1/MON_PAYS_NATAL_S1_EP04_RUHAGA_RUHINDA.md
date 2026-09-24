@@ -28,11 +28,11 @@ Hari n'ikindi kibazo gikomeye tudakwiye kwirengagiza.
 
 Izina **Ruhinda** ntirivugwa mu Burundi gusa.
 
-Mu karere k'ibiyaga bigari — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Bachwezi/Hinda**.
+Mu karere k'ibiyaga bigari — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Abachwezi/Hinda**.
 
 [FR-CITATION] 🟡 Chrétien (1981) avuga ko iyi "thèse Hinda" yakomeje kuvugwa n'abanditsi b'ubukoloni (Stuhlmann, Van der Burgt, de Heusch 1966) kugira bahuze ubwami bwa Burundi na Ruhinda w'ibiyaga bigari, ariko Chrétien ubwiwe ararwanya iyi hypothesis, ayita ikintu cavuye ku "bricolage intellectuel" bw'abanditsi b'inyuma, atari ikimenyetso c'amateka cemejwe.
 
-Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri izo ndi migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe wategetse ahantu hose.
+Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri izo migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe wategetse ahantu hose.
 
 Ni co gituma tuzoguma tuvuga: **Ruhaga/Ruhinda w'i Buha**, atari "Ruhinda w'ibiyaga bigari" bidasubiwemwo.
 
@@ -44,7 +44,7 @@ Ni mu rugo rwiwe Ntare yakuriye.
 
 Ni ku kirimba ciwe Ntare yabaye umwungere.
 
-Ni imbere yiwe Ntare yatanguye kwerekana ivyo bimenyetso vyose imigenzo ivuga: ikibuguzo atsinda, impfizi itsinda iy'umwami, indoto zerekana **destinée royale**.
+Ni imbere yiwe Ntare yatanguye kwerekana ivyo bimenyetso vyose imigenzo ivuga: ikibuguzo atsinda, impfizi itsinda iy'umwami, indoto zerekana **amaherezo y'ubwami**.
 
 Kandi ni we, uwo mwami, ubwo mu migenzo bavuga ko yatanguye kumva ubwoba.
 
@@ -78,7 +78,7 @@ Ni mu rugo rwiwe Ntare yakuriye, ari umwungere yambaye urusato rw'intama.
 
 Kandi ni na we, mu migenzo, agiye guhinduka umwe mu bantu Ntare azohangana na bo mbere yuko asubira mu Burundi ku bwiwe.
 
-Ariko biography yiwe yuzuye, itariki yiwe, n'imbibe nyakuri z'ubwami bwiwe — ivyo ntibizwi. Ni umuntu w'ingenzi mu nkuru ya Ntare Rushatsi, atari umuntu dushobora kuvuga ngo tumuzi neza.
+Ariko inkuru y'ubuzima bwiwe yuzuye, itariki yiwe, n'imbibe nyakuri z'ubwami bwiwe — ivyo ntibizwi. Ni umuntu w'ingenzi mu nkuru ya Ntare Rushatsi, atari umuntu dushobora kuvuga ngo tumuzi neza.
 
 ---
 
