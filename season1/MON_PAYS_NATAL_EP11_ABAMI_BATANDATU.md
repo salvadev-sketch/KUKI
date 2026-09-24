@@ -34,6 +34,10 @@ Mu rutonde rwa kera, Mutaga II ashirwa hagati ya 1680 na 1700. Ariko hari **indi
 
 Iyo nkuru ni iya **Mutaga Senyamwiza wo mu yindi chronology**, ashirwa hagati ya 1739 na 1767, uwo abashakashatsi bamwe bita Mutaga III. **Si Mutaga II wo mu rutonde rwa kera.**
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko Rujugira yashingishije umukobwa wiwe Inabizoza kuri Mutaga Senyamwiza ngo berekane ubumwe, ariko Mutaga aza gutera u Rwanda mu ntara za Nyaruguru; umurwanyi Rutanda (w'Umugesera) aramukomeretsa n'amacumu menshi.
+
+[FR-CITATION] 🟡 Chrétien (1993) ubwiwe avuga ku bibazo by'inomero z'abami: yagize ati: « Mutaga l'Ancien (Senyamwiza) ne soit crédité que de seize résidences » — arivyo bisobanura mu Kirundi ngo: "Mutaga w'Umukurambere (Senyamwiza) afise gusa amazu 16 y'ubwami." Ni ikimenyetso c'uko Chrétien ubwiwe abona ikibazo c'ivangana ry'abami basangiye izina.
+
 Ntitwoshira inkuru ya Mutaga III kuri Mutaga II, naho basangiye izina. Kuri Mutaga II ubwiwe, uko ari mu rutonde rwa kera, ico dufise ni umwanya wiwe n'igihe kigereranijwe gusa.
 
 ## Mwambutsa II Nyarushamba
@@ -45,6 +49,8 @@ Uwakurikiye Mutaga II. Nako, ntutuvange na Mwambutsa III (uzwi nka Mbariza, ~176
 Uyu na we, mu bushakashatsi bumwe, yitwa "Mwezi I Ndagushimiye" mu rundi rutonde ("modern chronology"), naho ari Mwezi III mu rutonde rwa kera. Ni co gituma tuzokoresha amazina yombi hamwe, kugira ntihagire uwibaza ko ari ikosa.
 
 Kuri we, hari amakuru make yiyongera ku bandi: imigenzo imuhuza n'abami b'u Rwanda Yuhi III Mazimpaka na Karemera Rwaka, akaba se, muri iyo genealogy, wa Mutaga Senyamwiza (uwo tuvuze hejuru). Kandi hari inkuru y'ubuhamya bw'ahantu: **Budandari**, muri Kabarore, ivugwa nk'aho hashinguwe abami bane — Ntare Rushatsi, Mwezi Ndagushimiye, Mutaga Senyamwiza, na Mwambutsa Mbariza.
+
+[FR-CITATION] 🟡 Nk'uko twabibonye muri EP09, Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashyinze abami bane ba kera."
 
 Ariko na ho, tuvuga 🟡 — ni ubuhamya bw'ahantu, atari inyandiko y'ico gihe.
 

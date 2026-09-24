@@ -44,7 +44,7 @@ Ikimenyetso: ✅ Cyishuwe | ⚠️ Cyishuwe igice | ❌ Kirekire, kigikeneye ubu
 ## D. Abami Batandatu b'Impinduka (27–32) — EP11
 
 27. Mwezi I Baridamunka yari nde, kandi ni iki dufise ku buzima bwiwe? — ✅ EP11 (izina gusa)
-28. Mutaga I Mutabazi — ni iki BBG ihagije kuri we? — ✅ EP11 (izina gusa)
+28. Mutaga I Mutabazi — ni iki amasoko dufise bihagije kuri we? — ✅ EP11 (izina gusa)
 29. Mwambutsa I Nkomati — ni iki dufise kuri we? — ✅ EP11 (izina gusa)
 30. Mutaga II Senyamwiza Mutamo atavangana gute na "Mutaga III Senyamwiza" wo mu yindi chronology? — ✅ EP11
 31. Mwambutsa II Nyarushamba atavangana gute na Mwambutsa III (Mbariza) canke Mwambutsa IV (Bangiricenge)? — ✅ EP11
@@ -89,8 +89,8 @@ Ikimenyetso: ✅ Cyishuwe | ⚠️ Cyishuwe igice | ❌ Kirekire, kigikeneye ubu
 
 - **17** — Ni gute Ntare Rushatsi yabaye umwami, uburyo nyakuri bwo kwimikwa — ❌
 - **18** — Ni kuki abantu b'i Nkoma bamwemeye nk'umwami — ❌
-- **23** — Ntare Rushatsi yapfuye gute — ❌ (BBG ubwayo ivuga "ntibizwi neza")
+- **23** — Ntare Rushatsi yapfuye gute — ❌ (amasoko dufise ubu avuga "ntibizwi neza")
 - **24** — Aho yahambwe neza — ⚠️
 - **26** — Uburyo nyakuri yahuje abatware b'uturere — ⚠️
 
-Ibi bibazo bitanu bigumye ari ibibazo bifunguye ku bushobozi bw'amasoko dufise muri BBG — si ikosa ry'ubushakashatsi, ni ivyo amasoko ubwayo adashobora gutanga.
+Ibi bibazo bitanu bigumye ari ibibazo bifunguye ku bushobozi bw'amasoko dufise ubu — si ikosa ry'ubushakashatsi, ni ivyo amasoko ubwayo adashobora gutanga.

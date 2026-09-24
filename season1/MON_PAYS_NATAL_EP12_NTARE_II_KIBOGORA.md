@@ -12,7 +12,7 @@ Izina ryiwe: **Ntare II Kibogora.**
 
 ## Izina rifise ivyifuzo bibiri
 
-Mu nyandiko za Alexis Kagame, umuhinga yize imivugo y'abami b'u Rwanda, uyu mwami avugwa ku mazina abiri: **Kibogora**, canke, mu bindi bisigo, **Bijanyali**.
+Mu nyandiko za Alexis Kagame, umuhinga yize imivugo y'abami b'u Rwanda, uyu mwami avugwa ku mazina abiri: **Kibogora**, canke, mu bindi bisigo, **Bijanyali**. 🔴 *(Igitabu ca Alexis Kagame ubwaco ntikiraboneka muri iyi repo — iri zina "Bijanyali" rikeneye kwongera kwemezwa.)*
 
 Ivyo bituma tubona ikintu gikomeye: n'izina ry'umwami ubwaryo rishobora kugira variants, uko imigenzo yagiye igenda.
 
@@ -29,6 +29,8 @@ Rwagitare, umwami w'u Bugesera, avugwa nk'uwahanganye na Ntare Kibogora w'Uburun
 Hari n'iyindi version ivuga ko, inyuma y'iyo ntambara, haje amasezerano y'amahoro n'uguhanahana imico hagati y'ibihugu bibiri. Ntitwovuga rimwe gusa "yaratsinzwe, birarangira" — imigenzo ivuga ko haciye hagakurikira ibindi.
 
 Ariko dutegerezwa kubivuga uko bikwiye: iyi nkuru ntiyavuye ku nyandiko yo mu gihe ca Ntare II ubwiwe. Yavuye mu **migenzo y'amateka y'u Rwanda**, iza kwandikwa n'abashakashatsi nyuma y'imyaka myinshi. Ni co gituma tudashobora kuvuga "mu mwaka kanaka, Ntare II yateye u Bugesera" — ahubwo tuvuga "imigenzo y'amateka y'u Rwanda ivuga ko."
+
+[FR-CITATION] 🟡 Nduwamahoro (thesis, asubiramwo Mworoha, 1987:115) avuga ko "amasoko y'i Rwanda... avuga ko mu gice ca mbere c'ikinjana ca 17, ingoma y'Ubugesera yaganzwa na Ntare Kibogora yari abangabanganywe na Ruganzu Ndori, umwami w'Urwanda." Iyi soko iduha n'igihe kigereranijwe: **intango y'ikinjana ca 17**.
 
 ---
 

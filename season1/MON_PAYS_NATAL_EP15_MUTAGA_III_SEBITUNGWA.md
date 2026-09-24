@@ -20,6 +20,8 @@ Umuhinga Alexis Kagame yaranditse ko Mutaga III Sebitungwa yari umwuzukuru wa Nt
 
 Mutaga Senyamwiza yarongoye **Inabizoza**, umukobwa wa Cyirima Rujugira.
 
+[FR-CITATION] 🟡 Nk'uko twabibonye muri EP11, Nduwamahoro (thesis) avuga ko Rujugira yashingishije Inabizoza kuri Mutaga Senyamwiza ngo berekane ubumwe hagati y'ibihugu bibiri, ariko Mutaga aza gutera u Rwanda; umurwanyi Rutanda (w'Umugesera) aramukomeretsa n'amacumu menshi mu ntambara.
+
 Ivyo bivuga ko hari ubucuti bw'ubukwe hagati y'ibwami bibiri: Uburundi na Rwanda, biciye ku muryango w'abami.
 
 Ariko ubwo bukwe ntibwabujije ko habaho intambara.

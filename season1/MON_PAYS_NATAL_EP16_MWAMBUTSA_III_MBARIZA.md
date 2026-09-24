@@ -66,6 +66,8 @@ Ntitwovuga "Mwambutsa Mbariza yiyahuye." Tuvuga: **mu migenzo yanditswe, havugwa
 
 Inyuma y'urupfu rwiwe, ingoma yagiye kuri **Ngambiri**, uwafashe izina rya **Ntare Rugamba** — uwo, mu genealogy imwe, avugwa nk'umuhungu wiwe. Ariko genealogy ziratandukanye, ni co gituma tudashaka kwinjiza urwo rutonde nk'ukuri kwemejwe.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) yagize ati: "akiri umuyabaga yitwa Ngambiri. Ntare Rugamba yabaye umwami akomeye cane" — bikemeza ko "Ngambiri" ari ryo zina Ntare Rugamba yari afise akiri muto, imbere yo kwitwa "Rugamba" kubera ubutwari bwiwe ku rugamba.
+
 Uwo Ntare Rugamba ni we azoba umwami w'ingenzi cane muri urwo rutonde — uwo tuzomuha season yiwe bwite.
 
 ---

@@ -66,6 +66,8 @@ Ariko na ho, tuvuga 🟡: nta soko ryigenga twaronse ryemeza ko ari we yatanguje
 
 Hari ikintu kimwe tudakwiye kwibagirwa: iyi migenzo yose — Inanzerwe, Ngaye, Bakamakare — ivuye mu soko rimwe, ryitwa IWACU, ryerekeza ku mvugo z'amateka. Ntidufise ibindi bisoko byigenga bibemeza. Ni co gituma tugumya kuvuga "imigenzo ivuga," atari "vyabaye."
 
+[FR-CITATION] 🟡 Iyi nkuru yose (Inanzerwe, Ngaye, Bakamakare) ivuye ku kinyamakuru IWACU, ryerekeza ku mvugo z'amateka — ntawundi mwanditsi (Chrétien, Nduwamahoro, Butoyi) uyivuga muri iyi repo. Igomba kwongera kwemezwa niba dushaka kuyongera ku rwego rwo hejuru.
+
 Kandi hari amasoko amwe ku rubuga rwa interineti avanga Mwezi Nyaburunga n'uwundi mwami wo mu yindi chronology ("Mwezi I Nyaburunga 1457-1490"). Ntitwovanga ivyo bihe.
 
 ---

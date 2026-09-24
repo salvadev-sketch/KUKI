@@ -22,9 +22,15 @@ Inkuru izwi cane ivuga: Ntare III Kivimira atera u Bugesera; **Nsoro III Nyabare
 
 Nyabarega yagerageje kuronka ubufasha bw'umwami w'u Rwanda, **Yuhi III Mazimpaka**, ngo bamurwanye. Ariko Mazimpaka ntiyabimwemereye, kubera imimaro yari hagati y'ibihugu bibiri.
 
+[FR-CITATION] 🟡 Nk'uko bivugwa muri Vansina (2004, urup. 112, biciye ku ncamake ya Wikipedia "Kingdom of Bugesera"): inyuma y'uko Ntare atsinze Nsoro Nyabarega, uyu "fled north... took refuge with Rwandan mwami Yuhi III Mazimpaka. When Ntare threatened to invade Rwanda unless Nsoro was extradited, the latter was expelled from the Rwandan capital but allowed to go free" — arivyo bisobanura mu Kirundi ngo: "yahunze mu bumanuko... aronka ubuhungiro kwa Yuhi III Mazimpaka. Ntare amaze gutera intabaza y'uko azotera u Rwanda Nsoro atatanzwe, uyu araboneka gusohorwa mu gisagara ariko akarekurwa nka ntagenda."
+
 Kivimira ntiyahagaritse. Yarabandanije ibitero.
 
+🟡 *(Icagaragaye: Bugesera yaragiye igabanuka buhoro buhoro mu myaka myinshi. Iyi ntambara ya Kivimira/Nsoro Nyabarega isa n'iy'intango y'ico gihe (bivugwa hafi 1680-1709); indi soko (Nduwamahoro/Mworoha) ivuga ku Ntare Rugamba n'"isozero" rya Bugesera (1796-1801) — bishoboka ko ari abami babiri batandukanye basangiye izina "Nsoro," nk'uko byari akamenyero kuri aba bami b'i Bugesera.)*
+
 Ariko dutegerezwa kubivuga uko bikwiye: izi nkuru zivuye mu **migenzo y'amateka yanditswe nyuma**, si inyandiko zo mu gihe Kivimira yabayeho.
+
+[FR-CITATION] 🔴 **Ikibazo gikomeye**: Nduwamahoro (thesis, asubiramwo Mworoha 1987 na Guillet/Ndayishingunje 1987) avuga incuro nyinshi ko ari **Ntare RUGAMBA** (atari Kivimira) yarigaruriye "Ubugesera bwa Nsoro Nyabarega," ashira ico gikorwa hagati ya 1796-1801 — ni ukuvuga ikinjana ca **19**, atari ica 17! Ubushakashatsi bw'inyongera (Wikipedia, ishingiye kuri Ndoricimpa & Guillet, 1984) bwerekana ko ubwami bwa Bugesera bwaguye burundu mu 1799, naho Nsoro Nyabarega ubwiwe yaganje igihe kirekire (ikinjana ca 17-18, "fl. 17th/18th century" — igihe kitagaragazwa neza). Ni ukuvuga bishoboka ko: (a) Kivimira yahanganye na Nyabarega hakiri kare mu ngoma ye ndende (uko Kagame/imigenzo y'u Rwanda ibivuga), naho Rugamba ari we watanguje iherezo rya burundu (uko Nduwamahoro/Mworoha babivuga) — bakaba ari ibintu bibiri bitandukanye, atari kimwe; (b) canke ni ikindi kimwe mu "amalgames spatio-temporels" Chrétien yigeze kuvuga muri EP01/EP09. Ntitwashoboye kwemeza neza uwundi muri ibi bibiri.
 
 ---
 
