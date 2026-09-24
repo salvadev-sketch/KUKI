@@ -36,19 +36,19 @@ Inamabuye yari amaze kurongorwa n'umwami w'i Buha — mu masoko amwe yitwa **Ruh
 
 Ni co gituma, igihe Ntare yagombaga kwakirwa n'umuntu wo mu muryango, kure y'intambara ya Jabwe na Nsoro, Buha yaba ahantu heza: Inamabuye yari asanzwe muri uwo muryango w'ubutegetsi.
 
-Inamabuye rero, ku ruhande rwa Jabwe, aba **tante** wa Ntare — mushiki wa se.
+Inamabuye rero, ku ruhande rwa Jabwe, aba **nyirasenge** wa Ntare.
 
 ---
 
-Ariko ntitwihuture: iyi genealogy ubwayo ntabwo ari yo yonyene yigeze kubikwa.
+Ariko ntitwihuture: iyi nkuru y'umuryango ubwayo ntabwo ari yo yonyene yigeze kubikwa.
 
 Hari inyandiko ikuru, iyitwa Aequatoria (1958), ivuga urundi rurondogoro: **Ntwero → Nsoro → Jabwe → Inamabuye**, aho Inamabuye we yarongowe n'umwami w'i Ha, atari i Buha.
 
-Kubona genealogy zitandukanye nk'izi, twibuka ikintu kimwe: imigenzo mvugo ntikwiye kuboneka nk'urutonde rumwe rutagira ivunjwe. Iyo tradition ivuye mu bisekuru vy'abantu batandukanye, hafi hafi buri wese arungika ivyo yumvise uko byahereye ku wamubanjirije. Ni co gituma tuzoguma tuvuga: **"muri version ikomeye"**, atari **"ni uko koko byagenze."**
+Kubona inkuru z'imiryango zitandukanye nk'izi, twibuka ikintu kimwe: imigenzo mvugo ntikwiye kuboneka nk'urutonde rumwe rutagira ivunjwe. Iyo migenzo ivuye mu bisekuru vy'abantu batandukanye, hafi hafi buri wese arungika ivyo yumvise uko byahereye ku wamubanjirije. Ni co gituma tuzoguma tuvuga: **"muri imvugo ikomeye"**, atari **"ni uko koko byagenze."**
 
 ---
 
-Muri version ikomeye, rero, Ntare arajanwa i Buha.
+Muri imvugo ikomeye, rero, Ntare arajanwa i Buha.
 
 Aho, ntiyaje kwitwa umwana w'umwami cane, ngo agire ubuzima bw'ubwami.
 
@@ -76,7 +76,7 @@ Bavuga ko impfizi yiwe, mu matongo, itsinda iy'umwami.
 
 Bavuga ko umwami w'i Buha yararose ikintu kimuha ikimenyetso c'uko uwo mwungere afise amaherezo adasanzwe.
 
-Hari na versions ziravuga ko **abapfumu**, bamwe baturutse mu Burundi ubwabwo, bazana amazina atandukanye — Bajiji, Nyamigogo, Ndwano, Runyota, Mitimigamba, Shaka — kandi bakaza gushakisha uwo mwami mushasha wari agiye kuboneka.
+Hari na zindi mvugo ziravuga ko **abapfumu**, bamwe baturutse mu Burundi ubwabwo, bazana amazina atandukanye — Bajiji, Nyamigogo, Ndwano, Runyota, Mitimigamba, Shaka — kandi bakaza gushakisha uwo mwami mushasha wari agiye kuboneka.
 
 [FR-CITATION] 🟡 Nk'uko tubisoma mu gitabo canditswe na Jean-Pierre Chrétien, citwa *Burundi, l'histoire retrouvée* (1993), yagize ati: « il avait des devins: Mbibe, Nyamigogo et Ndwano » — arivyo bisobanura mu Kirundi ngo: "yari afise abapfumu: Mbibe, Nyamigogo na Ndwano," ari bo bajanye umwana i Buha.
 
@@ -100,7 +100,7 @@ Inzira yiwe ivugwa ko yaciye:
 
 Ni kuri Nkoma ubwo, ni ho inkuru y'ingoma izwi cane, iyitwa **Karyenda**, izotangura.
 
-Ariko uruhara nyarwo rwa Inamabuye muri iyo mpunga — nimba yari azi, nimba yaramufashije, nimba yaramuburiye — ivyo biratandukana bivanye na version. Hari izindi zivuga ko Inamabuye ari we yamufashije guhisha ubwoko bwiwe imbere y'uko umwami amenya inyifato yiwe. Ntitwovuga ivyo nk'ukuri kwemejwe.
+Ariko uruhara nyarwo rwa Inamabuye muri iyo mpunga — nimba yari azi, nimba yaramufashije, nimba yaramuburiye — ivyo biratandukana bivanye na mvugo. Hari izindi zivuga ko Inamabuye ari we yamufashije guhisha ubwoko bwiwe imbere y'uko umwami amenya inyifato yiwe. Ntitwovuga ivyo nk'ukuri kwemejwe.
 
 ---
 
@@ -112,9 +112,9 @@ Yari umukobwa wa Ntwero, mushiki wa Jabwe na Nsoro.
 
 Yari umugore w'umwami w'i Buha.
 
-Muri iyo tradition, ni we watumye Ntare aronka aho kuja igihe umuryango wiwe wari umaze kwicana.
+Muri iyo migenzo, ni we watumye Ntare aronka aho kuja igihe umuryango wiwe wari umaze kwicana.
 
-Ntayo tuzi ku matariki yiwe. Nta biography yuzuye dufise. Kandi ivyo yakoze mu vy'ukuri kugira ngo afashe Ntare, ntibizwi neza — bivanye na version.
+Ntayo tuzi ku matariki yiwe. Nta nkuru y'ubuzima bwiwe yuzuye dufise. Kandi ivyo yakoze mu vy'ukuri kugira ngo afashe Ntare, ntibizwi neza — bivanye na mvugo.
 
 Ariko nta Inamabuye, ntawuzi ico Ntare yoba yarabaye igihe umuryango we wari ugice-gice biciye ku ntambara ya Jabwe na Nsoro.
 

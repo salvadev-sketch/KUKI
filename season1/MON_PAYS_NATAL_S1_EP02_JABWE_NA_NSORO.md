@@ -42,7 +42,7 @@ Ariko Nsoro ntariho.
 
 Ni umugore wiwe wenyene ari mu rugo.
 
-Iyo si inkuru y'umuntu asanzwe aje kwugama. Jabwe yinjiye mu rugo rw'umuntu afise abantu, ubutaka, inka, n'ubutegetsi. Yinjiye mu **domain ya Nsoro**.
+Iyo si inkuru y'umuntu asanzwe aje kwugama. Jabwe yinjiye mu rugo rw'umuntu afise abantu, ubutaka, inka, n'ubutegetsi. Yinjiye mu **butegetsi** bwa Nsoro.
 
 Kandi imigenzo ivuga ko ico gitondo, mu rugo rwa Gashinyira, hari ikintu kizoba kigiye guhindura amateka.
 
@@ -60,7 +60,7 @@ Uwo mwana ni:
 
 Aha dushireho umurongo utukura, nk'uko dukwiye kubigenza igihe cose:
 
-Nta nyandiko yo mu gihe ca Jabwe na Nsoro dufise yemeza ko ivyo vyabaye koko uko bivugwa. Ni **oral tradition**, ibitswe mu kanwa, biciye mu bisekuru vyinshi.
+Nta nyandiko yo mu gihe ca Jabwe na Nsoro dufise yemeza ko ivyo vyabaye koko uko bivugwa. Ni **imigenzo mvugo**, ibitswe mu kanwa, biciye mu bisekuru vyinshi.
 
 Kandi ntibiba biteye kwibaza:
 
@@ -70,7 +70,7 @@ Ku ruhande rw'umubiri, ivyo bivugwa, ni Jabwe.
 
 Ku ruhande rw'umuryango, uwo mwana yavutse mu rugo rwa Nsoro, ku mugore wa Nsoro.
 
-Ku ruhande rwa genealogy, Jabwe na Nsoro bombi ni abahungu ba Ntwero.
+Ku ruhande rw'**umuryango**, Jabwe na Nsoro bombi ni abahungu ba Ntwero.
 
 Ivyo bivuze ko Ntare, uko avuka gusa, asanzwe afitaniye isano n'amashami yombi y'umuryango umwe wari umaze imyaka uhangana.
 
@@ -88,7 +88,7 @@ Ntare arajayo.
 
 Ariko Jabwe **aramugumana**, ntiyemera ko Ntare asubira kwa Nsoro.
 
-Ni ho amakimbirane hagati y'abavukana arushiriza gukomera, agahinduka ikintu kitakigira insubizo yoroshe.
+Ni ho amatati hagati y'abavukana yarushiriza gukomera, agahinduka ikintu kitagira umuti woroshe.
 
 ---
 
@@ -104,7 +104,7 @@ Ni ho haturuka umugani ukiriho gushika none:
 
 Mu Kirundi, kunyika ni ukuzimira, kurohama mu kintu — umuntu akagenda ntamenyekane aho ari.
 
-Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari version ivuga ko azimiye, izindi zikavuga ko yapfuye mu ntambara. Ico dushobora kuvuga neza ni ico: bararwanye, Nsoro akazimira i Gitanga, kandi izina ryiwe ryaje kuguma mu rurimi rw'ikirundi nk'umugani, uwundi na uwundi akawukoresha ata n'aho aribuka Nsoro ubwiwe.
+Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari **imvugo** ivuga ko azimiye, izindi zikavuga ko yapfuye mu ntambara. Ico dushobora kuvuga neza ni ico: bararwanye, Nsoro akazimira i Gitanga, kandi izina ryiwe ryaje kuguma mu rurimi rw'ikirundi nk'umugani, uwundi na uwundi akawukoresha ata n'aho aribuka Nsoro ubwiwe.
 
 [FR-CITATION] 🟡 Nk'uko thesis ya Nduwamahoro ibivuga (asubiramwo Rodegem, 1965:94; Mworoha, 1987:106), Nsoro yatsinzwe muri iyo ntambara "acaazimanganira mu Gitânga" — kandi abakomotse kuri we baritwa Abasoro.
 
