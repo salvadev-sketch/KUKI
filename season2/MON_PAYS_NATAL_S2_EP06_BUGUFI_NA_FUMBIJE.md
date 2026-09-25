@@ -12,6 +12,8 @@ Uwundi yishwe n'ikizinga.
 
 Inyuma y'intambara ya Bugesera, Ntare Rugamba yashinze umutware witwa **Fumbije**, amuha kuganza akarere ka **Bweru** hamwe n'igice ca Bugesera.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko Fumbije "yatwara Ubweru hamwe n'igice c'Ubugesera inyuma yaho Nsoro Nyabarega anyikiye" — ashirwa hagati ya 1820 na 1840.
+
 Yaramwizigiye cane: yamuhaye n'umukobwa wiwe mu bugore.
 
 Ariko Fumbije yaje kwigomeka.
@@ -23,6 +25,8 @@ Ntare Rugamba aca arungika umugabo umwe, uvuye i **Kumoso**, akorera umwami, aja
 Fumbije yicaye ikizinga ku kuboko.
 
 Aca aratumbagira, aracika, arapfa.
+
+[FR-CITATION] 🟡 Nduwamahoro (thesis, asubiramwo Mworoha 1987:154-155; Guillet & Ndayishingunje 1987:30-185; Vansina 1972:25-26) avuga ko "umugabo wo mu Kumoso yatumwe n'umwami kwa Fumbije, aca amuha umuringa, awambaye ku kuboko, guca gutangura kuvyimba, gukecagurika... ahava arapfa." Ni ivyemezo bikomeye, kubera ko abahinga batatu batandukanye bahurira kuri iyi nkuru.
 
 Iyi ni imwe mu nkuru zizwi cane, ariko ni imigenzo — ntitwoyifata nk'inyandiko y'ico gihe yemeza uko byagenze mu buryo bunononsoye.
 

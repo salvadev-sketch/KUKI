@@ -36,6 +36,8 @@ Ntare Rugamba yamuhaye akarere ka **Bweru**, mu buraruko bushira ubuseruko, kugi
 
 Ico Ndivyariye yaje kuba inyuma y'urupfu rwa se — uruhara rwiwe rukomeye mu ntango y'ingoma ya Mwezi Gisabo, n'uko yaje kubura — ni inkuru ya Mwezi ubwiwe. Tuzoyiraba, uko iri yose, mu **Season 3**.
 
+[FR-CITATION] 🟡 Royalark.net (asubiramwo genealogy z'ingoma) yagize iti: "Ntare Ndivyariye... Regent for his younger brother, Mwami Mwezi IV Gisabo, 1852-1860... He was killed by Mwezi, 1860" — arivyo bisobanura mu Kirundi ngo: "Ndivyariye yaserukiye murumuna wiwe Mwezi IV Gisabo (1852-1860)... yishwe na Mwezi mu 1860."
+
 ---
 
 ## Gutanga uturere
@@ -57,6 +59,8 @@ Amasoko menshi yemeza ko iyi nzego yakomejwe cane mu ngoma ya Ntare Rugamba, itu
 ## Ikinyuranyo ca Newbury
 
 Ariko David Newbury atubwira ikintu gikomeye, agikoresha mu buryo butomoye cane:
+
+🔴 *(Iki gitekerezo cashizwe ku izina rya David Newbury ntikiraboneka mu masoko dufise ubu, canke nashoboye kuronka kuri internet — kigomba kwongera kwemezwa ku gitabo ciwe nyaco.)*
 
 Ntare yari afise ubushobozi bwo gushira abahungu biwe mu turere.
 
