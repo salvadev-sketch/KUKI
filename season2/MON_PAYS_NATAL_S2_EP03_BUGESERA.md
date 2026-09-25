@@ -52,7 +52,7 @@ Igice kinini caragiye munsi y'Uburundi. Igice co mu buraruko na co caragiye muns
 
 Amasoko amwe (avuye mu migenzo y'u Rwanda) avuga ko umwami w'inyuma wa Bugesera, **Nsoro Nyamugeta**, yagerageje kugaruka mu myaka yakurikiye, kugira asubire kubona ubwami bwiwe — ariko yaje gufatwa, arishwe. Ni ho, muri iyo migenzo, Bugesera yaguma yagabanijwe burundu.
 
-Turasaba ubwitonzi: iyo detail iva mu **migenzo y'u Rwanda**, atari iy'Uburundi — ni co gituma tuzoyishira 🟡, tuyivuze nk'ivyo abandi bavuga, atari ukuri kwemejwe ku ruhande rw'Uburundi.
+Turasaba ubwitonzi: iyo nsobanuro iva mu **migenzo y'u Rwanda**, atari iy'Uburundi — ni co gituma tuzoyishira 🟡, tuyivuze nk'ivyo abandi bavuga, atari ukuri kwemejwe ku ruhande rw'Uburundi.
 
 ---
 

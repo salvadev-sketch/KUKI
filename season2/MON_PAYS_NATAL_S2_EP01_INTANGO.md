@@ -12,9 +12,9 @@ Ngambiri rero yavutse mu muryango w'ubwami, ariko nk'uko bimaze kuba akamenyero 
 
 Yatanguye ari umwana.
 
-Imigenzo ivuga ko yatanguye ingoma akiri muto cane, ni co gituma habaye **regency** — ubutegetsi bw'abandi bamufasha gutwara igihugu, kugeza akuze.
+Imigenzo ivuga ko yatanguye ingoma akiri muto cane, ni co gituma habaye ubutegetsi bw'abandi bamufasha gutwara igihugu, kugeza akuze.
 
-Iyi ni inkuru dusanzwe tuyibona mu bami benshi bo muri urwo rutonde. Umwana → umwami akiri muto → regency → hanyuma umwami akura, agatangura gutwara ku giti ciwe.
+Iyi ni inkuru dusanzwe tuyibona mu bami benshi bo muri urwo rutonde. Umwana → umwami akiri muto → ubutegetsi bw'abamufasha → hanyuma umwami akura, agatangura gutwara ku giti ciwe.
 
 Ariko kuri Ngambiri, ico gice ca nyuma ntikizoba nk'ivy'abandi.
 

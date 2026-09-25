@@ -54,7 +54,7 @@ Amasoko menshi yemeza ko iyi nzego yakomejwe cane mu ngoma ya Ntare Rugamba, itu
 
 ---
 
-## Paradox ya Newbury
+## Ikinyuranyo ca Newbury
 
 Ariko David Newbury atubwira ikintu gikomeye, agikoresha mu buryo butomoye cane:
 
@@ -62,7 +62,7 @@ Ntare yari afise ubushobozi bwo gushira abahungu biwe mu turere.
 
 Ariko ntiyari afise ubushobozi buhagije bwo kubinjiza bose mu butegetsi bukomeye bwo hagati.
 
-### Iyo ni paradox nziza cane:
+### Iki ni ikinyuranyo gikomeye cane:
 
 **Ntare Rugamba yubatse ubwami bunini → ariko ababasha yahaye abahungu biwe bazotuma habaho uguhiganwa nyuma yiwe.**
 
