@@ -30,8 +30,6 @@ Kivimira ntiyahagaritse. Yarabandanije ibitero.
 
 Ariko dutegerezwa kubivuga uko bikwiye: izi nkuru zivuye mu **migenzo y'amateka yanditswe nyuma**, si inyandiko zo mu gihe Kivimira yabayeho.
 
-[FR-CITATION] 🔴 **Ikibazo gikomeye**: Nduwamahoro (thesis, asubiramwo Mworoha 1987 na Guillet/Ndayishingunje 1987) avuga incuro nyinshi ko ari **Ntare RUGAMBA** (atari Kivimira) yarigaruriye "Ubugesera bwa Nsoro Nyabarega," ashira ico gikorwa hagati ya 1796-1801 — ni ukuvuga ikinjana ca **19**, atari ica 17! Ubushakashatsi bw'inyongera (Wikipedia, ishingiye kuri Ndoricimpa & Guillet, 1984) bwerekana ko ubwami bwa Bugesera bwaguye burundu mu 1799, naho Nsoro Nyabarega ubwiwe yaganje igihe kirekire (ikinjana ca 17-18, "fl. 17th/18th century" — igihe kitagaragazwa neza). Ni ukuvuga bishoboka ko: (a) Kivimira yahanganye na Nyabarega hakiri kare mu ngoma ye ndende (uko Kagame/imigenzo y'u Rwanda ibivuga), naho Rugamba ari we watanguje iherezo rya burundu (uko Nduwamahoro/Mworoha babivuga) — bakaba ari ibintu bibiri bitandukanye, atari kimwe; (b) canke ni ikindi kimwe mu "amalgames spatio-temporels" Chrétien yigeze kuvuga muri EP01/EP09. Ntitwashoboye kwemeza neza uwundi muri ibi bibiri.
-
 ---
 
 ## Inka Gitare

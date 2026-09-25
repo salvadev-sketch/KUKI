@@ -46,7 +46,7 @@ Nkoma ntiyari gusa ikibanza c'ijwi ry'ingoma.
 
 Ni na ng'aho, imigenzo ivuga, Ntare yatanguje **Umuganuro** — umunsi mukuru w'ubwami, ufitaniye isano n'isarura n'imbuto z'amasaka, uwaje kuba umuhango ukomeye w'ubwami bwose bukurikira.
 
-[FR-CITATION] 🟡 Muri iyo nkuru nyene ya Masasu (Chrétien, 1981), harangijwe hti: « C'est ainsi qu'on célèbre le muganuro depuis lors » — bivuze ko Umuganuro ubwawo uvugwa nk'aho watanguriye ng'aho, mu gihe c'iryo banga rya Nkoma.
+[FR-CITATION] 🟡 Muri iyo nkuru nyene ya Masasu (Chrétien, 1981), harangijwe hati: « C'est ainsi qu'on célèbre le muganuro depuis lors » — bivuze ko Umuganuro ubwawo uvugwa nk'aho watanguriye ng'aho, mu gihe c'iryo banga rya Nkoma.
 
 Rero Nkoma iba ahantu hahurira ibintu bibiri:
 
