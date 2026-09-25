@@ -12,7 +12,7 @@ Uyu ni umwami afise inkuru — intambara, uturere yigaruriye, umwami wo mu Rwand
 
 Mu bushakashatsi bw'amateka y'u Rwanda, Ntare III Kivimira avugwa nk'umwami w'Uburundi wagaba ibitero ku bihugu bibanyi, cane cane **u Bugesera**. Umuhinga Alexis Kagame amwandika nk'umwami wateye Bugesera. Hari abamwita **"guerrier et conquérant d'envergure"** — umwami w'intambara no kwagura ububasha.
 
-Uruhara rwiwe mu kwagura ubutegetsi bw'Uburundi rufise ibimenyetso vyinshi kuruta abami bamubanjirije — ni co gituma dossier yiwe ari iy'ingenzi kuruta iya benshi muri bo.
+Uruhara rwiwe mu kwagura ubutegetsi bw'Uburundi rufise ibimenyetso vyinshi kuruta abami bamubanjirije — ni co gituma inkuru yiwe ari iy'ingenzi kuruta iya benshi muri bo.
 
 ---
 
@@ -56,11 +56,11 @@ Iyi nkuru na yo ni imigenzo, ivuye mu masoko y'amateka y'u Rwanda, atari inyandi
 
 ---
 
-## Hari versions zibiri ku rupfu rwiwe
+## Hari imvugo zibiri ku rupfu rwiwe
 
-**Version A** — amata ya Gitare amwica.
+**Imvugo A** — amata ya Gitare amwica.
 
-**Version B** — apfa mu ntambara n'u Rwanda.
+**Imvugo B** — apfa mu ntambara n'u Rwanda.
 
 Ntitwemeza imwe muri izo nk'ukuri kw'amateka. Zombi ni imigenzo, kandi zombi zibitswe n'amasoko atandukanye.
 
@@ -70,7 +70,7 @@ Ntitwemeza imwe muri izo nk'ukuri kw'amateka. Zombi ni imigenzo, kandi zombi zib
 
 Nk'uko bimaze kuba akamenyero muri iyi documentaire: hari **urutonde rwa kera**, rushira Kivimira hagati ya 1720 na 1750; hari n'**urundi rutonde rwa none**, rumushira hagati ya 1680 na 1709. Itandukaniro ni rirenga imyaka 40.
 
-Kandi izina "Kivimira" ryonyene rifise ivyongereza: mu zindi genealogy, amazina menshi ayongerekwako — **Savuyimba Semunganzashamba Rushatsi**. Ntitwovuga ngo ayo mazina yose ni ay'umuntu umwe yemejwe n'inyandiko z'ico gihe.
+Kandi izina "Kivimira" ryonyene rifise ivyongereza: mu zindi miryango, amazina menshi ayongerekwako — **Savuyimba Semunganzashamba Rushatsi**. Ntitwovuga ngo ayo mazina yose ni ay'umuntu umwe yemejwe n'inyandiko z'ico gihe.
 
 ---
 

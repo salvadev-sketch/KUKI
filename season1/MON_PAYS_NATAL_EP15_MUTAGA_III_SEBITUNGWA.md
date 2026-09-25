@@ -40,9 +40,9 @@ Ni i Nkanda Mutaga III yaguye mu ntambara.
 
 Imigenzo y'u Rwanda ivuga ko yishwe n'umurwanyi w'Umugesera yitwa **Rutanda**, umwambi ukamukubita mu ruhanga.
 
-Ariko dutegerezwa gushira umurongo: iyi detail y'umwambi ntituyifate nk'ikintu cemejwe 100%; ni imigenzo y'amateka.
+Ariko dutegerezwa gushira umurongo: iyi nsobanuro y'umwambi ntituyifate nk'ikintu cemejwe 100%; ni imigenzo y'amateka.
 
-Kandi hari sources zimwe zivuga ko yapfiriye **Butare**, atari Nkanda. Ntitwovuga rimwe gusa ngo ni Nkanda — tuvuga: imigenzo myinshi imuhuza n'urupfu rw'i Nkanda, ariko hari amasoko amwe avuga Butare, rero ahantu nyaho yapfiriye harimwo ukudahuza.
+Kandi hari amasoko amwe avuga ko yapfiriye **Butare**, atari Nkanda. Ntitwovuga rimwe gusa ngo ni Nkanda — tuvuga: imigenzo myinshi imuhuza n'urupfu rw'i Nkanda, ariko hari amasoko amwe avuga Butare, rero ahantu nyaho yapfiriye harimwo ukudahuza.
 
 ---
 
@@ -56,17 +56,17 @@ Naho urupfu rwa Mutaga III rwari rukomeye, Kagame ubwiwe yerekana ko urupfu rwiw
 
 ## Ubugari bw'ubwami
 
-Mu gihe ciwe, imigenzo ivuga ko Uburundi bwari bwageze ku nkengera z'Akanyaru mu buraruko, naho mu burengero butari bwarashika Imbo, kandi mu buseruko imbibe zari hafi y'ikiyaga ca Ruvubu. Iyi ni reconstruction y'amateka, ivuye mu migenzo, atari ikarata yemejwe n'inyandiko z'ico gihe.
+Mu gihe ciwe, imigenzo ivuga ko Uburundi bwari bwageze ku nkengera z'Akanyaru mu buraruko, naho mu burengero butari bwarashika Imbo, kandi mu buseruko imbibe zari hafi y'ikiyaga ca Ruvubu. Iyi ni igereranyo y'amateka, ivuye mu migenzo, atari ikarata yemejwe n'inyandiko z'ico gihe.
 
 ---
 
 ## Ico dutazi
 
-Aho yahambwe ntibisobanutse neza — hari abamuhuza na Budandari, ariko iyo mva ihuzwa n'izindi chronology, ntidushobora kuyivuga nk'iyemejwe. Abana biwe bavugwa muri genealogy imwe (harimwo Mbonyingingo), ariko ntituzofata urwo rutonde nk'amateka yemejwe.
+Aho yahambwe ntibisobanutse neza — hari abamuhuza na Budandari, ariko iyo mva ihuzwa n'urundi rutonde rw'ibihe, ntidushobora kuyivuga nk'iyemejwe. Abana biwe bavugwa muri nkuru y'umuryango imwe (harimwo Mbonyingingo), ariko ntituzofata urwo rutonde nk'amateka yemejwe.
 
 ---
 
-Mutaga III Sebitungwa ni umwe mu bami bafise dossier ikomeye kurusha iy'abo twize kera — Mwezi I, Mutaga I, Mwambutsa I, Mutaga II, na Mwambutsa II. Inkuru yiwe ihuza urukundo n'intambara, ubucuti n'amakimbirane, mu buryo budasanzwe.
+Mutaga III Sebitungwa ni umwe mu bami bafise inkuru ikomeye kurusha iy'abo twize kera — Mwezi I, Mutaga I, Mwambutsa I, Mutaga II, na Mwambutsa II. Inkuru yiwe ihuza urukundo n'intambara, ubucuti n'amakimbirane, mu buryo budasanzwe.
 
 ---
 

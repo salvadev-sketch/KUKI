@@ -48,7 +48,7 @@ Ariko dutegerezwa gushira umurongo ukomeye.
 
 Binego ntitwomushira mu muryango wa Ntare Rushatsi.
 
-Kandi na none, ntitwoshira Binego mu bantu ba **Cwezi** bo mu bihe vya kera, nk'aho yari yamaze kubaho muri urwo rurondogoro rw'imigenzo yo mu bihe vy'inyuma. Abashakashatsi barabishimikira: **Binego ntiyagaragara muri Cwezi.**
+Kandi na none, ntitwoshira Binego mu bantu b'**Abachwezi** bo mu bihe vya kera, nk'aho yari yamaze kubaho muri urwo rurondogoro rw'imigenzo yo mu bihe vy'inyuma. Abashakashatsi barabishimikira: **Binego ntiyagaragara mu Bachwezi.**
 
 Ahubwo Binego yinjira nyuma, mu gice ca Kubandwa nyene, aho Ryangombe na Kiranga bahagarariye ishusho imwe y'idini, kandi Binego akagaragara mu bworo bwombi — inyuma ya Ryangombe mu Rwanda, inyuma ya Kiranga mu Burundi.
 

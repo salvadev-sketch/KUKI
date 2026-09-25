@@ -44,9 +44,9 @@ Yemera ubugore bwinshi.
 
 Hanyuma ubwiwe arongora Ngaye.
 
-Ngaye avyara **Mutaga Senyamwiza** — uwo, nk'uko twabivuze muri EP11, dutegerezwa kutamuvanga n'uwundi Mutaga Senyamwiza, uzwi cane ku ntambara n'u Rwanda, wo mu yindi chronology.
+Ngaye avyara **Mutaga Senyamwiza** — uwo, nk'uko twabivuze muri EP11, dutegerezwa kutamuvanga n'uwundi Mutaga Senyamwiza, uzwi cane ku ntambara n'u Rwanda, wo mu rundi rutonde rw'ibihe.
 
-Ntitwovuga ngo Mwezi II ni we "yatanguje polygamie mu Burundi" nk'ukuri kw'amateka. Tuvuga: **mu migenzo imwe yanditswe, Mwezi Nyaburunga avugwa nk'umwami yahinduye imigenzo ijanye n'abapfakazi n'ubugore.**
+Ntitwovuga ngo Mwezi II ni we "yatanguje ubugore bwinshi mu Burundi" nk'ukuri kw'amateka. Tuvuga: **mu migenzo imwe yanditswe, Mwezi Nyaburunga avugwa nk'umwami yahinduye imigenzo ijanye n'abapfakazi n'ubugore.**
 
 ---
 
@@ -56,7 +56,7 @@ Kandi hari ikindi: imigenzo imuhuza no gushinga **Bakamakare** — umurwi w'abag
 
 Umwami → Inararibonye → Bakamakare.
 
-Niba iyo tradition ari yo, Mwezi II aba afise uruhara rudasanzwe mu miterere y'inzego z'ubuyobozi bw'ubwami — atari ku ntambara, ahubwo ku miterere y'imibano.
+Niba iyo migenzo ari yo, Mwezi II aba afise uruhara rudasanzwe mu miterere y'inzego z'ubuyobozi bw'ubwami — atari ku ntambara, ahubwo ku miterere y'imibano.
 
 Ariko na ho, tuvuga 🟡: nta soko ryigenga twaronse ryemeza ko ari we yatanguje iyo nzego.
 
@@ -68,7 +68,7 @@ Hari ikintu kimwe tudakwiye kwibagirwa: iyi migenzo yose — Inanzerwe, Ngaye, B
 
 [FR-CITATION] 🟡 Iyi nkuru yose (Inanzerwe, Ngaye, Bakamakare) ivuye ku kinyamakuru IWACU, ryerekeza ku mvugo z'amateka — ntawundi mwanditsi (Chrétien, Nduwamahoro, Butoyi) uyivuga muri iyi repo. Igomba kwongera kwemezwa niba dushaka kuyongera ku rwego rwo hejuru.
 
-Kandi hari amasoko amwe ku rubuga rwa interineti avanga Mwezi Nyaburunga n'uwundi mwami wo mu yindi chronology ("Mwezi I Nyaburunga 1457-1490"). Ntitwovanga ivyo bihe.
+Kandi hari amasoko amwe ku rubuga rwa interineti avanga Mwezi Nyaburunga n'uwundi mwami wo mu rundi rutonde rw'ibihe ("Mwezi I Nyaburunga 1457-1490"). Ntitwovanga ivyo bihe.
 
 ---
 

@@ -14,7 +14,7 @@ Izina ryiwe: **Ntare II Kibogora.**
 
 Mu nyandiko za Alexis Kagame, umuhinga yize imivugo y'abami b'u Rwanda, uyu mwami avugwa ku mazina abiri: **Kibogora**, canke, mu bindi bisigo, **Bijanyali**. 🔴 *(Igitabu ca Alexis Kagame ubwaco ntikiraboneka muri iyi repo — iri zina "Bijanyali" rikeneye kwongera kwemezwa.)*
 
-Ivyo bituma tubona ikintu gikomeye: n'izina ry'umwami ubwaryo rishobora kugira variants, uko imigenzo yagiye igenda.
+Ivyo bituma tubona ikintu gikomeye: n'izina ry'umwami ubwaryo rishobora kugira imvugo zitandukanye, uko imigenzo yagiye igenda.
 
 Aza mu rutonde rwa kera inyuma ya **Mwambutsa I Nkomati**, imbere ya **Mwezi II Nyaburunga**. Igihe kigereranijwe: hagati ya 1620 na 1650. Ariko, nk'uko twabimenye kenshi, ayo matariki y'abami ba mbere ni ayagereranijwe gusa.
 
@@ -26,7 +26,7 @@ Hari inkuru imwe ikomeye ivuga kuri Ntare II — inkuru ivuye mu migenzo y'amate
 
 Rwagitare, umwami w'u Bugesera, avugwa nk'uwahanganye na Ntare Kibogora w'Uburundi. Rwagitare aca ahamagara umwami w'u Rwanda, Ruganzu II Ndoli, ngo amufashe. Ruganzu arungika ingabo ze zitwa **Ibisumizi**. Ingabo za Ntare II zirasubizwa inyuma.
 
-Hari n'iyindi version ivuga ko, inyuma y'iyo ntambara, haje amasezerano y'amahoro n'uguhanahana imico hagati y'ibihugu bibiri. Ntitwovuga rimwe gusa "yaratsinzwe, birarangira" — imigenzo ivuga ko haciye hagakurikira ibindi.
+Hari n'iyindi mvugo ivuga ko, inyuma y'iyo ntambara, haje amasezerano y'amahoro n'uguhanahana imico hagati y'ibihugu bibiri. Ntitwovuga rimwe gusa "yaratsinzwe, birarangira" — imigenzo ivuga ko haciye hagakurikira ibindi.
 
 Ariko dutegerezwa kubivuga uko bikwiye: iyi nkuru ntiyavuye ku nyandiko yo mu gihe ca Ntare II ubwiwe. Yavuye mu **migenzo y'amateka y'u Rwanda**, iza kwandikwa n'abashakashatsi nyuma y'imyaka myinshi. Ni co gituma tudashobora kuvuga "mu mwaka kanaka, Ntare II yateye u Bugesera" — ahubwo tuvuga "imigenzo y'amateka y'u Rwanda ivuga ko."
 
@@ -38,7 +38,7 @@ Ariko dutegerezwa kubivuga uko bikwiye: iyi nkuru ntiyavuye ku nyandiko yo mu gi
 
 Aha hari ikintu gikomeye kigomba kutwitondera.
 
-Hari **urutonde rwa kera** rushira Ntare II hagati ya 1620 na 1650. Ariko hari n'**urundi rutonde rwa none**, ruvuga ko ingoma y'Uburundi yatanguye ku muntu witwa "Ntare III Rushatsi," hafi ya 1680 — chronology itandukanye rwose.
+Hari **urutonde rwa kera** rushira Ntare II hagati ya 1620 na 1650. Ariko hari n'**urundi rutonde rwa none**, ruvuga ko ingoma y'Uburundi yatanguye ku muntu witwa "Ntare III Rushatsi," hafi ya 1680 — urutonde rw'ibihe rutandukanye rwose.
 
 Kandi hari ikindi kibazo: Ruganzu II Ndoli, mu bushakashatsi bwinshi bw'u Rwanda, ashirwa ku ngoma mu ntango z'ikinjana ca 16 (hafi 1510–1543) — igihe kitahuye n'urutonde rushira Ntare II hagati ya 1620-1650.
 

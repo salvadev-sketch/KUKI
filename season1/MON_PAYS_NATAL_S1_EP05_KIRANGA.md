@@ -36,7 +36,7 @@ Ariko iyo sano ntabwo ari ikimenyetso c'uko ari umuntu umwe. Ni isano y'imigenzo
 
 ---
 
-Cult ya Kiranga ntiyari ahantu hamwe gusa.
+Idini rya Kiranga ntiryari ahantu hamwe gusa.
 
 Imigenzo ivuga ku bibanza bitandukanye — i Vyirwa vya Ngozi, i Ngara/Kibumbu, i Mwaro ku Kayokwe — bose bafitaniye isano na Kiranga.
 
@@ -48,7 +48,7 @@ Ariko Kiranga, imbere yo kuba izina ry'idini, avugwa mu migenzo nk'umuhigi.
 
 Kandi inkuru y'urupfu rwiwe ni imwe mu nkuru zikomeye cane zo mu migenzo y'Uburundi.
 
-Umugore wiwe ari atwaye inda, asaba kurya inyama y'impongo. Kiranga aca aja kubaza umupfumu nimba kuyihiga vyomugendera neza.
+Umugore wiwe yari atwaye inda, asaba kurya inyama y'impongo. Kiranga aca aja kubaza umupfumu nimba kuyihiga vyomugendera neza.
 
 Umupfumu aramubwira: nimba ari we arashe iyo nyamaswa mbere, azoyironka. Ariko nimba yo ari yo imuteye mbere, ni yo izomwica.
 
@@ -96,7 +96,7 @@ Mu birori vya Umuganuro, hari **Mukâ Kiranga**, umupfasoni wo ku kirimba, yari 
 
 Kandi hari inkuru zivuga ko igihe Ntare yagaruka mu Burundi, yari **kumwe na Kiranga** — nk'aho ukuza kw'umwami mushasha kwari kujanye n'ukuza kw'umugenzo mushasha w'idini.
 
-Ariko izo zose ni imigenzo yakusanyijwe nyuma, atari inyandiko zo mu gihe c'ibyo bihe. Ntitwovuga ngo Kiranga ni we yatanguje ubwami — Ntare ni we tradition ibona nk'uwatanguje ingoma. Ariko Kiranga na Ntare, mu nkuru, bagenda hamwe: umwe afise ubwami, uwundi afise Imana.
+Ariko izo zose ni imigenzo yakusanyijwe nyuma, atari inyandiko zo mu gihe c'ibyo bihe. Ntitwovuga ngo Kiranga ni we yatanguje ubwami — Ntare ni we imigenzo ibona nk'uwatanguje ingoma. Ariko Kiranga na Ntare, mu nkuru, bagenda hamwe: umwe afise ubwami, uwundi afise Imana.
 
 ---
 
@@ -106,4 +106,4 @@ Ariko hari izina rimwe ryagumye rijana kure y'iyi nkuru, izina ryahujwe na Kiran
 
 **Ryangombe.**
 
-**MON PAYS NATAL** izokomeza, iva kuri Kiranga, ijana kuri Ryangombe — kugira tumenye nimba ari koko umuntu umwe, canke ari izina ry'iyindi tradition, yo mu kindi gice c'ibiyaga bigari, ryahuye n'iry'Uburundi mu nzira y'imigenzo.
+**MON PAYS NATAL** izokomeza, iva kuri Kiranga, ijana kuri Ryangombe — kugira tumenye nimba ari koko umuntu umwe, canke ari izina ry'iyindi migenzo, yo mu kindi gice c'ibiyaga bigari, ryahuye n'iry'Uburundi mu nzira y'imigenzo.

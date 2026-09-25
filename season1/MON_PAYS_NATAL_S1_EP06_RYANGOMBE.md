@@ -78,7 +78,7 @@ Binego agasubira mu migenzo yombi.
 
 Imigani igasa ku bintu byinshi.
 
-Ariko nta genealogy yizewe iduhuza Ryangombe na Ntare Rushatsi. Ntitubahuza nk'umuryango.
+Ariko nta muryango wizewe uduhuza Ryangombe na Ntare Rushatsi. Ntitubahuza nk'umuryango.
 
 ---
 
