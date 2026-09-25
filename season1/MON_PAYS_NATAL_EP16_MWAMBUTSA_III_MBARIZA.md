@@ -24,7 +24,7 @@ Karyenda, twaramaze kubimenya kuva kuri Ntare Rushatsi, ntiyari ingoma yo gukubi
 
 ## Umwami akiri muto
 
-Imigenzo ivuga ko Mwambutsa Mbariza yari akiri muto cane igihe yaja ku ngoma. Kubera iyo mpamvu, abamurezi baramufashije mu ntango y'ingoma yiwe — hakabaho ubutegetsi bw'abantu bamufasha gutwara igihugu (regency).
+Imigenzo ivuga ko Mwambutsa Mbariza yari akiri muto cane igihe yaja ku ngoma. Kubera iyo mpamvu, abamurezi baramufashije mu ntango y'ingoma yiwe — hakabaho ubutegetsi bw'abantu bamufasha gutwara igihugu.
 
 ---
 
@@ -46,7 +46,7 @@ Imigenzo ivuga ko Mwambutsa, amaze kubona ko hari abamurwanya, yafashe ingingo y
 
 Yateguye umusi mukuru ku kirimba, atumira abo yakeka ko bari mu mugambi wo kumwica. Bamaze kunywa urwarwa, hateguwa umuriro — benshi baca barapfa.
 
-Iyi na yo ni inkuru y'imigenzo, ntitwoyikoresha nk'ukuri kw'amateka atashizwe muri iyo context.
+Iyi na yo ni inkuru y'imigenzo, ntitwoyikoresha nk'ukuri kw'amateka atarongera kwemezwa n'ibindi bimenyetso.
 
 ---
 
@@ -64,7 +64,7 @@ Ntitwovuga "Mwambutsa Mbariza yiyahuye." Tuvuga: **mu migenzo yanditswe, havugwa
 
 ## Umurage wiwe
 
-Inyuma y'urupfu rwiwe, ingoma yagiye kuri **Ngambiri**, uwafashe izina rya **Ntare Rugamba** — uwo, mu genealogy imwe, avugwa nk'umuhungu wiwe. Ariko genealogy ziratandukanye, ni co gituma tudashaka kwinjiza urwo rutonde nk'ukuri kwemejwe.
+Inyuma y'urupfu rwiwe, ingoma yagiye kuri **Ngambiri**, uwafashe izina rya **Ntare Rugamba** — uwo, mu nkuru y'umuryango imwe, avugwa nk'umuhungu wiwe. Ariko inkuru z'imiryango ziratandukanye, ni co gituma tudashaka kwinjiza urwo rutonde nk'ukuri kwemejwe.
 
 [FR-CITATION] 🟡 Nduwamahoro (thesis) yagize ati: "akiri umuyabaga yitwa Ngambiri. Ntare Rugamba yabaye umwami akomeye cane" — bikemeza ko "Ngambiri" ari ryo zina Ntare Rugamba yari afise akiri muto, imbere yo kwitwa "Rugamba" kubera ubutwari bwiwe ku rugamba.
 

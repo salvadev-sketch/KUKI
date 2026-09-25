@@ -18,7 +18,7 @@ Uwakurikiye Mwezi I. "Mutaga" ni izina ry'ingoma, "Mutabazi" akaba ari ryo rimut
 
 ## Mwambutsa I Nkomati
 
-Uwakurikiye Mutaga I. Nta biography na hato. Ico dufise ni umwanya wiwe mu rutonde n'igihe kigereranijwe, hagati ya 1600 na 1620.
+Uwakurikiye Mutaga I. Nta nkuru y'ubuzima na hato. Ico dufise ni umwanya wiwe mu rutonde n'igihe kigereranijwe, hagati ya 1600 na 1620.
 
 ---
 
@@ -32,7 +32,7 @@ Aha hari ikintu kigomba kutwitondera cane.
 
 Mu rutonde rwa kera, Mutaga II ashirwa hagati ya 1680 na 1700. Ariko hari **indi nkuru ikomeye cane**, y'intambara n'umwami w'u Rwanda Cyirima Rujugira, y'urukundo na Inabizoza (umukobwa wa Rujugira), n'urupfu ku rugamba — inkuru izwi cane.
 
-Iyo nkuru ni iya **Mutaga Senyamwiza wo mu yindi chronology**, ashirwa hagati ya 1739 na 1767, uwo abashakashatsi bamwe bita Mutaga III. **Si Mutaga II wo mu rutonde rwa kera.**
+Iyo nkuru ni iya **Mutaga Senyamwiza wo mu rundi rutonde rw'ibihe**, ashirwa hagati ya 1739 na 1767, uwo abashakashatsi bamwe bita Mutaga III. **Si Mutaga II wo mu rutonde rwa kera.**
 
 [FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko Rujugira yashingishije umukobwa wiwe Inabizoza kuri Mutaga Senyamwiza ngo berekane ubumwe, ariko Mutaga aza gutera u Rwanda mu ntara za Nyaruguru; umurwanyi Rutanda (w'Umugesera) aramukomeretsa n'amacumu menshi.
 
@@ -46,9 +46,9 @@ Uwakurikiye Mutaga II. Nako, ntutuvange na Mwambutsa III (uzwi nka Mbariza, ~176
 
 ## Mwezi III Kavuyimbo, canke Ndagushimiye
 
-Uyu na we, mu bushakashatsi bumwe, yitwa "Mwezi I Ndagushimiye" mu rundi rutonde ("modern chronology"), naho ari Mwezi III mu rutonde rwa kera. Ni co gituma tuzokoresha amazina yombi hamwe, kugira ntihagire uwibaza ko ari ikosa.
+Uyu na we, mu bushakashatsi bumwe, yitwa "Mwezi I Ndagushimiye" mu rundi rutonde ("urutonde rugezweho"), naho ari Mwezi III mu rutonde rwa kera. Ni co gituma tuzokoresha amazina yombi hamwe, kugira ntihagire uwibaza ko ari ikosa.
 
-Kuri we, hari amakuru make yiyongera ku bandi: imigenzo imuhuza n'abami b'u Rwanda Yuhi III Mazimpaka na Karemera Rwaka, akaba se, muri iyo genealogy, wa Mutaga Senyamwiza (uwo tuvuze hejuru). Kandi hari inkuru y'ubuhamya bw'ahantu: **Budandari**, muri Kabarore, ivugwa nk'aho hashinguwe abami bane — Ntare Rushatsi, Mwezi Ndagushimiye, Mutaga Senyamwiza, na Mwambutsa Mbariza.
+Kuri we, hari amakuru make yiyongera ku bandi: imigenzo imuhuza n'abami b'u Rwanda Yuhi III Mazimpaka na Karemera Rwaka, akaba se, muri uwo muryango, wa Mutaga Senyamwiza (uwo tuvuze hejuru). Kandi hari inkuru y'ubuhamya bw'ahantu: **Budandari**, muri Kabarore, ivugwa nk'aho hashinguwe abami bane — Ntare Rushatsi, Mwezi Ndagushimiye, Mutaga Senyamwiza, na Mwambutsa Mbariza.
 
 [FR-CITATION] 🟡 Nk'uko twabibonye muri EP09, Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashyinze abami bane ba kera."
 
