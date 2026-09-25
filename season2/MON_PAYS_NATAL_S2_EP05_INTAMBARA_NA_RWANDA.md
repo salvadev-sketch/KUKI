@@ -20,6 +20,8 @@ Ntare Rugamba yashaka **kwihora** — guhora abamubanjirije ku ntsinzi u Rwanda 
 
 **Mutara II Rwogera** (1802–1853) yakurikiye Gahindiro. Amakimbirane na we yagumye ari ay'igihe kirekire kurusha ayo na Gahindiro.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko "ingoma ya Ntare Rugamba yabangabanganywe n'iy'abami batatu b'Urwanda: Mibambwe Sentabyo, Yuhi Gahindiro na Mutara Rwogera."
+
 ---
 
 ## Shinge na Rugero: intambara ya Kirundo

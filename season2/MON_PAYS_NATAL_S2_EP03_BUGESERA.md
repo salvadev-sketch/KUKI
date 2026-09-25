@@ -36,6 +36,8 @@ Ingabo ze zaragenze, zisanga akaryo gatoya, gushika **Busoni** na **Bwambarangwe
 
 Bugesera, nk'ubwami, yari ifise ingoma yayo bwite, ikimenyetso c'ubwami bwayo: **Rukombamazi**.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko "Ubugesera... cari gifise ingoma yitwa Rukombamazi n'ingabe yitwa Rushya," kandi ko "Ntare Rugamba yaratese uwo mwami Nsoro (hagati y'1796 n'1801) kugira amwake ico gihugu."
+
 Igihe Bugesera yatsindwaga, Rukombamazi na yo yaranyazwe.
 
 Ni co gituma mu Kirundi kuriho imvugo: **"kunyaga/kunyagwa Rukombamazi"** — ni ukuvuga gutakaza vyose, nk'uko umwami wa Bugesera yatakaje ingoma yiwe, akaba n'ubwami bwiwe icarimwe.

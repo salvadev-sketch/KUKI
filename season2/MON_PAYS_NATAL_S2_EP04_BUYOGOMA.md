@@ -30,6 +30,8 @@ Aca atera Ubuyogoma, afashijwe n'umuhungu wiwe **Rwasha**.
 
 Hagati ya 1840, Ubuyogoma bwomekwa ku Burundi.
 
+[FR-CITATION] 🟡 Nduwamahoro (thesis) avuga ko "Ntare Rugamba yabaye umwami akomeye cane... yarigaruriye Ubuyogoma, Ubuha, igice kinini c'Ubugesera n'Obweru" — urutonde ruhuza Ubuyogoma n'ibindi bihugu Rugamba yaguye.
+
 ---
 
 ## Inyuma y'intambara: ukwimuka n'ukubaka

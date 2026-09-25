@@ -38,6 +38,8 @@ Ubugari bw'urwo rugo bwapimwe hakoreshejwe **itambwe** — icipimo c'akaranga gi
 
 Amasoko menshi — UNESCO, harimwo ubushakashatsi bwa E. Mworoha (1977) — avuga ko ari **Ntare Rugamba** ubwiwe yatsinze Ntibirangwa, mu gice ca mbere c'ikinjana ca 19, hanyuma agashinga Gishora ku bw'iyo ntsinzi.
 
+[FR-CITATION] 🟡 Inyandiko ya UNESCO World Heritage Centre ubwayo (asubiramwo Mworoha, 1977) igira iti: « une résidence royale... fondée par le roi Ntare Rugamba dans la première moitié du 19ème siècle après sa victoire contre le chef rebelle Ntibirangwa » — arivyo bisobanura mu Kirundi ngo: "urugo rw'ubwami... rwashinzwe n'umwami Ntare Rugamba mu gice ca mbere c'ikinjana ca 19, inyuma y'intsinzi kuri Ntibirangwa." Iyo nyandiko nyene isubiramwo Rodegem (1971) ku birebana n'Umuganuro, na Simons (1944) ku bijanye n'imiterere y'ivyubakwa bitatu.
+
 Ariko hari isoko rimwe (Atlas Obscura) rivuga ko ari **Mwezi IV Gisabo**, umuhungu wa Ntare Rugamba, uwatsinze Ntibirangwa mu gice ca kabiri c'ikinjana ca 19 — imyaka mirongo inyuma.
 
 Ntitwovuga ngo iyo mvyerekano ni ikosa. Tuzogumya kuvuga: amasoko menshi ahuriza ku kintu kimwe: **Ntare Rugamba, mu gice ca mbere c'ikinjana ca 19**. Ariko soko rimwe ritandukanye ririho, kandi ni ngombwa kuryerekana.
