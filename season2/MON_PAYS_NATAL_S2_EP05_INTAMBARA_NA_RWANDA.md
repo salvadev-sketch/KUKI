@@ -16,9 +16,9 @@ Ntare Rugamba yashaka **kwihora** — guhora abamubanjirije ku ntsinzi u Rwanda 
 
 ## Yuhi Gahindiro na Mutara Rwogera
 
-**Yuhi IV Gahindiro** yaguye ku ngoma mu 1802 — amakimbirane hagati yiwe na Ntare Rugamba yabaye mu ntango cane z'ingoma ya Ntare, hafi hafi y'igihe kimwe n'intambara ya Bugesera.
+**Yuhi IV Gahindiro** yaguye ku ngoma mu 1802 — amatati hagati yiwe na Ntare Rugamba yabaye mu ntango cane z'ingoma ya Ntare, hafi hafi y'igihe kimwe n'intambara ya Bugesera.
 
-**Mutara II Rwogera** (1802–1853) yakurikiye Gahindiro. Amakimbirane na we yagumye ari ay'igihe kirekire kurusha ayo na Gahindiro.
+**Mutara II Rwogera** (1802–1853) yakurikiye Gahindiro. Amatati na we yagumye ari ay'igihe kirekire kurusha ayo na Gahindiro.
 
 ---
 

@@ -38,7 +38,7 @@ Ntare Rugamba yari afise ubushobozi bwo gushira abahungu biwe mu turere.
 
 Ariko ntiyari afise ubushobozi buhagije bwo kubinjiza bose mu butegetsi bumwe, bukomeye, bwo hagati.
 
-Iryo tandukaniro, iyo aricyo cari intambwe y'ukwagura ubwami, ni na ryo rizoba intango y'amakimbirane azogumaho mu myaka myinshi izoza — kugeza n'igihe c'ubukoloni.
+Iryo tandukaniro, iyo aricyo cari intambwe y'ukwagura ubwami, ni na ryo rizoba intango y'amatati yazogumaho mu myaka myinshi izoza — kugeza n'igihe c'ubukoloni.
 
 ---
 

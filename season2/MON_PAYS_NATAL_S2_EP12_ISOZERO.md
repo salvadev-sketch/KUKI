@@ -46,7 +46,7 @@ Ariko turasaba ubwitonzi: iri zina ry'ahantu rishobora no kuba ryarahawe iyo mva
 
 ## Ryari?
 
-Chronology ikoreshwa cane n'abashakashatsi imushira hafi ya **1796–1850**. Ariko hari amasoko amwe avuga **1852**.
+Urutonde rw'ibihe rukoreshwa cane n'abashakashatsi rumushira hafi ya **1796–1850**. Ariko hari amasoko amwe avuga **1852**.
 
 Ntitwohitamwo imwe muri izo, kubera ko nta gihamya gihagije gitandukanya ukuri hagati yazo.
 

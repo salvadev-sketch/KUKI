@@ -44,4 +44,4 @@ Ibi bituma tubona ikintu gikomeye: **Ntare Rugamba ntiyigaruriye ubutaka gusa. Y
 
 Iyi ni imwe mu nkuru nziza cane muri iyi documentaire, kuko itwereka ukuntu ibintu bito bishobora gutera intambara nini — n'ukuntu intambara, igishwe, ishobora kuzana ubwubatsi bushasha, atari kurimbura gusa.
 
-**MON PAYS NATAL — SEASON 2 — EP05 — INTAMBARA NA RWANDA**, ni ho tuzoraba amakimbirane akomeye kurusha ayo twize kugeza ubu.
+**MON PAYS NATAL — SEASON 2 — EP05 — INTAMBARA NA RWANDA**, ni ho tuzoraba amatati akomeye kurusha ayo twize kugeza ubu.
