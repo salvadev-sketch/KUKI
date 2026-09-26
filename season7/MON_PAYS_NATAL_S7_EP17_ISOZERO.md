@@ -22,7 +22,7 @@ Naho ntitwakwemeza uruhara rwiwe nyakuri mu bwicanyi bwo mu 1972, na none, ntitw
 
 ---
 
-BBG ntitanga amakuru arambuye ku buzima bwiwe bwo mu buhungiro, inyuma ya 1987, canke ku rupfu rwiwe. Iyo ni imwe mu ngingo dukwiye kuvuga twemeye: sinacumva vyose.
+Amasoko dufise ubu ntaduha amakuru arambuye ku buzima bwiwe bwo mu buhungiro, inyuma ya 1987, canke ku rupfu rwiwe. Iyo ni imwe mu ngingo dukwiye kuvuga twemeye: sinacumva vyose.
 
 ---
 

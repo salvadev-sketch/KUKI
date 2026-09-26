@@ -2,7 +2,7 @@
 
 Yavukiye i **Rutovu**, mu ntara ya **Bururi**.
 
-BBG ntitanga itariki nyakuri y'ivuka ryiwe.
+Amasoko dufise ubu ntatanga itariki nyakuri y'ivuka ryiwe.
 
 ---
 
