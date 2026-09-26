@@ -2,6 +2,8 @@
 
 Ku wa 21 Myandagaro 1908, umwami yari amaze hafi igice c'ikinjana ategeka yarapfuye.
 
+[FR-CITATION] 🟡 Wikipedia ("List of kings of Burundi") ivuga ko Mwezi IV Gisabo (c. 1840–1908) yategetse "c. 1850 – 21 August 1908," kandi ko Mutaga IV Mbikije (c. 1892–1915) yamusubiye "21 August 1908 – 30 November 1915" — bihuza neza n'itariki n'imyaka EP01 ivuga.
+
 Uwamusubiriye ntiyari umugabo mukuru, ufise ubunyaruka bwo gutwara igihugu kinini se yari yaragusanye.
 
 Yari umusore w'imyaka nka cumi na itanu.

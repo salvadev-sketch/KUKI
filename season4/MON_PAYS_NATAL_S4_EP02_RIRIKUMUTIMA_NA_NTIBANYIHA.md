@@ -28,6 +28,8 @@ Ntitwovuga ngo turazi ukuri kwose. Ni ivyo tuzogumana, kugeza amasoko yiyongera 
 
 Ubwo bushobozi bwose bwatumye habaho ubutegetsi bw'abakuru bafasha umwami akiri muto. Ntarugera n'abandi baganwa na bo bavugwa nk'abari bafise uruhara muri ubwo butegetsi.
 
+[FR-CITATION] 🟡 Inyandiko imwe (UFRGS, ishingiye ku bushakashatsi bw'amateka y'abagore b'ibihe vya kera muri Afrika) ivuga ko inyuma y'urupfu rwa Mwezi Gisabo (1908), Ririkumutima yagize uruhara mu gushiraho uwasubiye ku ngoma, kandi ko yahiganywe na Ntarurega ku bijanye n'uruhara runini rwo gutwara igihugu.
+
 Mutaga IV rero yari umwami ku izina, ariko igihugu carongowe n'abandi.
 
 ---

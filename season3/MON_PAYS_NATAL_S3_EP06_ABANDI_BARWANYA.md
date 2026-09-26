@@ -22,9 +22,9 @@ Yaga Burundi ivuga abatware batandukanye bigeze guhagurukira Mwezi, mu bihe bita
 
 ---
 
-Ku bo, BBG ntiduha inkuru irambuye — ni amazina, uturere, n'ibihe gusa.
+Ku bo, amasoko dufise ubu ntaduha inkuru irambuye — ni amazina, uturere, n'ibihe gusa. 🔴 *(Aya mazina n'ibihe bikeneye kwongera kwemezwa mu kindi gitabo — ntarasangwa muri Chrétien canke Nduwamahoro.)*
 
-Ntitwoshaka guhimba icobayeko, canke inkuru zabo bwite, ata co BBG idutangira. Twovuga gusa ico dushobora kuvuga: ko bahagurukiye ubutegetsi bwa Mwezi, mu bihe n'uturere bitandukanye, kandi ko batsinzwe canke bakoreshejwe mu buryo butarasigaye kirambuye mu migenzo dufise.
+Ntitwoshaka guhimba icobayeko, canke inkuru zabo bwite, ata co amasoko dufise adutangira. Twovuga gusa ico dushobora kuvuga: ko bahagurukiye ubutegetsi bwa Mwezi, mu bihe n'uturere bitandukanye, kandi ko batsinzwe canke bakoreshejwe mu buryo butarasigaye kirambuye mu migenzo dufise.
 
 ---
 
