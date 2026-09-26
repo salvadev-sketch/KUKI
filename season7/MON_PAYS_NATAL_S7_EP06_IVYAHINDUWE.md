@@ -6,6 +6,8 @@ Mu 1977, Bagaza yakuyeho **impôt de capitation** — amatagisi yari asanzwe yis
 
 Yakuyeho kandi **ubugererwa** — uburenganzira bwa kera bw'abatware bwo gusaba abanyagihugu gukora imirimo ku buntu, canke gutanga igice c'umwimbu wabo.
 
+[FR-CITATION] 🟡 Inyandiko ya UNHCR (archive) igira iti: « 1977 | President Bagaza initiates land reforms ending the system of Tutsi feudal landlords » — arivyo bisobanura mu Kirundi ngo: "1977 | Perezida Bagaza atangura impinduka ku vy'ubutaka, akuraho uburyo bw'abatware b'Abatutsi bo mu bwoko bw'ubugererwa."
+
 Iyi ni imwe mu mpinduka zikomeye cane ku buzima bw'abahinzi.
 
 ---

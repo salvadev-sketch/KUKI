@@ -8,11 +8,15 @@ Ariko ntibwari ubuhinduka bwo hejuru gusa.
 
 Ku wa 2 Munyonyo 1976, hashizweho **Conseil Suprême Révolutionnaire (CSR)**, igizwe n'abasirikare 30, Bagaza akaba umutware wayo.
 
+[FR-CITATION] 🟡 UCA (Political Science Dept., asubiramwo amakuru y'ibihe) igira iti: « the 30-member Supreme Revolutionary Council (SRC) headed by Lt. Colonel Bagaza took control of the government on November 2, 1976 » — arivyo bisobanura mu Kirundi ngo: "Inama Nkuru y'Impinduramatwara (SRC), abagize 30, iyoborwa na Bagaza, yafashe ubutegetsi ku wa 2 Munyonyo 1976."
+
 Ni ukuvuga: ubutegetsi bushasha ntibwahavuye buva mu gisirikare. Igisirikare ni co cari ciyubatse mu mutima wa système nshasha.
 
 ---
 
 Ku wa 13 Munyonyo 1976, hatangajwe gouvernome nshasha.
+
+[FR-CITATION] 🟡 UCA ivuga ko "Umukuru w'Igihugu Bagaza yashinze Edouard Nzambimana nka Ministre w'Intebe ku wa 11 Munyonyo 1976" — itariki y'itangazwa rya gouvernome yuzuye ishobora kuba yaje mu minsi mike ikurikira.
 
 Ariko hari ikibazo gikomeye tudakwiye kwirengagiza: Bagaza yavuze ko ashaka gukuraho regionalisme, ariko composition ya gouvernome yiwe ya mbere yarimwo cane abantu bakomoka i Bururi — akarere kiwe bwite.
 
