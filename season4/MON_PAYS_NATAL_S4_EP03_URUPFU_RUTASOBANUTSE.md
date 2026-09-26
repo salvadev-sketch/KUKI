@@ -8,7 +8,7 @@ Ubu, umurwa mushasha ni **Gitega**.
 
 ---
 
-Ingoma ya Mutaga IV yaranzwe n'ivyo bishasha: ukwimuka kwa résidence royale i Gitega, ukwiyongera kw'amafaranga mashasha y'amanyaburaya — **roupie na heller** — n'ukwiyongera kw'abamisiyonari.
+Ingoma ya Mutaga IV yaranzwe n'ivyo bishasha: ukwimuka kw'ikirimba c'ubwami i Gitega, ukwiyongera kw'amafaranga mashasha y'amanyaburaya — **roupie na heller** — n'ukwiyongera kw'abamisiyonari.
 
 [FR-CITATION] 🟢 Ibitabu bibiri vy'ubushakashatsi (Pasini, Ngiye na Gahungu, 2024, basubiramwo Chrétien 2016; hamwe n'igitabu ca Guilhem Vellut, *Gitega, capitale du Burundi*) bemeza ko Abadagi bashinze Gitega mu 1912, bakayigira ikibanza c'ubutegetsi bwabo. Thesis ya Misago (2014, iri muri repo) na yo ivuga ku bijanye n'amafaranga ya roupie yakoreshwa muri ico gihe.
 
@@ -48,7 +48,7 @@ Ku bw'ivyo, kuri iyi documentaire, ntituzemeza imwe muri zo nk'ukuri: **Mutaga I
 
 ---
 
-Umubiri wiwe wahambwe i **Ramvya**, muri zone Nkonge — ahantu tuzi neza, bitandukanye n'abami ba kera aho amakuru make gusa yatugezeko.
+Umubiri wiwe wahambwe i **Ramvya**, mu karere ka Nkonge — ahantu tuzi neza, bitandukanye n'abami ba kera aho amakuru make gusa yatugezeko.
 
 [FR-CITATION] 🟢 Urubuga rwa UNESCO ("Les paysages naturels sacrés de Muramvya, de Mpotsa et de Nkiko-Mugamba", whc.unesco.org) rwemeza ko igituba ca Mutaga Mbikije giri i Ramvya — gutandukana n'ivyubahiro vy'abami bane ba mbere (i Budandari) na Mwezi Gisabo (i Remera).
 
@@ -58,6 +58,6 @@ Uwamusubiriye ni umuhungu wiwe.
 
 Na we, akiri umwana.
 
-Ariko iyo ngoma, itandukanye cane n'iy'iwe se, izomara **imyaka irenga mirongo itanu** — igihe cirekire kurusha izo twize kugeza ubu, muri iri tangazo rya Uburundi.
+Ariko iyo ngoma, itandukanye cane n'iy'iwe se, izomara **imyaka irenga mirongo itanu** — igihe cirekire kurusha izo twize kugeza ubu, muri iyi nkuru ya Uburundi.
 
 **MON PAYS NATAL — SEASON 4 — EP04 — MWAMBUTSA IV: IVUKA NA NTWARO Y'UBWANA**, ni ho tuzobandanya.

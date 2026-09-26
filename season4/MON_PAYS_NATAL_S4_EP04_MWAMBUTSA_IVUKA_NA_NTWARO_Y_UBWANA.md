@@ -16,7 +16,7 @@ Yari afise imyaka itatu gusa.
 
 Umwana w'imyaka itatu ntashobora gutwara igihugu.
 
-Ni co gituma, nka se imbere yiwe, habayeho **regency**.
+Ni co gituma, nka se imbere yiwe, habayeho ubutegetsi bw'abamufasha.
 
 **Ririkumutima** — uwo twari twaramaze kubona mu ngoma ya Mutaga — yagumye ari umwe mu bantu bakomeye muri ubwo butegetsi bw'ubwana. Ntitwovanga Ririkumutima na nyina wa Mwambutsa — ni bantu babiri batandukanye, naho bombi bakomotse mu muryango umwe w'ubwami.
 

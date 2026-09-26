@@ -36,6 +36,6 @@ Anne Samson, "Ruanda and Urundi," muri *1914-1918-online: International Encyclop
 
 Ariko ivyo bizoza vyose bikiri kure.
 
-Muri iyo myaka, umwana yari akigenda akura munsi ya regency, ata co ari we ubwiwe.
+Muri iyo myaka, umwana yari akigenda akura munsi y'ubutegetsi bw'abamufasha, ata co ari we ubwiwe.
 
 **MON PAYS NATAL — SEASON 4 — EP06 — AMASHURE**, ni ho tuzobona uburyo Ababiligi bamwigishije.

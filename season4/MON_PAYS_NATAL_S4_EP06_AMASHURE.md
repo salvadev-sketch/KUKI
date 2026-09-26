@@ -38,6 +38,6 @@ Nyuma yaho, azoshaka umugore w'umukristu. Ariko ivyo ntibisobanura ko Mwambutsa 
 
 Umuganwa akura.
 
-Kandi hari umunsi umwe uzoza, aho regency izorangira, umuganwa akaba umwami mu buryo bwuzuye.
+Kandi hari umunsi umwe uzoza, aho ubwo butegetsi bw'abamufasha buzorangira, umuganwa akaba umwami mu buryo bwuzuye.
 
 **MON PAYS NATAL — SEASON 4 — EP07 — ATANGURA GUTEGEKA WENYENE**, ni ho tuzobibona.

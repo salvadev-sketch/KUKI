@@ -12,7 +12,7 @@ Ubushakashatsi bwa Christine Deslaurier ku Burundi bwerekana ko hagati ya 1956 n
 
 Mu **1958**, hashinzwe **UPRONA — Union pour le Progrès National.**
 
-Iyi mugambwe uzoba ukomeye cane mu rugamba rwo gusaba ubwigenge.
+Uyu mugambwe uzoba ukomeye cane mu rugamba rwo gusaba ubwigenge.
 
 ---
 

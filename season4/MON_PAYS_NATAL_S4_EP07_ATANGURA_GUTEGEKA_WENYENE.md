@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 4 — EP07 — ATANGURA GUTEGEKA WENYENE
 
-Ku wa 28 Myandagaro 1929, regency council yemeje ikintu abantu bari bamaze imyaka bategereje.
+Ku wa 28 Myandagaro 1929, inama y'abamufasha kuyobora yemeje ikintu abantu bari bamaze imyaka bategereje.
 
 Mwambutsa IV yari amaze kugera ku myaka imwemerera gutwara igihugu ku giti ciwe.
 
@@ -16,7 +16,7 @@ Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African 
 
 Aha, dutandukanya ibihe bibiri by'ingoma yiwe.
 
-**1915 — 1929:** umwami w'umwana, igihugu gifashijwe na regency.
+**1915 — 1929:** umwami w'umwana, igihugu gifashijwe n'abamurera.
 
 **1929 — 1966:** Mwambutsa ari we mwami mukuru, ategeka ku giti ciwe.
 
