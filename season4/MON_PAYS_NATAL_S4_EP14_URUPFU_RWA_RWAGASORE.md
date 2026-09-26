@@ -20,7 +20,7 @@ kandi umwe mu bantu bakomeye mu rugamba rwo kurondera ubwigenge.
 
 ---
 
-Ntidukwiye kuvuga ngo Mwambutsa ubwiwe ari we yari inyuma y'iyo yicwa. Ivyo bisaba ibimenyetso bitandukanye kandi bikomeye, BBG ntitanga.
+Ntidukwiye kuvuga ngo Mwambutsa ubwiwe ari we yari inyuma y'iyo yicwa. Ivyo bisaba ibimenyetso bitandukanye kandi bikomeye, amasoko dufise ubu ntabitanga.
 
 Ico dushobora kuvuga ni ico gisigaye: Mwambutsa yatakaje **umuhungu wiwe w'ingenzi mu vya politike**, kandi Uburundi bwagiye mu bwigenge, bufise igikomere gikomeye cane, imbere na mbere y'uko bushika ku bwigenge ubwabwo.
 
