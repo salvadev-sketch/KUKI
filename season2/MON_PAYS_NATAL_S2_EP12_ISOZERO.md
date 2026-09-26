@@ -20,6 +20,8 @@ Imigenzo ivuga ko yasubiye inyuma y'ubuzima bw'intambara, akaja kuba mu **rugo r
 
 Ng'aho, mu myaka yiwe ya nyuma, yarongoye **Vyano** — uwo azoba nyina wa uwomusubira ku ngoma, **Mwezi Gisabo**.
 
+[FR-CITATION] 🟡 Royalark.net (asubiramwo genealogy z'ingoma) yagize iti: « He d. at Mugera, 1852 (bur. Buruhukiro)... m. (eleventh) Mwamikazi Vyano, daughter of Ndabazi of the Mwenengwe clan » — arivyo bisobanura mu Kirundi ngo: "Yapfiriye i Mugera, 1852 (ashyingurwa i Buruhukiro)... yarongoye, muri bakenyezi biwe, Vyano, umukobwa wa Ndabazi wo mu muryango wa Mwenengwe."
+
 Ibi bivuze ko Mwezi Gisabo yavutse mu myaka ya nyuma y'ubuzima bwa se, mu gihe Ntare Rugamba yari amaze gusubira inyuma y'intambara.
 
 ---

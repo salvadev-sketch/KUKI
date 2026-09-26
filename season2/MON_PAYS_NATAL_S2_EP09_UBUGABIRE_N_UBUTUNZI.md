@@ -26,6 +26,8 @@ UNESCO ivuga ko Mbuye yari urugo rw'ubwami rwakoreshejwe na Ntare Rugamba, hanyu
 
 Mbuye yagenzurwa n'umuryango wa **Bajiji**. Umwami yagenzeramwo ubutungane, afashijwe n'abaganwa n'abashingantahe. Ibikorwa vyayo vyagenzurwa n'aba **bishikira**, nk'uko twabivuze.
 
+[FR-CITATION] 🟡 Inyandiko ya UNESCO World Heritage Centre igira iti: « Le domaine royal de Mbuye a été la résidence royale des rois Ntare Rugamba, Mwezi Gisabo et Mutaga Mbikije. Il était géré par le clan des Bajiji » — arivyo bisobanura mu Kirundi ngo: "urugo rw'ubwami rwa Mbuye rwakoreshejwe n'abami Ntare Rugamba, Mwezi Gisabo na Mutaga Mbikije. Rwagenzurwa n'umuryango wa Bajiji."
+
 Ni ikindi kimenyetso, nk'uko twabibonye kuri Gishora, c'ahantu nyakuri duheza kwerekana, atari inkuru gusa.
 
 ---

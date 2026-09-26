@@ -10,6 +10,8 @@ Yaje kuba kimwe mu bibanza bikomeye cane vy'ubwami bw'Uburundi.
 
 UNESCO, mu bushakashatsi bwayo ku bibanza bifise agaciro k'akaranga mu Burundi, yerekana Gishora nk'urugo rurimwo ibice bitandukanye: intangaro, ingoro y'ubwami, ikigo c'abatware, ikibanza c'ingoma zera, hamwe n'aho hafitaniye isano n'**Umuganuro**.
 
+[FR-CITATION] 🟡 UNESCO World Heritage Centre igira iti: « La spécificité de cette résidence royale réside dans son architecture... constituée de trois constructions architecturales... La première cour ou avant-cour, appelée intangaro, abrite le sanctuaire des tambours sacrés » — arivyo bisobanura mu Kirundi ngo: "ubudasa bw'urwo rugo buri mu bwubatsi bwarwo... buzanwe n'ivyubakwa bitatu... Urugo rwa mbere, ryitwa intangaro, ni ho hari ibigega vy'ingoma zera."
+
 Iyo migabanyo ntiyari ya politike gusa. Yari ihuza ubutegetsi n'idini mu kibanza kimwe — nk'uko twari twarabibonye kera muri Season 1, aho Ntare Rushatsi na Kiranga bagendanaga, umwe afise ubwami, uwundi afise ivy'Imana.
 
 ---

@@ -28,7 +28,11 @@ Haciye habaho ihiganwa rikomeye, riva mu mashami abiri:
 
 Jean-Pierre Chrétien yerekana ko ayo mashami yombi yabaye amasoko akomeye y'ubutegetsi mu Burundi bwo mu bihe vyakurikiye ingoma ya Ntare Rugamba.
 
+[FR-CITATION] 🟡 Wikipedia ("Kingdom of Burundi," asubiramwo Seitz 1989 na Strizek 2006) igira iti: « Mwezi IV's attempts to curb their power... led to a lasting resentment of the Batare toward Mwezi IV. In turn, Mwezi IV granted his numerous sons their own large fiefs, and they formed the powerful Bezi lineage. As a result, the Batare and Bezi became fierce rivals » — arivyo bisobanura mu Kirundi ngo: "Mwezi IV agerageza kugabanya ubushobozi bwabo... byatumye Abatare bamwanka igihe kirekire. Na we ahaye abahungu biwe benshi uturere twinshi, batangura umuryango w'Abezi. Ivyo vyatumye Abatare n'Abezi baba abanywanyi bakomeye."
+
 Newbury na we avuga ko inyuma y'urupfu rwa Ntare Rugamba habaye ihiganwa rikomeye hagati y'iyo mirongo yombi, cane cane mu gihe ca Mwezi Gisabo.
+
+🔴 *(Iki gitekerezo cashizwe ku izina rya Newbury ntikiraboneka mu masoko dufise ubu, canke nashoboye kuronka kuri internet — kigomba kwongera kwemezwa ku gitabo ciwe nyaco.)*
 
 ---
 
