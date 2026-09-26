@@ -18,7 +18,7 @@ Ayandi amwita **Ruhinda**.
 
 Kandi ntawuvuga rimwe ngo ni amazina abiri y'umuntu umwe, ngo ni umuntu umwe agira amazina abiri gusa. Abashakashatsi berekana neza ko iyo migenzo itahuza: hari inkuru zivuga Ruhaga umwe wo mu Burundi ubwabwo, hari izindi zivuga Ruhaga w'i Buha, kandi Jean-Pierre Chrétien yerekana ko mu miganzo itandukanye y'inkuru ya Ntare Rushatsi, uyu mwami w'i Buha yitwa rimwe Ruhinda, ubundi Ruhaga.
 
-[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) yagize ati: « Le roi du Buha est appelé tantôt Ruhinda, tantôt Ruhaga, ce qui ferait référence soit au Buha du Sud, soit au Buha du Nord » — arivyo bisobanura mu Kirundi ngo: "umwami w'i Buha yitwa rimwe Ruhinda, rindi Ruhaga, bishobora kuba bijanye n'uko ari Buha yo mu bumanuko canke iy'amajyaruguru."
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) avuga ko umwami w'i Buha yitwa rimwe Ruhinda, rindi Ruhaga, bishobora kuba bijanye n'uko ari Buha yo mu bumanuko canke iy'amajyaruguru.
 
 Ntitwovuga ngo iryo hindagurika ry'izina ni ikosa ryo mu migenzo. Ni ikimenyetso c'ico dukwiye kwama twibuka: iyo turiko turavuga ku bantu babayeho imbere y'inyandiko, amazina ubwayo arashobora guhinduka uko inkuru igiye ivuye ku muntu ku wundi.
 

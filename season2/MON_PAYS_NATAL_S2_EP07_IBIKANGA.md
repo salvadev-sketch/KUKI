@@ -28,7 +28,7 @@ Iki gikorwa ntikizwi vyimbitse nk'ukwagura ubwami ubwako. Amakuru arambuye ku mi
 
 Ariko ico dukwiye kuvuga ni ico: iki gikorwa ntigiterwa n'isoko rimwe. Amasoko menshi atandukanye — Wikipedia, Dictionary of African Biography, n'andi — ahuriza ku kintu kimwe: Ntare Rugamba yahinduye ingabo z'agateganyo ziba ingabo z'igihe cose, kandi ko izo ngabo zarindaga imipaka **n'inzira z'ubudandaji ziri ku nkengera z'ikiyaga Tanganyika**. Iyo nzira y'ubudandaji yari ifise agaciro gakomeye ku bukungu bw'akarere kose — ni co gituma kuyirinda kwari ari igikorwa cifitiye insobanuro ikomeye, atari uguhagarika intambara gusa.
 
-[FR-CITATION] 🟡 Wikipedia (asubiramwo Akyeampong & Gates, *Dictionary of African Biography*, 2012) yagize iti: « He reformed the army, forming a permanent military force (ibikanga), which ensured border security and control of trade routes along Lake Tanganyika » — arivyo bisobanura mu Kirundi ngo: "yaragarukanye ingabo, ashiraho umutwe w'ingabo z'igihe cose (ibikanga), zarindaga imipaka no kugenzura inzira z'ubudandaji ziri ku kiyaga Tanganyika."
+[FR-CITATION] 🟡 Wikipedia (asubiramwo Akyeampong & Gates, *Dictionary of African Biography*, 2012) ivuga ko yaragarukanye ingabo, ashiraho umutwe w'ingabo z'igihe cose (ibikanga), zarindaga imipaka no kugenzura inzira z'ubudandaji ziri ku kiyaga Tanganyika.
 
 ---
 

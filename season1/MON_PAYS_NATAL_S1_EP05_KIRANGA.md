@@ -30,7 +30,7 @@ Hari izindi migenzo zivuga ko yaciye ku kiyaga ubwaco, hanyuma aja mu bindi bice
 
 Kandi hari izindi zimuhuza n'izina rizwi cane mu karere k'ibiyaga bigari: **Ryangombe.**
 
-[FR-CITATION] 🟡 Chrétien (1993, asubiramwo de Heusch 1966 na Zuure 1929) yagize ati: « comme celui-ci (ou Ryangombe au Rwanda), il joue son futur royaume dans une partie de trictrac » — arivyo bisobanura mu Kirundi ngo: "nka we (canke Ryangombe mu Rwanda), akina ubwami bwiwe bw'ejo mu kibuguzo." Iyi soko ihuza Kiranga na Ryangombe nk'imigenzo ibiri isa, atari ngo ni umuntu umwe.
+[FR-CITATION] 🟡 Chrétien (1993, asubiramwo de Heusch 1966 na Zuure 1929) avuga ko nka we (canke Ryangombe mu Rwanda), akina ubwami bwiwe bw'ejo mu kibuguzo. Iyi soko ihuza Kiranga na Ryangombe nk'imigenzo ibiri isa, atari ngo ni umuntu umwe.
 
 Ariko iyo sano ntabwo ari ikimenyetso c'uko ari umuntu umwe. Ni isano y'imigenzo n'imigani, ibikwa n'abashakashatsi nk'ikintu dukwiye kwitondera, atari ukuri kwemejwe.
 

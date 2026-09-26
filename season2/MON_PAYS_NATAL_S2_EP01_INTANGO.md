@@ -34,7 +34,7 @@ Hari ikintu kimwe gikomeye tudakwiye kwibagirwa imbere yo kubandanya: Ntare Ruga
 
 Umuhinga Jean-Pierre Chrétien ubwiwe avuga ko ingoma yiwe ari yo intango aho amateka y'Uburundi atangura kugira amakuru arambuye.
 
-[FR-CITATION] 🟡 Chrétien (1993) yagize ati: « pour cette période qui s'étend des dernières années du XVIIIe siècle à 1903... sous les règnes de Ntare Rugamba et de Mwezi Gisabo... les témoignages oraux sont extrêmement précis » — arivyo bisobanura mu Kirundi ngo: "ku bijanye n'iki gihe, kuva mu myaka ya nyuma y'ikinjana ca 18 gushika mu 1903... ku ngoma za Ntare Rugamba na Mwezi Gisabo... ubuhamya bwo mu kanwa buratomoye cane."
+[FR-CITATION] 🟡 Chrétien (1993) avuga ko ku bijanye n'iki gihe (kuva mu myaka ya nyuma y'ikinjana ca 18 gushika mu 1903, ku ngoma za Ntare Rugamba na Mwezi Gisabo), ubuhamya bwo mu kanwa ari « extrêmement précis » (butomoye cane).
 
 Ibi ntibisobanura ko ivyose bizwi. Ariko bisobanura ko urugendo rwacu, kuva ku wundi kugera ku wundi, none rugiye guhindura umuvuduko.
 

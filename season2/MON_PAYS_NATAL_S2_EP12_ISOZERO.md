@@ -20,6 +20,8 @@ Imigenzo ivuga ko yasubiye inyuma y'ubuzima bw'intambara, akaja kuba mu **rugo r
 
 Ng'aho, mu myaka yiwe ya nyuma, yarongoye **Vyano** — uwo azoba nyina wa uwomusubira ku ngoma, **Mwezi Gisabo**.
 
+[FR-CITATION] 🟡 Royalark.net (urubuga rw'inkomoko z'ubwami) na rwo rwemeza iyi nkuru: Ntare Rugamba yapfiriye i Mugera, ashyingurwa i Buruhukiro, arongoye Vyano (umukobwa wa Ndabazi, umuryango wa Mwenengwe) — urwo rubuga rukoresha itariki ya 1852.
+
 Ibi bivuze ko Mwezi Gisabo yavutse mu myaka ya nyuma y'ubuzima bwa se, mu gihe Ntare Rugamba yari amaze gusubira inyuma y'intambara.
 
 [FR-CITATION] 🟢 Iyi nkuru yemejwe neza n'amasoko abiri atandukanye: thesis ya Nduwamahoro (asubiramwo Mworoha, 1987) na thesis ya Misago (2014), zombi zivuga uko Ntare Rugamba yasubiye i Mugera mu myaka ya nyuma y'ubuzima bwiwe, akaronka uruvyaro na Vyano — uwo azoba nyina wa Mwezi Gisabo. Misago (2014) asubiramwo n'inkuru y'umuvugizi, iheza ivyavuzwe n'umupfumu Ndwano imbere yaho, avuga ko Ntare azovyara "abami babiri" ni ho hakomoka izina Gisonga.
