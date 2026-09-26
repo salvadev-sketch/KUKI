@@ -12,6 +12,14 @@ Ubutegetsi bwa Mwambutsa bwagerageje kuguma hagati y'iyo migwi. Ariko ibintu vya
 
 ---
 
+**[CITATION — 🟢]**
+
+René Lemarchand (1970) na Ellen Eggers (2006), biciye kuri Wikipedia ("Thaddée Siryuyumunsi," "André Muhirwa"), bemeza ko UPRONA yaracitsemo ibice bibiri: "groupe Casablanca" (Muhirwa, uburinganire n'Abatutsi) na "groupe Monrovia" (Mirerekano, uburinganire n'Abahutu). Mwambutsa yagerageje kubahuza mu nama nkuru ya UPRONA yo muri Nzeri 1962, ariko ibibazo vyagumye. Emmanuel Ngayimpenda (1994, biciye kuri francegenocidetutsi.org) na we yemeza iryo terana ry'imigwi ibiri.
+
+---
+
+---
+
 Ikibazo ca Mwambutsa ntabwo cari gusa "umwami n'abatavuga rumwe na we."
 
 Cari ikibazo cagutse:

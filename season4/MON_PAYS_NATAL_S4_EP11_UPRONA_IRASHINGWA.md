@@ -30,6 +30,16 @@ Ni ukuvuga: n'urugamba rwo kwikukira ubwarwo, rwagumye rufitaniye isano n'amasha
 
 ---
 
+**[CITATION — 🟢/🟡]**
+
+Warren Weinstein (1976, biciye kuri Wikipedia "Union for National Progress") yemeza ko UPRONA yari, mu ntango, ifitaniye isano ikomeye n'umugwi wa Bezi — bihuye n'ivyavuzwe hejuru. Ubwo bufatanye ntibwaguma: bwararanguwe inyuma y'amakimbirane hagati ya Rwagasore na se, Mwambutsa.
+
+Ku bijanye n'itariki UPRONA yashingiweko: nta ntumbero imwe rukumbi ihari mu bahinga. Leopold Biha na René Lemarchand (1970) bavuga 1957; Ellen Eggers (2006) avuga impera y'imyaka ya 1950; Ludo De Witte (2021) avuga inama za mbere za Nzero-Gitugutu 1958; naho guverineri Jean-Paul Harroy avuga impera y'1959. Christine Deslaurier na yo (biciye kuri Cairn.info) avuga "créé à la fin de l'année 1958" — ni yo dukurikije aha, ariko ikwiye gufatwa nk'imwe mu tariki zishoboka, atari nk'ukuri kutavuguruzwa.
+
+---
+
+---
+
 Rwagasore afise ubushobozi, umuryango w'ubwami, n'ivyifuzo bikomeye ku gihugu ciwe.
 
 Kandi umwaka umwe uri imbere, azohindura amateka y'Uburundi.
