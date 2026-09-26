@@ -56,11 +56,9 @@ Amasoko menshi yemeza ko iyi nzego yakomejwe cane mu ngoma ya Ntare Rugamba, itu
 
 ---
 
-## Ikinyuranyo ca Newbury
+## Ikinyuranyo kikomeye
 
-Ariko David Newbury atubwira ikintu gikomeye, agikoresha mu buryo butomoye cane:
-
-🔴 *(Iki gitekerezo cashizwe ku izina rya David Newbury ntikiraboneka mu masoko dufise ubu, canke nashoboye kuronka kuri internet — kigomba kwongera kwemezwa ku gitabo ciwe nyaco.)*
+[FR-CITATION] 🟢 Wikipedia "Kingdom of Burundi" (ikurikiza Seitz 1989 na Watt 2016) ivuga ko ivyemezo Ntare Rugamba yafashe ku bijanye n'uburyo yagabiye abahungu biwe uturere yari amaze gutsinda vyagize ingaruka zikomeye ku bwami: abo bahungu (Abatare) baje kuba abakomeye, bagatwara agace kanini k'igihugu mu myaka yakurikiye, bagahiganwa n'umuhungu yasize ku ngoma (Mwezi IV Gisabo).
 
 Ntare yari afise ubushobozi bwo gushira abahungu biwe mu turere.
 

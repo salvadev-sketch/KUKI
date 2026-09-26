@@ -20,7 +20,11 @@ Izina Ryansoro ubwaryo risobanurwa mu migenzo nk'**"itongo rya Nsoro"** — ubut
 
 Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato.
 
-[FR-CITATION] 🟡 Nasanze muri Chrétien (1981) ikindi kintu gitandukanye: aho avuga ko "Rufuku" ari rimwe mu mazina ya Ntare Rushatsi ubwiwe (Rufuku, "Imvubu," biva ku mugani "Rufuku rwafukiye Uburundi"), atari izina ry'umuvyeyi wa Ntwero. Muri kimwe mu bisigo (ico Vansina yise "l'Anonyme de Kigamba"), harimwo Ntare wa mbere yitwa "Rushatsi ou Rufuku (ou encore Ruhinda)," hanyuma nyuma y'ivyago biba muri uwo muryango, "Ntwero" akaza nk'uwakomotse ku muryango wa nyuma. 🔴 *(Iyi si iyo ndondogoro nyene EP02 ivuga — igomba kwongera gusuzumwa hano, kuko Chrétien avuga ikindi kintu gitandukanye n'ico dusanzwe tuvuze.)*
+[FR-CITATION] 🟢 Chrétien (1981) yemeza ko "Rufuku" (ikinyugunyugu, canke inyamaswa yacukuye ubutaka) ari rimwe mu mazina ya Ntare Rushatsi ubwiwe, kandi ko iryo zina rigaragara mu migenzo hafi yose y'iki gice — harimwo n'iy'iyi EP02 ikurikiza (icibare c'inkuru za Nkoma abarungitsi barundamiye ni 64). Umugani "Rufuku rwafukiye Uburundi" ntuvuguruza rero inkuru y'iyi episode — urayikomeza.
+
+[FR-CITATION] 🟡 Chrétien avuga na none ku rundi rurondogoro rutandukanye rwose, ico Jan Vansina yise "l'Anonyme de Kigamba" — inkuru imwe rudende, yakuwe ku muvugizi umwerukumbi mu 1959 ahitwa Cankuzo. Muri iyo nkuru, Ntare wa mbere (Rushatsi/Rufuku/Ruhinda) yari umwami w'igihugu c'i Kiremera; iyo apfuye, abana biwe babiri (Bubinga na Buhura) baratongana ku ngoma; nyuma y'amapfa akomeye, abarozi barondera uwundi mwami, baramubona ari umukorikori bita Ntare Biti; ku muryango wa uwo Ntare Biti niho hazokomoka uwitwa "Ntare Bitwero" (canke Ntwero), uwaje gutwara Ubututsi.
+
+🟡 *(Iyi si urundi ruhande rw'inkuru imwe EP02 ivuga — ni indi nkuru yose, ivuye ahandi, ku muvugizi umwe gusa, kandi Chrétien ubwiwe ayita "isolée," ayitandukanya n'imigenzo ikomeye ya Nkoma na Kanyaru. Ntitwoyifata nk'ikintu kigomba guhuzwa n'iy'iyi EP02 canke kuyivuguruza; ni ubundi buryo bwose bwo kuvuga inkomoko y'ubwami, buvuye ku muvugizi umwe gusa, bufise uburemere buke ugereranije n'imigenzo ya Nkoma isanzwe.)*
 
 Tuzobika izo mvyerekano zombi. Ntituzohitamwo imwe ngo ni yo y'ukuri.
 
