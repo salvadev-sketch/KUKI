@@ -56,7 +56,7 @@ Igihe se yapfa, Gisabo ntiyari afise ubushobozi bwo gutegeka ku giti ciwe.
 
 Yari akeneye umuntu wo kumurera, kumufasha, kumurinda — mu gihe c'ubwana bwiwe.
 
-[FR-CITATION] 🟡 Royalark.net yagize iti: « Reigned under the Regency of his elder half-brother, Prince Ndivyariye, until he came of age and assumed full powers, 1860 » — arivyo bisobanura mu Kirundi ngo: "Yategetse munsi y'ubutegetsi bw'umuvukanyi wiwe mukuru, Umuganwa Ndivyariye, kugeza igihe akuze, afata ububasha bwuzuye, mu 1860."
+[FR-CITATION] 🟡 Royalark.net avuga ko yategetse munsi y'ubutegetsi bw'umuvukanyi wiwe mukuru, Umuganwa Ndivyariye, kugeza igihe akuze, afata ububasha bwuzuye, mu 1860.
 
 ---
 
