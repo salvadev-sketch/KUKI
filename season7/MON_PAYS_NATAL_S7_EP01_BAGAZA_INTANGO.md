@@ -18,7 +18,7 @@ Yasubiye mu Burundi mu **1971**, aba officier instructeur, hanyuma officier muri
 
 Mu **1972**, agirwa **Deputy Chief of Staff**.
 
-[FR-CITATION] 🟡 Itariki yo gusubira mu Burundi (1971) irahuye n'amasoko yose. Ariko ku birebana n'urwego rwiwe rwo mu 1972, isoko rimwe (prabook) ryerekana ko yari "Assistant to General Ndabemeye" hanyuma akaba "Chief of Staff of the Armed Forces" ku rugero rwa Lieutenant-Colonel — atari "Deputy Chief of Staff" nk'uko biri hano. Iyi nsobanuro igomba kwongera gusuzumwa.
+[FR-CITATION] 🟢 Urwego rwa "Deputy Chief of Staff" (Chef d'État-Major Adjoint) rwemejwe na Wikipedia ("1976 Burundian coup d'état") na IWACU (ingingo yerekeye ihirikwa rya Micombero), zombi zerekana Bagaza muri urwo rwego imbere ya 1976. Isoko rimwe (prabook) ryari ryatanze indi nsobanuro ("Assistant to General Ndabemeye"), ariko iyo nsobanuro isa n'iyoroshye kurusha, atari ivuguruzanya nyaco.
 
 ---
 
