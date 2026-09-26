@@ -22,6 +22,12 @@ Ni co gituma, nka se imbere yiwe, habayeho **regency**.
 
 ---
 
+**[CITATION — 🟢]**
+
+Warren Weinstein, *Historical Dictionary of Burundi* (Scarecrow Press, 1976) na Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African Biography* (Oxford University Press, 2008), bemeza itariki y'ivuko (6 Rusama 1912, i Nyabiyogi), itariki yo kwimikwa (16 Kigarama 1915), na nyina (Ngenzahago/Ngenzahayo, w'ubwoko bwa Munyagisaka).
+
+---
+
 Ubu, Uburundi bwari bufise umwami wa gatatu akurikirana ategekwa n'abandi kubera ubwana — Mwezi Gisabo, Mutaga IV, na ubu Mwambutsa IV.
 
 Ariko iyi ngoma, ku bwabo bose, izoba iyirekire kurusha izindi zose.

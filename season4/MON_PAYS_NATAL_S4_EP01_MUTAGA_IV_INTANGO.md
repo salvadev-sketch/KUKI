@@ -34,4 +34,12 @@ Ico dushobora kuvuga ku bwizewe ni ikintu kimwe: **umwami mushasha yari akiri um
 
 Kandi umwana ntashobora gutegeka wenyene.
 
+---
+
+**[CITATION — 🟡]**
+
+Ikibazo ca nyina ntabwo ari igitekerezo cacu: ni impaka ziri no mu masoko y'ibanze ubwayo. Ellen K. Eggers, *Historical Dictionary of Burundi* (Scarecrow Press, 2006) — biciye ku nzandiko z'incakuntu za Wikipedia zishingiyeho — zitandukana zonyene hagati yazo: imwe ivuga nyina ari **Ntibanyiha**, indi ikavuga ari **Ririkumutima**. Nta soko rimwe rikomeye ryemeza kimwe cuzuye. Ntawe muri twebwe agomba kubihimba: turacyafata iyo mpaka nk'uko iri, nk'uko dossier yacu ibivuga.
+
+---
+
 **MON PAYS NATAL — SEASON 4 — EP02 — RIRIKUMUTIMA NA NTIBANYIHA**, ni ho tuzoraba abari bafise ubushobozi bwo kuyobora igihugu mu izina ryiwe.

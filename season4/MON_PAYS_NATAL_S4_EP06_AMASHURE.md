@@ -22,6 +22,16 @@ Iyi ni imwe mu nkuru zishimishije: Umuganwa yigishwa n'abamisiyonari, ariko akag
 
 ---
 
+**[CITATION — 🟢]**
+
+Warren Weinstein, *Historical Dictionary of Burundi* (Metuchen: Scarecrow Press, 1976), p. 199, hamwe na Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African Biography* (Oxford University Press, 2008), bombi bemeza ibi bintu bine: ishure ry'i Muramvya ryatanguye mu 1925, mission ya Bukeye yashinzwe imyaka ibiri inyuma yaho (1927) ifise intumbero zombi (kwigisha no guhindura Mwambutsa umukatolika), n'uko:
+
+*"Mwambutsa's performance in school was undistinguished and he never converted."*
+
+Muri Kirundi: umwete wiwe mu ishure ntiwari uw'igitangaza, kandi ntiyigeze ahinduka umukatolika.
+
+---
+
 Nyuma yaho, azoshaka umugore w'umukristu. Ariko ivyo ntibisobanura ko Mwambutsa ubwiwe yabaye Umukatolika. Ni ibintu bibiri bitandukanye, kandi tudakwiye kubivanga.
 
 ---
