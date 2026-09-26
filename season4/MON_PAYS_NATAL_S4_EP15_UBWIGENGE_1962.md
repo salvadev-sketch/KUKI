@@ -2,6 +2,14 @@
 
 Ku wa 1 Mukakaro 1962, Uburundi bwararonse ubwigenge.
 
+---
+
+**[CITATION — 🟢]**
+
+Itariki y'ubwigenge bw'Uburundi (1 Mukakaro/Nyakanga 1962, biciye ku mpuzamakungu) ni imwe mu tariki zizwi cane, zemejwe n'amasoko yose adasiba (ONU, Wikipedia, ibitabu vyose vy'amateka y'Uburundi).
+
+---
+
 Ariko iyi ntsinzi yashitse, umuhungu wari yarayiharaniye kurusha abandi ntiyari akiriho kuyibona.
 
 ---

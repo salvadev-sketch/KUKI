@@ -26,4 +26,12 @@ Kuri Mwambutsa, iyi yari intsinzi ikomeye ku muryango wiwe.
 
 Ariko iyo ntsinzi ntiyari kumara igihe kirekire.
 
+---
+
+**[CITATION — 🟢]**
+
+René Lemarchand, *Rwanda and Burundi* (Pall Mall Press, 1970), p. 340, hamwe n'amasoko menshi (Weinstein 1976; Iwacu-Burundi; Yaga-Burundi) yemeza itariki y'amatora (18 Nzeri 1961) n'igitigiri cy'imyanya (UPRONA: 58; Front Commun: 6, kuri 64 zose) hamwe n'itariki Rwagasore yagizwe umushikiranganji wa mbere (28 Nzeri 1961).
+
+---
+
 **MON PAYS NATAL — SEASON 4 — EP14 — URUPFU RWA RWAGASORE**, ni ho tuzoraba icahavuye.

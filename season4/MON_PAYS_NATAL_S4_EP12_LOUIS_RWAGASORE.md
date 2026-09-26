@@ -20,6 +20,14 @@ Muri sosiyete Mwambutsa yashakaga kugumana ikibanza c'umwami kirenze imigwi ya p
 
 ---
 
+**[CITATION — 🟢]**
+
+René Lemarchand (1970, biciye kuri Wikipedia) yerekana neza iryo hurizo ridasanzwe: kubera ko Rwagasore yari umuganwa (afitaniye isano n'ubwami), ntiyashoboraga kwitwa umuyobozi ku izina rya UPRONA ku mugaragaro — yaserukiye gusa nk'**umujyanama (advisor)**, naho mu vy'ukuri ari we yayoboraga umugambwe.
+
+---
+
+---
+
 Iyi si inkuru yoroshe y'umuhungu akurikira se mu bikorwa.
 
 Kuko Mwambutsa yagumye ku bwami, atifatanya n'umugambwe uwo ari wo wose ku mugaragaro — mu gihe umuhungu wiwe yari amaze kwinjira imbere mu rugamba rwa politike, mu buryo bukomeye.
