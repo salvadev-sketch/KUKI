@@ -40,6 +40,8 @@ Ivyo vyatumye havuka imigwi ibiri: Ndivyariye na Twarereye ku ruhande rumwe; Mwe
 
 Ntitwovuga ngo tuzi neza insiguro nyayo hagati ya zo zombi. Ni imigenzo y'akanwa, kandi imigenzo, mu bihe nk'ivyo, ikunda kwiganjiramwo ikibazo kimwe, kigatuma ibindi bikwirakwira.
 
+[FR-CITATION] 🟡 Iyi migenzo ibiri itandukanye ivuye ku "Yaga Burundi" no ku bushakashatsi bwa Université du Burundi, nk'uko byavuzwe hejuru — ntawundi mwanditsi (Chrétien, Nduwamahoro) uyivuga muri iyi repo. Igomba kwongera kwemezwa niba dushaka kuyongera ku rwego rwo hejuru.
+
 ---
 
 Ico dushobora kuvuga neza ni iki: mu ntango y'ingoma ya Mwezi Gisabo, umwana w'umwami yari akiri muto, afise umurezi ukomeye, uwo umurezi na we afise ivyifuzo vyiwe bwite.

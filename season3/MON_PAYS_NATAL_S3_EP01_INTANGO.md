@@ -24,7 +24,7 @@ Ariko imbere yo kuraba icamugejeje kure, dutegerezwa gutangura aho igihe cose du
 
 Se yari **Ntare IV Rutaganzwa Rugamba** — uwo twize mu Season 2, umwami yaguye ubwami akubya kabiri, akashiraho ibikanga, akongera akagabira abahungu biwe uturere.
 
-Nyina, kuri we, ntiturabizi. BBG ntitanga izina.
+Nyina, kuri we, ntiturabizi. Amasoko dufise ubu ntatanga izina.
 
 Naho abamubanjirije bose, muri urwo rutonde, hari usanga nyina bavugwa (Msabiyije wa Ntare Rugamba, Inanzerwe ya Mwezi Nyaburunga...), Gisabo yagumye ari umwe muri bo dutazi nyina wiwe. Ntitwoshaka kwiyumvira izina, nk'uko twagenje kuri Rufuku muri Season 1.
 
@@ -55,6 +55,8 @@ Twaramaze kubona, mu isozero rya Season 2, ukuntu se, Ntare Rugamba, yashize aba
 Igihe se yapfa, Gisabo ntiyari afise ubushobozi bwo gutegeka ku giti ciwe.
 
 Yari akeneye umuntu wo kumurera, kumufasha, kumurinda — mu gihe c'ubwana bwiwe.
+
+[FR-CITATION] 🟡 Royalark.net yagize iti: « Reigned under the Regency of his elder half-brother, Prince Ndivyariye, until he came of age and assumed full powers, 1860 » — arivyo bisobanura mu Kirundi ngo: "Yategetse munsi y'ubutegetsi bw'umuvukanyi wiwe mukuru, Umuganwa Ndivyariye, kugeza igihe akuze, afata ububasha bwuzuye, mu 1860."
 
 ---
 
