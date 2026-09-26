@@ -10,7 +10,11 @@ Ariko ivyo vyonyene ntibihagije kuvuga ko yagize uruhara mu bwicanyi.
 
 Hari amasoko avuga ko yagize uruhara muri repression yo mu 1972, ariko akongerako ko urugero n'imiterere nyayo y'uruhara rwiwe bitatomoye neza.
 
+[FR-CITATION] 🟡 Iyi nkuru y'ukudashira ku murongo umwe iragaragara mu masoko: Wikipedia (ikurikiza FactSnippet) ivuga ko Bagaza yagize uruhara mu bwicanyi bwa 1972, ariko ikongerako ko "urugero canke imiterere y'uruhara rwiwe" bigumye "bitatomoye" (*unclear*). Iyindi soko (burundi-forum.org, urwandiko rwo mu 2016) na rwo rubona Bagaza ku rugero rutandukanye n'urwa Micombero na Buyoya, ariko ntiruvuga ko atagize uruhara na hato.
+
 Ariko hari isoko rimwe rikomeye, iry'umwanditsi wa Le Monde yo mu 2016, rivuga ikintu gitandukanye: ko Bagaza **"ne fait pas partie des 'bouchers' identifiés"** — ni ukuvuga ko atari mu bantu bari baramenyekanye nk'abategetsi b'ingenzi b'ubwicanyi.
+
+🟡 *(Sinabashije kubona iyi nkuru ubwayo (urwandiko rwa Le Monde 2016) mu bushakashatsi bwanjye bwo kuri internet muri iki gihe — ntibivuze ko atari ho, ariko ntabwo nashoboye kuyemeza ubwanjye. Iki gice kigomba kwongera gushakwa mu ngingo za Le Monde zerekeye urupfu rwa Bagaza mu 2016.)*
 
 ---
 
