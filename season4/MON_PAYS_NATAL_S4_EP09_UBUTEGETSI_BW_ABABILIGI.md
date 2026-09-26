@@ -12,6 +12,14 @@ Ubwami n'ubuyobozi bwa kera bw'Uburundi vyagumyeho. Umwami akomeza kuboneka, ako
 
 ---
 
+**[CITATION — 🟢]**
+
+Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African Biography* (Oxford University Press, 2008), yemeza ko Ababiligi bakomeje kugumya abami b'Uburundi na Rwanda ku ngoma bakoresheje politike y'"indirect rule" — ijambo nyaco ryakoreshejwe.
+
+---
+
+---
+
 Mwambutsa rero yagumye ku ngoma. Ntiyakuweho igihe Ababiligi bafata igihugu.
 
 Ahubwo, yabaye umwe mu bantu bakomeye mu butegetsi bw'ico gihe — ariko ubutegetsi bwiwe bwari bufitaniye imbibe n'ivyo Ababiligi bemera.

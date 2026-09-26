@@ -6,6 +6,14 @@ Mwambutsa IV yari amaze kugera ku myaka imwemerera gutwara igihugu ku giti ciwe.
 
 ---
 
+**[CITATION — 🟢]**
+
+Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African Biography* (Oxford University Press, 2008), yemeza ko regency council yatangaje ko Mwambutsa amaze kugera ku myaka ikwiye ku ngoma ku wa 28 Myandagaro 1929.
+
+---
+
+---
+
 Aha, dutandukanya ibihe bibiri by'ingoma yiwe.
 
 **1915 — 1929:** umwami w'umwana, igihugu gifashijwe na regency.

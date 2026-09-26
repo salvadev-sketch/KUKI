@@ -18,10 +18,18 @@ Kuko uko ubwigenge bwari bugenda bwiyegereza, umwami ntiyari gushobora kuguma ku
 
 ---
 
-Mu **1948**, Ababiligi baremeye ko imigambwe ya politike itangura gukora mu Burundi.
+Mu **1959**, Ababiligi baremeye ko imigambwe ya politike itangura gukora mu Burundi (declaration yo ku wa 10 Ugushyingo 1959, yemeza multipartisme).
 
-Umwe muri iyo migambwe uzoba ukomeye cane ni **UPRONA — Union pour le Progrès National.**
+Umwe muri iyo migambwe uzoba ukomeye cane ni **UPRONA — Union pour le Progrès National**, uwashinzwe mu 1958, uwemejwe ku mugaragaro ku wa 7 Mutarama 1960.
 
 Kandi mu bayobozi bakomeye ba UPRONA, hari umwe mu bana ba Mwambutsa ubwiwe.
+
+---
+
+**[CITATION — 🟢]**
+
+Isoko rimwe (Wikipedia, paji y'incamake "Burundi") ryari ritanga itariki ya 1948 ku ntango y'imigambwe ya politike, ariko iryo jambo ntirifise inote y'isoko kandi ntiryemejwe n'ayandi masoko. Amasoko menshi yubatswe ku bushakashatsi (Warren Weinstein 1976; René Lemarchand 1970; Histoire du Burundi - Wikipédia FR; Yaga-Burundi) ahurira yose ku ntango nyayo: UPRONA yashinzwe mu 1958, Ababiligi bakemeje politique ya multipartisme ku wa 10 Ugushyingo 1959, naho UPRONA yemejwe ku mugaragaro (agréé) ku wa 7 Mutarama 1960. Iyi tariki (1959/1960) ni yo dukoresheje aha, aho gukoresha 1948.
+
+---
 
 **MON PAYS NATAL — SEASON 4 — EP11 — UPRONA IRASHINGWA**, ni ho tuzomubona.
