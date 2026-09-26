@@ -42,17 +42,9 @@ Iya kabiri ivuga ko yapfuye azize **malaria**, inyuma yo kwinjira mu **Murangara
 
 Nta gihamya gikomeye gitandukanya izo nkuru zombi.
 
+[FR-CITATION] 🟡 Isoko rimwe ry'inyongera (chronologie itaragenzuwe cane) ritanga insobanuro y'uko Bangura yasanzwe arondera umugore wa Mutaga — iyi nsobanuro dukwiye kuyikurikirana imbere yo kuyemeza burundu, kuko itandukanye gato n'ivyavuzwe mu masoko akomeye. Igitabu ca Jean-Pierre Chrétien, *Gitega, capitale du Burundi: une ville du Far West en Afrique orientale allemande (1912-1916)* (Karthala, 2015), na co ni isoko rikomeye cane ku ngingo y'umurwa mushasha, riranditse gusa ku bijanye n'ukugushingwa kwa Gitega.
+
 Ku bw'ivyo, kuri iyi documentaire, ntituzemeza imwe muri zo nk'ukuri: **Mutaga IV yapfuye ku wa 30 Munyonyo 1915 — ariko igituma yapfuye kigumye kitasobanutse.**
-
----
-
-**[CITATION — 🟢/🟡]**
-
-Jean-Pierre Chrétien, *Gitega, capitale du Burundi: une ville du Far West en Afrique orientale allemande (1912-1916)* (Karthala, 2015) — igitabu cose kiranditswe ku kugushingwa kwa Gitega n'Abadagi mu 1912, ikaba ari isoko rikomeye cane ku ngingo y'umurwa mushasha.
-
-Ku rupfu rwa Mutaga IV: Eggers (2006, biciye kuri Wikipedia) yemeza itariki (30 Munyonyo 1915) n'inkuru y'amakimbirane na Bangura. Isoko rimwe ry'inyongera (chronologie itaragenzuwe cane) ritanga insobanuro y'uko Bangura yasanzwe arondera umugore wa Mutaga — iyi ni insobanuro dukwiye kuyikurikirana imbere yo kuyemeza burundu.
-
-Insobanuro ya kabiri (urupfu bivuye kuri malaria mu Murangara) — nasanze isoko rivuga ivya malaria, ariko rijanye n'urupfu rwa **se, Mwezi Gisabo**, atari urwa Mutaga IV. Iki nticemeza ko dossier yanyu ari mabi (birashoboka ko hari amasoko abiri atandukanye), ariko ikwiye gucheza imbere yo kwemeza iyi nkuru nk'iyanditswe.
 
 ---
 
