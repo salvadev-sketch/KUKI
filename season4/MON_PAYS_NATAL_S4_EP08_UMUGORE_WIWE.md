@@ -6,6 +6,14 @@ Umugore wiwe yitwa **Thérèse Kanyonga**, avuga ko yari uwo mu muryango w'Abasi
 
 ---
 
+**[CITATION — 🟢]**
+
+Warren Weinstein, *Historical Dictionary of Burundi* (Scarecrow Press, 1976) na Jean-Pierre Chrétien, "Mwambutsa IV Bangiricenge," muri *Dictionary of African Biography* (Oxford University Press, 2008), bemeza itariki y'ubukwe (24 Kigarama 1930), izina rya Thérèse Kanyonga n'ubwoko bwiwe (Abasine), n'uko Mwambutsa yamwubatse ku bw'uko ari umukatolika. Amazina y'abana bane (Rwagasore, Iribagiza, Kanyange, Ndizeye) na yo arahuye n'ayo masoko.
+
+---
+
+---
+
 Bararonse abana.
 
 Muri bo, bane bazoba ingenzi cane muri iyi nkuru:
