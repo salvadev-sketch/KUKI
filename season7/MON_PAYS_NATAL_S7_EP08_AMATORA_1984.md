@@ -8,6 +8,8 @@ Ariko yari **candidat umwe gusa**.
 
 Yararonse hafi **99,6%** by'amajwi.
 
+[FR-CITATION] 🟡 UCA igira iti: « President Bagaza was re-elected with 99 percent of the vote on August 31, 1984 » — arivyo bisobanura mu Kirundi ngo: "Perezida Bagaza yongeye gutorwa n'amajwi 99% ku wa 31 Myandagaro 1984." (Umubare uri hano, 99,6%, ushobora kuba uvuye mu kindi kigereranyo gito, ariko ntitwahinduye ico gitigiri kikomeye c'intsinzi.)
+
 ---
 
 Aha hari contradiction ikomeye dukwiye kwerekana: amatora yarabaye, ariko nta mpari nyakuri y'abakandida bahari.
