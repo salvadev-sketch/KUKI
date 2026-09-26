@@ -22,11 +22,15 @@ Ng'aho, mu myaka yiwe ya nyuma, yarongoye **Vyano** — uwo azoba nyina wa uwomu
 
 Ibi bivuze ko Mwezi Gisabo yavutse mu myaka ya nyuma y'ubuzima bwa se, mu gihe Ntare Rugamba yari amaze gusubira inyuma y'intambara.
 
+[FR-CITATION] 🟢 Iyi nkuru yemejwe neza n'amasoko abiri atandukanye: thesis ya Nduwamahoro (asubiramwo Mworoha, 1987) na thesis ya Misago (2014), zombi zivuga uko Ntare Rugamba yasubiye i Mugera mu myaka ya nyuma y'ubuzima bwiwe, akaronka uruvyaro na Vyano — uwo azoba nyina wa Mwezi Gisabo. Misago (2014) asubiramwo n'inkuru y'umuvugizi, iheza ivyavuzwe n'umupfumu Ndwano imbere yaho, avuga ko Ntare azovyara "abami babiri" ni ho hakomoka izina Gisonga.
+
 ---
 
 ## Indwara
 
 Imigenzo ivuga ko Ntare Rugamba yaguye ku ndwara y'uruhu izwi nka **pian** (mu kinyamerika: *yaws*), indwara yandura biciye ku ruhu, ikwirakwira mu turere dushyuha two mu Afrika.
+
+[FR-CITATION] 🟡 Iki kintu kigaragara mu masoko abiri yo kuri internet: urubuga rwa yaga-burundi.com (rusubiramwo umuhinga Emile Mworoha) hamwe n'urubuga rwa itorero.org (rwitwa ry'ikinyoro, "Ibinyoro" mu Kirundi). Ariko ni masoko avuye kuri internet gusa, atari igitabu cacapuwe cemejwe cane — bityo tugumya iki kimenyetso ku rugero rwa 🟡, atari 🟢.
 
 Ntitwovuga ngo iyi ni yo mpamvu yonyene y'urupfu rwiwe. Ariko ni yo mvyerekano iboneka mu bushakashatsi bw'amateka.
 
@@ -38,6 +42,8 @@ Kandi none dufise ikintu tutari dufise imbere: ahantu bavuga ko Ntare Rugamba ya
 
 **Buruhukiro**, hafi y'umupaka w'u Rwanda.
 
+[FR-CITATION] 🟢 Urubuga rwa UNESCO ("Les paysages naturels sacrés de Muramvya, de Mpotsa et de Nkiko-Mugamba", whc.unesco.org) rwemeza ko igituba ca Ntare Rugamba giri i Buruhukiro, mu gace kari hagati y'imisozi Nyamigogo, Runyinya na Gatsinda, mu komine ya Muruta, intara ya Kayanza — gatandukanye n'ivyubahiro vy'abami bane ba mbere (bo i Budandari) na Mwezi Gisabo (Remera) na Mutaga Mbikije (Ramvya).
+
 Iri zina ryonyene rifise insobanuro ikomeye: "Buruhukiro" rifitaniye isano n'ijambo "kuruhuka" — ni nk'ahantu h'ipfundikizo, h'iruhuko rya nyuma.
 
 Ariko turasaba ubwitonzi: iri zina ry'ahantu rishobora no kuba ryarahawe iyo mva **kubera** ko ari ho umwami yaruhukiye, aho kuba ari ryo ryaho hambere. Ntitwoshira iyi nkuru ku rugero rumwe n'ivyemejwe n'ubucukuzi bw'ivyabaye.
@@ -48,7 +54,7 @@ Ariko turasaba ubwitonzi: iri zina ry'ahantu rishobora no kuba ryarahawe iyo mva
 
 Urutonde rw'ibihe rukoreshwa cane n'abashakashatsi rumushira hafi ya **1796–1850**. Ariko hari amasoko amwe avuga **1852**.
 
-Ntitwohitamwo imwe muri izo, kubera ko nta gihamya gihagije gitandukanya ukuri hagati yazo.
+[FR-CITATION] 🟡 Thesis ya Nduwamahoro (asubiramwo Mworoha, 1987: 129) ikoresha 1796-1850. Ariko iyo thesis nyene ivuga ahandi ko hari amasoko (nka Nsanze) avuga ko Twarereye yoba yari asamuragwa w'ingoma yari gutangura mu 1852 — akaba ari na ho hava iryo tandukaniro. Ntitwohitamwo imwe muri izo tariki, kubera ko nta gihamya gihagije gitandukanya ukuri hagati yazo.
 
 ---
 

@@ -26,9 +26,9 @@ Haciye habaho ihiganwa rikomeye, riva mu mashami abiri:
 
 ---
 
-Jean-Pierre Chrétien yerekana ko ayo mashami yombi yabaye amasoko akomeye y'ubutegetsi mu Burundi bwo mu bihe vyakurikiye ingoma ya Ntare Rugamba.
+[FR-CITATION] 🟡 Jean-Pierre Chrétien, mu bikorwa vyiwe birebana n'amateka y'Ibiyaga Bigari muri rusangi, yerekana ko amashami nk'aya (abakomoka ku bami batandukanye bahiganwa ubutegetsi) yaba amasoko akomeye y'amatati mu bwami bwo mu Biyaga Bigari — ariko ntibemeje ko ikiganiro kiri hano cavuye ku gitabo kimwe cagaragaje icese ivyabaye vya Batare na Bezi.
 
-Newbury na we avuga ko inyuma y'urupfu rwa Ntare Rugamba habaye ihiganwa rikomeye hagati y'iyo mirongo yombi, cane cane mu gihe ca Mwezi Gisabo.
+[FR-CITATION] 🟢 Wikipedia "Kingdom of Burundi" (ikurikiza Seitz 1989 na Strizek 2006) ivyemeza neza: inyuma y'urupfu rwa Ntare Rugamba, Mwezi Gisabo yagumye afise ubutegetsi ku gice kimwe c'igihugu gusa, ikindi kigice kikaguma mu maboko y'abavukana biwe (Abatare) n'abakomotse kuri bo, ihiganwa hakaba ryarakomeje imyaka myinshi.
 
 ---
 

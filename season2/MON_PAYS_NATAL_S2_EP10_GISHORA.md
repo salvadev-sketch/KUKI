@@ -10,6 +10,8 @@ Yaje kuba kimwe mu bibanza bikomeye cane vy'ubwami bw'Uburundi.
 
 UNESCO, mu bushakashatsi bwayo ku bibanza bifise agaciro k'akaranga mu Burundi, yerekana Gishora nk'urugo rurimwo ibice bitandukanye: intangaro, ingoro y'ubwami, ikigo c'abatware, ikibanza c'ingoma zera, hamwe n'aho hafitaniye isano n'**Umuganuro**.
 
+[FR-CITATION] 🟢 Urubuga rwa UNESCO ("Résidence Royale de Gishora" na "La résidence royale du Burundi: Le cas de Gishora", whc.unesco.org) rwemeza iyi migabanyo neza: intangaro ni yo cour ibamwo ingoma zera (Ruciteme na Murimirwa), ingoro ni ho ubwami bwikorera, ikigo kikagira uruhara rw'ubukungu n'idini. Urwo rubuga runavuga ko urwo rugo rwashinzwe na Ntare Rugamba mu gice ca mbere c'ikinjana ca 19, inyuma y'intsinzi ku mwigomeke Ntibirangwa.
+
 Iyo migabanyo ntiyari ya politike gusa. Yari ihuza ubutegetsi n'idini mu kibanza kimwe — nk'uko twari twarabibonye kera muri Season 1, aho Ntare Rushatsi na Kiranga bagendanaga, umwe afise ubwami, uwundi afise ivy'Imana.
 
 ---
