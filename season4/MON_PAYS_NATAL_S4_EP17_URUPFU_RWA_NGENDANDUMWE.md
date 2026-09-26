@@ -24,7 +24,7 @@ Iyi ni inshuro ya kabiri Uburundi bubona umushikiranganji wabwo wa mbere agandag
 
 Rwagasore mu 1961. Ngendandumwe mu 1965.
 
-Ntabwo BBG iduha impamvu yizewe y'ubwicanyi bwombi. Ico dushobora kuvuga ni ico gisigaye: politike y'Uburundi yari yaratanguye kwikira mu bwicanyi.
+Amasoko dufise ubu ntaduha impamvu yizewe y'ubwicanyi bwombi. Ico dushobora kuvuga ni ico gisigaye: politike y'Uburundi yari yaratanguye kwikira mu bwicanyi.
 
 ---
 
