@@ -28,7 +28,7 @@ Ni na ko byari kuba hagati ya Mwezi na Ndivyariye — nk'uko amasoko atandukanye
 
 ---
 
-Ariko ni ikihe catumye amakimbirane atangura?
+Ariko ni ikihe catumye amatati atangura?
 
 Hano dutegerezwa kwitonda: ubushakashatsi bw'Université du Burundi bwerekana ko **imigenzo y'akanwa itanga insiguro zibiri**, atari imwe.
 

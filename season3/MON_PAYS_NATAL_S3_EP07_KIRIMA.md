@@ -12,7 +12,7 @@ Yitwa **Kirima**.
 
 Mu migenzo yakusanyijwe, Kirima yavuga ko akomoka kuri Ntare Rugamba, biciye ku mugore yavuye mu Bushi, yitwa **Nyamvura**.
 
-Iyi ni **imigenzo**, atari genealogy dushobora kwemeza nk'ukuri kutagira amakenga. Isoko ubwaryo rikoresha imvugo iserevya amakenga: Kirima "yivugako" ari umuragwa — atari ko yari azwi n'abandi ko ari we.
+Iyi ni **imigenzo**, atari umuryango dushobora kwemeza nk'ukuri kutagira amakenga. Isoko ubwaryo rikoresha imvugo iserevya amakenga: Kirima "yivugako" ari umuragwa — atari ko yari azwi n'abandi ko ari we.
 
 ---
 

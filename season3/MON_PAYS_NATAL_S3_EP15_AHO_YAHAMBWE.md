@@ -4,7 +4,7 @@ Inyandiko y'Intara ya Kayanza iraduha ahantu.
 
 Inyuma y'urupfu rwiwe, umubiri wa Mwezi Gisabo wajanywe i **Nkiko-Mugamba**.
 
-Aho **inganzo yiwe** — imva y'umwami — iri ku **musozi wa Remera**, muri zone Muruta, komine Muruta.
+Aho **inganzo yiwe** — imva y'umwami — iri ku **musozi wa Remera**, mu karere ka Muruta, komine Muruta.
 
 Kandi iri munsi y'uburinzi bw'**Abiru** — abo bacunga imigenzo n'ivy'idini vy'ubwami.
 

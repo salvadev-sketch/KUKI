@@ -16,7 +16,7 @@ Iyi si intambara imwe, iyabereye umusi umwe. Ni imyaka irenga icumi, y'ibitero b
 
 ---
 
-Chronology imwe ishira **1903** nk'umwaka w'ingenzi — aho Mwezi yatsinzwe mu buryo bwa gisirikare, biciye ku bufasha Abadagi baronse bo mu gihugu ubwaco.
+Urutonde rw'ibihe rumwe rushira **1903** nk'umwaka w'ingenzi — aho Mwezi yatsinzwe mu buryo bwa gisirikare, biciye ku bufasha Abadagi baronse bo mu gihugu ubwaco.
 
 Mu gihe c'urugamba, ibwami i **Muramvya** — icicaro ca Mwezi kuva kera — haratewe.
 
