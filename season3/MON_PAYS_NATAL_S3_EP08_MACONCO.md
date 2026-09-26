@@ -24,7 +24,7 @@ Maconco ntiyabyemeye.
 
 ---
 
-Ntitwoshaka gutwarwa n'iyo nkuru nk'aho ari yo yonyene yatumye amakimbirane akura hagati yabo. Imbwa imwe ntishobora, ku yindi mvo, gutera intambara nini. Ariko iyi nkuru y'imbwa igaragara mu masoko menshi nk'intandaro yavuzwe — kandi biboneka ko yaba ikimenyetso c'ikindi kintu gikomeye kurusha: ugusuzugura hagati y'umwami n'umukwe wiwe, mu buryo bw'icubahiro.
+Ntitwoshaka gutwarwa n'iyo nkuru nk'aho ari yo yonyene yatumye amatati yakura hagati yabo. Imbwa imwe ntishobora, ku yindi mvo, gutera intambara nini. Ariko iyi nkuru y'imbwa igaragara mu masoko menshi nk'intandaro yavuzwe — kandi biboneka ko yaba ikimenyetso c'ikindi kintu gikomeye kurusha: ugusuzugura hagati y'umwami n'umukwe wiwe, mu buryo bw'icubahiro.
 
 ---
 

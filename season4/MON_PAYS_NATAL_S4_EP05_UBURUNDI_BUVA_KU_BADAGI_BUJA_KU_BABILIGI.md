@@ -28,6 +28,12 @@ Mwambutsa IV rero, akiri umwana, yari amaze kubaho mu buhinduke bw'abakoroni bab
 
 ---
 
+**[CITATION — 🟢]**
+
+Anne Samson, "Ruanda and Urundi," muri *1914-1918-online: International Encyclopedia of the First World War* (2016), hamwe n'inzandiko za Wikipedia ("Ruanda-Urundi", "Belgium–Rwanda relations"), zemeza ko igisirikare c'Ababiligi (Force Publique) cafashe Urundi muri Kamena 1916, mu ntambara ya mbere y'isi yose muri Afrika y'Uburasirazuba.
+
+---
+
 Ariko ivyo bizoza vyose bikiri kure.
 
 Muri iyo myaka, umwana yari akigenda akura munsi ya regency, ata co ari we ubwiwe.

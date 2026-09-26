@@ -34,9 +34,9 @@ Inyuma y'urupfu rwiwe, uwamusubiriye ni umwana wiwe.
 
 Amasoko amuha imyaka 13 kugeza 15 — akiri muto cane.
 
-Ni co gituma, nk'uko twabibonye kuri Mwezi ubwiwe kera, igihugu carongowe n'abari mu **regency**.
+Ni co gituma, nk'uko twabibonye kuri Mwezi ubwiwe kera, igihugu carongowe n'abamufasha, umwami akiri muto.
 
-Hano hari umugore wa Mwezi Gisabo, yitwa **Ririkumutima**, uwagize uruhara rukomeye muri iyo regency — naho hari amasoko avuga ko atari nyina w'amaraso w'umwami mushasha. Nyina we ariko yitwa **Ntibanyiha Bizama**, mu masoko amwe. Ntitwovanga abo babiri.
+Hano hari umugore wa Mwezi Gisabo, yitwa **Ririkumutima**, uwagize uruhara rukomeye muri ubwo butegetsi bw'abamufasha — naho hari amasoko avuga ko atari nyina w'amaraso w'umwami mushasha. Nyina we ariko yitwa **Ntibanyiha Bizama**, mu masoko amwe. Ntitwovanga abo babiri.
 
 ---
 

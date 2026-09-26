@@ -46,6 +46,16 @@ Ku bw'ivyo, kuri iyi documentaire, ntituzemeza imwe muri zo nk'ukuri: **Mutaga I
 
 ---
 
+**[CITATION — 🟢/🟡]**
+
+Jean-Pierre Chrétien, *Gitega, capitale du Burundi: une ville du Far West en Afrique orientale allemande (1912-1916)* (Karthala, 2015) — igitabu cose kiranditswe ku kugushingwa kwa Gitega n'Abadagi mu 1912, ikaba ari isoko rikomeye cane ku ngingo y'umurwa mushasha.
+
+Ku rupfu rwa Mutaga IV: Eggers (2006, biciye kuri Wikipedia) yemeza itariki (30 Munyonyo 1915) n'inkuru y'amakimbirane na Bangura. Isoko rimwe ry'inyongera (chronologie itaragenzuwe cane) ritanga insobanuro y'uko Bangura yasanzwe arondera umugore wa Mutaga — iyi ni insobanuro dukwiye kuyikurikirana imbere yo kuyemeza burundu.
+
+Insobanuro ya kabiri (urupfu bivuye kuri malaria mu Murangara) — nasanze isoko rivuga ivya malaria, ariko rijanye n'urupfu rwa **se, Mwezi Gisabo**, atari urwa Mutaga IV. Iki nticemeza ko dossier yanyu ari mabi (birashoboka ko hari amasoko abiri atandukanye), ariko ikwiye gucheza imbere yo kwemeza iyi nkuru nk'iyanditswe.
+
+---
+
 Umubiri wiwe wahambwe i **Ramvya**, muri zone Nkonge — ahantu tuzi neza, bitandukanye n'abami ba kera aho amakuru make gusa yatugezeko.
 
 [FR-CITATION] 🟢 Urubuga rwa UNESCO ("Les paysages naturels sacrés de Muramvya, de Mpotsa et de Nkiko-Mugamba", whc.unesco.org) rwemeza ko igituba ca Mutaga Mbikije giri i Ramvya — gutandukana n'ivyubahiro vy'abami bane ba mbere (i Budandari) na Mwezi Gisabo (i Remera).
