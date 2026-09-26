@@ -24,7 +24,7 @@ Ariko ntitwoshaka gucira urubanza vy'ubusa, nk'uko twari twarabikoze mbere. Inzi
 
 Ariko naho ico cemezo casobanuwe gute, ingaruka zaco ntizateganijwe — kandi Bamina ubwiwe, uwavuwe ku mwanya gusa, ntiyari yaragera ku iherezo ry'urugendo rwiwe.
 
-**MON PAYS NATAL — SEASON 4 — EP20 — COUP YA GITUGUTU 1965**, ni ho tuzobibona.
+**MON PAYS NATAL — SEASON 4 — EP20 — GUTEMBAGAZA UBUTEGETSI (COUP D'ÉTAT) YA GITUGUTU 1965**, ni ho tuzobibona.
 
 ---
 
