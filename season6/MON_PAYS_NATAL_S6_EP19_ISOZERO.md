@@ -24,6 +24,6 @@ Ntitwovuga ko ari we, ku giti ciwe, yategetse buri gikorwa co kwica umuntu ku mu
 
 Aho ni ho amateka y'Uburundi, muri iyi documentaire, agezeko: umwami wa nyuma yishwe, igihugu kigwa mu bwicanyi bunini, Repubulika ya mbere igasozerwa n'igisirikare kongera gufata ubutegetsi.
 
-Ariko urugendo rwa Uburundi ntirwarangiye.
+Ariko imbere yo kubandanya urugendo rw'Uburundi, hari umuntu umwe tudakwiye kurenga: umwe mu bantu benshi bahitanywe n'ubwicanyi bwo mu 1972 twavuze mu buryo bw'imibare gusa — kandi uwo muntu ni umwanditsi, umusaserdoti, yasize inyuma ivyiyumviro bigumaho na n'ubu.
 
-**MON PAYS NATAL — SEASON 7 — JEAN-BAPTISTE BAGAZA**, ni ho tuzokomeza.
+**MON PAYS NATAL — SEASON 6 — EP20 — MICHEL KAYOYA: INTANGO**, ni ho tuzomumenya.
