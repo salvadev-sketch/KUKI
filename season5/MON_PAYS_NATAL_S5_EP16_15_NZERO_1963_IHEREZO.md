@@ -28,4 +28,6 @@ Iyi si inkuru y'abantu batanu biciwe gusa.
 
 Ni inkuru y'ingaruka: PDC, UPRONA, ubwigenge, n'ubutegetsi bwa mbere bw'Uburundi.
 
-**MON PAYS NATAL — SEASON 5 — EP17 — UMURAGE / ISOZERO**, ni ho tuzoheza urugendo rwa Louis Rwagasore.
+Ariko UPRONA ubwayo, umugambwe watsindiye ubwigenge, na wo ntiwari uciye impari. Hari umuntu w'ingenzi, twari twaramaze kuvuga izina rye gusa, uwo dutegerezwa kumenya vyimbitse.
+
+**MON PAYS NATAL — SEASON 5 — EP17 — MIREREKANO N'UBUTEGETSI BW'ABABILIGI**, ni ho tuzomumenya.
