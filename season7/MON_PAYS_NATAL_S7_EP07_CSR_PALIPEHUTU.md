@@ -12,7 +12,7 @@ Ariko mu wundi mwaka umwe nyene, **1980**, hari ikindi kintu kikomeye: Abahutu b
 
 Ntitwovange iki kintu na 1972. Ariko dukwiye kubona: mu ntango, Bagaza yavuze ku vyo yita reforms na reconciliation. Ariko opposition y'Abahutu yo hanze yariko irakura.
 
-[FR-CITATION] 🟢 UCA (Political Science Dept.) igira iti: « The Party for the Liberation of the Hutu People (Parti pour la Libération du Peuple Hutu – Palipehutu) was established in Tanzania in April 1980 » — arivyo bisobanura mu Kirundi ngo: "Umugambwe wo Gukura Abahutu (PALIPEHUTU) washinzwe mu Tanzaniya mu Ndamukiza 1980."
+[FR-CITATION] 🟢 UCA (Political Science Dept.) ivuga ko umugambwe wo Gukura Abahutu (PALIPEHUTU) washinzwe mu Tanzaniya mu Ndamukiza 1980.
 
 ---
 
@@ -20,13 +20,13 @@ Mu **Munyonyo 1981**, Itegeko Nshinga rishasha ryaratorewe muri referendum. Ryat
 
 Ariko Uburundi bwagumye ari **one-party state** iyobowe na UPRONA.
 
-[FR-CITATION] 🟢 UCA igira iti: « A new constitution establishing a presidential republic and single-party system was approved by 99 percent of the voters in a referendum held on November 18, 1981 » — arivyo bisobanura mu Kirundi ngo: "Itegeko Nshinga rishasha, rishiraho republika iyobowe na perezida hamwe n'uburyo bwa parti imwe, ryemejwe n'amajwi 99% mu referendum yo ku wa 18 Munyonyo 1981."
+[FR-CITATION] 🟢 UCA ivuga ko itegeko Nshinga rishasha, rishiraho republika iyobowe na perezida hamwe n'uburyo bwa parti imwe, ryemejwe n'amajwi 99% mu referendum yo ku wa 18 Munyonyo 1981.
 
 ---
 
 Mu **Gitugutu 1982**, habaye amatora ya mbere y'abashingamateka mu gihe c'ico Tegeko Nshinga rishasha.
 
-[FR-CITATION] 🟢 UCA igira iti: « Legislative elections were held on October 22, 1982, and the UPRONA won 52 out of 52 elective seats in the National Assembly » — arivyo bisobanura mu Kirundi ngo: "Amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 z'Inama Nshingamateka."
+[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 z'Inama Nshingamateka.
 
 Ivyo bidufasha kwibaza: Bagaza yari ariko aragendera kuri démocratie, canke kuri parti imwe yifashisha imigenge ya démocratie?
 

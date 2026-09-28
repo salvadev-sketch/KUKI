@@ -2,7 +2,7 @@
 
 Ku wa **3 Nyakanga (September) 1987**, Major **Pierre Buyoya** yahiritse Perezida Jean-Baptiste Bagaza.
 
-[FR-CITATION] 🟢 APA News (Igifaransa) igira iti: « Le major Pierre Buyoya renverse, le 3 septembre 1987, le président burundais Jean-Baptiste Bagaza lors d'un coup d'État militaire sans effusion de sang » — arivyo bisobanura mu Kirundi ngo: "Major Pierre Buyoya ahirika, ku wa 3 Nyakanga (September) 1987, Perezida Jean-Baptiste Bagaza mu gutembagaza ubutegetsi kw'abasirikare kutaravuye amaraso." Wikipedia ("1987 Burundian coup d'état") yemeza ko Buyoya yashinze Military Committee for National Salvation kandi ko yarahiye ku wa 2 Gitugutu 1987.
+[FR-CITATION] 🟢 APA News (Igifaransa) ivuga ko major Pierre Buyoya ahirika, ku wa 3 Nyakanga 1987, Perezida Jean-Baptiste Bagaza mu gutembagaza ubutegetsi kw'abasirikare kutaravuye amaraso. Wikipedia ("1987 Burundian coup d'état") yemeza ko Buyoya yashinze Military Committee for National Salvation kandi ko yarahiye ku wa 2 Gitugutu 1987.
 
 ---
 

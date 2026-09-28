@@ -10,7 +10,7 @@ Mu mpera z'ubutegetsi bwiwe, ikibazo c'ubutunzi caratanguye kugoranya.
 
 Amasoko y'Amerika yerekana ko, mu myaka ya 1986–87, imibereho y'ubutunzi bw'igihugu yari yaratanguye gutera ingorane, kandi imigenderanire n'abafatanyabikorwa bamwe b'amahanga yari iriko irahinduka.
 
-[FR-CITATION] 🟢 Archive y'IMF ubwayo ibitse inyandiko yo ku wa 8 Myandagaro 1986 yitwa « BURUNDI - 1986 ARTICLE IV CONSULTATION; REQUEST FOR STAND-BY ARRANGEMENT; AND REQUEST FOR STRUCTURAL ADJUSTMENT ARRANGEMENT » — arivyo bisobanura mu Kirundi ngo: "Burundi — isuzuma ry'Ingingo ya IV ryo mu 1986; gusaba inguzanyo y'igihe gito n'ingurane y'impinduka z'imiterere y'ubukungu." Iyo ni inyandiko y'igihe nyene, ishigikira ko ingorane zari zimaze kugera ku rugero rwo gusaba IMF ubufasha.
+[FR-CITATION] 🟢 Archive y'IMF ubwayo ibitse inyandiko yo ku wa 8 Myandagaro 1986 yitwa Burundi — isuzuma ry'Ingingo ya IV ryo mu 1986; gusaba inguzanyo y'igihe gito n'ingurane y'impinduka z'imiterere y'ubukungu. Iyo ni inyandiko y'igihe nyene, ishigikira ko ingorane zari zimaze kugera ku rugero rwo gusaba IMF ubufasha.
 
 [FR-CITATION] 🟡 Wikipedia ("1976 Burundian coup d'état") ivuga ko, mu 1986, ubukungu bwari bwarasubiye inyuma cane ku buryo Bagaza yategerezwa kwemera structural adjustment program ya IMF n'ya Banki y'Isi, irimwo kugabanya cane amafaranga y'igisirikare n'aya Leta; kandi ko ubufasha bw'amahanga (buri hafi 50% y'ayo Leta yatanga) bwari bwahagaritswe n'abagiraneza nka Bubiligi n'Ubufaransa, bahatira Leta gukora impinduka.
 

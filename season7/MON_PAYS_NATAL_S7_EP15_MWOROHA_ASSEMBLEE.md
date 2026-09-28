@@ -6,7 +6,7 @@ Assemblée Nationale nshasha yaragizwe n'abashingamateka 65.
 
 **Émile Mworoha aba Perezida wa Assemblée Nationale.**
 
-[FR-CITATION] 🟢 UCA igira iti: « Legislative elections were held on October 22, 1982, and the UPRONA won 52 out of 52 elective seats in the National Assembly » — arivyo bisobanura mu Kirundi ngo: "Amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 zatorerwa." Académie des sciences d'outre-mer yemeza ko Mworoha « De 1982 à 1987 il est président de l'Assemblée nationale du Burundi, jusqu'au renversement du gouvernement du Général Bagaza » — arivyo bisobanura mu Kirundi ngo: "kuva 1982 gushika 1987 yari perezida w'Inama Nshingamateka, gushika guhirikwa kwa guverinoma ya Jenerali Bagaza."
+[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 zatorerwa. Académie des sciences d'outre-mer yemeza ko Mworoha kuva 1982 gushika 1987 yari perezida w'Inama Nshingamateka, gushika guhirikwa kwa guverinoma ya Jenerali Bagaza.
 
 ---
 
@@ -14,7 +14,7 @@ Muri abo bashingamateka 65, **10 gusa bari Abahutu**.
 
 Iyi data igaragaza neza ikibazo c'urwego rw'uko amoko yari ahagarikiwe mu nzego z'ubutegetsi, mu gihe ca Bagaza.
 
-[FR-CITATION] 🟡 Spectrum Magazine yagize iti: « The Hutu majority only had five of nineteen ministerial positions and ten of the sixty-five seats in the National Assembly » — arivyo bisobanura mu Kirundi ngo: "Abahutu, nubwo ari benshi, bari bafise gusa imyanya itanu muri 19 y'abaminisitiri, n'intebe icumi muri 65 z'Inama Nshingamateka." (Iyo ni inyandiko y'itangazamakuru ry'idini, atari ubushakashatsi bw'amateka — igomba kwongera kwemezwa n'indi soko.)
+[FR-CITATION] 🟡 Spectrum Magazine ivuga ko abahutu, nubwo ari benshi, bari bafise gusa imyanya itanu muri 19 y'abaminisitiri, n'intebe icumi muri 65 z'Inama Nshingamateka. (Iyo ni inyandiko y'itangazamakuru ry'idini, atari ubushakashatsi bw'amateka — igomba kwongera kwemezwa n'indi soko.)
 
 ---
 

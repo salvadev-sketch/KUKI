@@ -34,7 +34,7 @@ Ivyo bisigaye — ubuzima bwiwe bwose mu buhungiro — bikeneye ubundi bushakash
 
 Uburundi bwari bumaze kubona abategetsi batatu bakurikirana bafashe ubutegetsi biciye kuri coup — Micombero, Bagaza, ubu na Buyoya.
 
-[FR-CITATION] 🟢 APA News yagize iti: « le renversement de Jean-Baptiste Bagaza par Pierre Buyoya constitue le troisième changement de pouvoir par la force depuis l'indépendance » — arivyo bisobanura mu Kirundi ngo: "guhirikwa kwa Jean-Baptiste Bagaza na Pierre Buyoya ni guhindura ubutegetsi kwa gatatu kwabaye ku ngufu kuva ku bwigenge."
+[FR-CITATION] 🟢 APA News ivuga ko guhirikwa kwa Jean-Baptiste Bagaza na Pierre Buyoya ni guhindura ubutegetsi kwa gatatu kwabaye ku ngufu kuva ku bwigenge.
 
 Ariko Buyoya na we azoza kugira inkuru yiwe idasanzwe, izokwerekana ko Uburundi bugifise urugendo rurerure imbere yaco.
 

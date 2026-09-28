@@ -4,7 +4,7 @@ Mu 1978, Émile Mworoha aba **Secrétaire Général wa UPRONA.**
 
 Iyi ni yo turning point ikomeye cane mu buzima bwiwe bwa politike.
 
-[FR-CITATION] 🟢 Académie des sciences d'outre-mer (2018) yagize iti: « De 1978 à 1987 il est secrétaire général du parti Uprona, grand parti nationaliste "tutsi" alors au pouvoir » — arivyo bisobanura mu Kirundi ngo: "Kuva 1978 gushika 1987 ni secrétaire général wa UPRONA, umugambwe mukuru w'ubwenegihugu 'w'Abatutsi' wari ku butegetsi."
+[FR-CITATION] 🟢 Académie des sciences d'outre-mer (2018) ivuga ko kuva 1978 gushika 1987 ni secrétaire général wa UPRONA, umugambwe mukuru w'ubwenegihugu 'w'Abatutsi' wari ku butegetsi.
 
 ---
 
