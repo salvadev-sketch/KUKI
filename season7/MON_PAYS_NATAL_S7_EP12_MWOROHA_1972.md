@@ -8,23 +8,23 @@ Hari umurwi tutari twaravuze cane: **Jeunesses Révolutionnaires Rwagasore — J
 
 Émile Mworoha yari **Secrétaire Général wa JRR**, mu gihe c'ubwicanyi bwo mu 1972.
 
-Muri Myandagaro 1972, yaciye avamwo uwo mwanya, aja i Buraya gukora études doctorales.
+[FR-CITATION] 🟢 IWACU ("1972 : JRR, un outil de la répression") yemeza ko Émile Mworoha yari Secrétaire Général wa JRR muri ico gihe. Iyo ngingo yanditse kandi ko abarwanashyaka ba JRR bakoze nk'abafasha b'ubutegetsi mu 1972 (bagenzura ibyangombwa, bakerekana abakekwa); ico ni igikorwa c'umuryango, ntitwakivuga nk'icigirwa n'umuntu umwe.
 
-🔴 *(Uruhare rwa Mworoha nka Secrétaire Général wa JRR mu 1972, kuva kuri uwo mwanya muri Myandagaro 1972, n'urugendo rwiwe i Buraya, ntibiraboneka mu masoko nashoboye kuronka kuri internet. Ivyo bigomba kwemezwa kuri Commission Vérité et Réconciliation ubwayo canke ku yindi nyandiko y'ibanze imbere yo kubivuga nk'ivyemejwe.)*
-
----
-
-Ariko hari ikindi kintu gikomeye cane: mu gihe c'ubwicanyi, **Mworoha yarandikiye Perezida Michel Micombero**.
-
-Intumbero y'iryo kete yari ukumenyesha Micombero ko, ku bw'iwe, uburyozwe bw'ivyari biriko biraba mu gihugu butari ubwa JRR — ahubwo bwari bufitaniye isano n'**appareil administratif et militaire**.
+🔴 *(Ivyerekeye kuva kuri uwo mwanya muri Myandagaro 1972 no kujya i Buraya gukora études doctorales ntitwabibonye mu masoko: turabikuyeho nk'ukuri kwemejwe.)*
 
 ---
 
-Iyi ni source ivuye kuri Commission Vérité et Réconciliation.
+Mworoha yarandikiye amabaruwa, harimwo rimwe ryo ku wa **15 Rusama 1972**.
 
-🔴 *(Inyandiko y'urwo rwandiko sinashoboye kuyironka. Kandi hakwiye kwibukwa ko CVR ubwayo ikomeje kunengwa n'abantu bamwe (n'itangazamakuru nka JusticeInfo) ko ishobora kuba igikoresho cya politike cya guverinoma iriho — ico ni ikintu cerekana ko iyi soko ikeneye kwongera kwemezwa n'indi.)*
+[FR-CITATION] 🟡 IWACU ("Hommage | Emile Mworoha, in memoriam", 2025) ivuga ko, nka Secrétaire Général wa JRR, ku wa 15 Rusama 1972 yandikiye abategetsi b'ubucamanza, ab'igisirikare n'ab'umutekano (sûreté), ababurira ku kwifashisha JRR mu bikorwa vy'urugomo no gusaba ko yakoreshwa mu kugarura amahoro. Ntitwabashije kuronka inyandiko y'urwo rwandiko ubwarwo. Inyandiko ya mbere yavuze ko yandikiye Perezida Micombero; amasoko dufise avuga abategetsi b'ubucamanza, igisirikare n'umutekano, atari Micombero wenyene.
 
-[FR-CITATION] 🟡 JusticeInfo.net (4 Ntwarante 2021) ivuga ko imirimo ya CVR yibanze ku bwicanyi bwo mu 1972 bwibasiye Abahutu... ni commission yari yaramaze kuvugwako ari igikoresho cya propagande y'ubutegetsi buriho.
+Iryo baruwa ryerekana ko ku bwiwe, uburyozwe bw'ivyariko biraba butari ubwa JRR nk'umuryango, ahubwo bwari bufitaniye isano n'ubutegetsi bw'igihugu n'igisirikare.
+
+🟡 *(Iyo ngingo ya IWACU ni hommage yanditswe nyuma y'urupfu rwiwe; hari kandi amasoko atunga urutoki Mworoha nk'uwagize uruhara muri JRR mu 1972 (nk'uko urubuga burundi-agnews.org rubivuga, rufise ingingo ishinja). Ivyo ni ibirego bitandukanye, bidashigikiwe n'ibimenyetso by'ibanze twabonye; tubishira ku ruhande rumwe n'irindi.)*
+
+---
+
+[FR-CITATION] 🟡 JusticeInfo.net (4 Ntwarante 2021) ivuga ko imirimo ya CVR yibanze ku bwicanyi bwo mu 1972 bwibasiye Abahutu, kandi ko ari commission yari yaramaze kuvugwako ari igikoresho cya propagande y'ubutegetsi buriho. Ico ni co gituma isoko ya CVR ikeneye kwemezwa n'indi.
 
 Ariko dutegerezwa kwandika neza: **"Mworoha yarandikiye Micombero..."** — ntitwovuga **"Mworoha yaciye ahagarika ubwicanyi."** Nta gihamya dufise yerekana ko iryo kete ryahinduye politike ya Micombero.
 

@@ -1,6 +1,8 @@
 # MON PAYS NATAL — SEASON 7 — EP06 — IVYAHINDUWE 1977–78
 
-Mu 1977, Bagaza yakuyeho **impôt de capitation** — amatagisi yari asanzwe yishurwa n'abanyagihugu bose. 🔴 *(Ukuraho impôt de capitation ntikuraboneka mu masoko nashoboye kuronka; ico nashoboye kwemeza ni impinduka ku butaka n'ubugererwa (reba hasi). Bigomba kwongera kwemezwa.)*
+Mu 1977, Bagaza yakuyeho **impôt de capitation** — amatagisi yari asanzwe yishurwa n'abanyagihugu bose.
+
+[FR-CITATION] 🟢 André Guichaoua (*Burundi: A Country in Search of Its History*, Université Paris 1 Panthéon-Sorbonne) yemeza ko ukuraho impôt de capitation kwabaye kuva mu mwaka w'ingengo y'imari wa 1977, hamwe no gukuraho ubugererwa. IWGIA (*The Indigenous World 2022*) yemeza itegeko ryabikuyeho: Decree-Law n° 1/19 ryo ku wa 30 Ruheshi 1977.
 
 ---
 

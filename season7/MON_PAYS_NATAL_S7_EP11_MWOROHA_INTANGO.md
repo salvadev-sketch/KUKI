@@ -8,11 +8,11 @@ Ariko uwo muhinga, na we, afise inkuru yiwe bwite — kandi ntiyagumye ku mwanya
 
 ---
 
-**Émile Mworoha** yavutse mu **1940**, ku mutumba wa **Mutana**, muri commune Muruta, mu karere ka Kayanza. Se yari Nyenibamfu Raphaël, nyina Mpuhuye Bernadette.
+**Émile Mworoha** yavutse mu **1940**, ku mutumba wa **Mutana**, muri commune Muruta, mu karere ka Kayanza.
 
 [FR-CITATION] 🟡 Burundische Diaspora in Deutschland e.V. (nachruf, 20 Ruheshi 2025) ivuga ko Prof. Émile Mworoha « wurde 1940 in Muruta (Provinz Kayanza) geboren » — arivyo bisobanura mu Kirundi ngo: "yavukiye i Muruta (intara ya Kayanza) mu 1940." IWACU na yo ivuga ko yavutse i Kayanza mu Ruhuhuma 1940.
 
-🔴 *(Izina ry'umutumba "Mutana" n'amazina y'ababyeyi (Nyenibamfu Raphaël, Mpuhuye Bernadette) ntibiraboneka mu masoko nashoboye kuronka — bigomba kwongera kwemezwa.)*
+[FR-CITATION] 🟢 IWACU ("Hommage | Emile Mworoha, in memoriam", 2025) ivuga ko yavukiye i Mutana (Muruta, Kayanza), mu ntara y'umutware mukuru Baranyanka, mu 1940. 🟡 Mu kiganiro "Au coin du feu" (IWACU, 2019) yavuze ko umutumba wiwe w'amavuka ari Ramvya (na bwo muri Muruta): amasoko yombi ahurira kuri Muruta, ariko izina ry'umutumba riratandukanye. Amazina y'ababyeyi ntitwayabonye mu masoko yizewe, ni co gituma tuyakuyeho.
 
 ---
 

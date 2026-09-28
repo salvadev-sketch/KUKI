@@ -6,7 +6,7 @@ Uwo mwanya yawugumyeho gushika mu 1978.
 
 [FR-CITATION] 🟢 Académie des sciences d'outre-mer (2018) ivuga ko ni n'umukinyi mu buzima bwa politike bw'igihugu ciwe. Mu 1976 aba ministre. IWACU (2018) yongera kuvuga ko yabaye « Minister of culture ».
 
-🔴 *(Izina ryuzuye ry'uwo mwanya ("Ministre de la Jeunesse, des Sports et de la Culture") n'itariki y'iherezo ryawo (1978) ntibiraboneka ku buryo bweruye mu masoko nashoboye kuronka — bigomba kwemezwa n'indi nyandiko (nka décret yo mu 1976).)*
+[FR-CITATION] 🟢 IWACU ("Au coin du feu avec Emile Mworoha", 2019, na "Le Professeur Emile Mworoha n'est plus", 2025) ivuga neza ko yabaye "ministre de la Jeunesse, des Sports et de la Culture (1976-1978)", ivyo bikemura izina ryuzuye ry'umwanya n'umwaka wo kurangira.
 
 ---
 

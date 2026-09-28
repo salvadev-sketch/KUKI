@@ -6,37 +6,34 @@ Ku wa **3 Nyakanga (September) 1987**, Major **Pierre Buyoya** yahiritse Perezid
 
 ---
 
-Ico gihe, Bagaza yari i **Québec, Canada**, mu nama y'abakuru b'ibihugu n'abategetsi ba Francophonie.
+Ico gihe, Bagaza yari i **Québec, Canada**, mu nama y'ibihugu bikoresha Igifaransa (Francophonie).
 
-Le Monde yanditse ko coup yabaye ata maraso menshi, kandi ko Bagaza, amaze kubimenya, yihuta ava Québec aja i Paris.
+[FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état"), Wikipedia ("1988 ethnic violence in Burundi") na Washington Post (biciye kuri Gulf News) zose zemeza ko Bagaza yari muri iyo nama i Québec igihe igisirikare cafata ubutegetsi.
 
-🔴 *(Igice c'uko Bagaza yagiye i Paris ntikiraboneka mu masoko nashoboye kuronka. Wikipedia ("1987 Burundian coup d'état") ivuga ko Bagaza yagerageje gusubira muri Afrika, ariko ikibuga c'indege ca Bujumbura cari cafunzwe, kandi ko i Nairobi yangiwe kwinjira muri Kenya, hanyuma akaja muri Uganda. Iyi nkuru ihabanye n'iyanditse hejuru — igomba kwongera kwemezwa mu nyandiko ya Le Monde nyamba.)*
+Amaze kumenya ico gikorwa, Bagaza yagerageje gusubira muri Afrika, ariko ikibuga c'indege ca Bujumbura cari cafunzwe, kandi i Nairobi yangiwe kwinjira muri Kenya. Yahungiye muri Uganda, hanyuma mu 1989 aja muri Libiya, aho yahawe ubuhungiro bwa politike.
 
-[FR-CITATION] 🟡 Le Monde (12 Nyakanga 1987, Jacques De Barrin, « Examen de passage pour le président Buyoya ») yanditse ku nama ya Goma yo ku wa 10 Nyakanga 1987, iminsi mike inyuma ya « putsch qui, au Burundi, avait chassé du pouvoir le colonel Jean-Baptiste Bagaza » — arivyo bisobanura mu Kirundi ngo: "gutembagaza ubutegetsi kwavanye ku butegetsi koloneli Jean-Baptiste Bagaza."
-
----
-
-Buyoya, imbere ya coup, yari umwe mu basirikare bari bafise ijambo mu régime ya Bagaza.
-
-Igituma nyaco yatanguye kutumvikana na Bagaza ntikirasobanuka neza — amasoko ntahurira neza ku mpamvu n'igihe nyaco c'ugutandukana kwabo.
+[FR-CITATION] 🟢 Ivyo ni ivyo Wikipedia ("1987 Burundian coup d'état") ivuga. Twahinduye inyandiko ya mbere yavugaga ko yaciye i Paris, kuko nta soko na rimwe twabonye ryemeza iryo genda.
 
 ---
 
-🔴 *(Ikiganiro c'itariki ya 20 Nyakanga 1987 kigomba kwongera kwemezwa: sinabashije kuronka inyandiko ya Le Monde ivuga « confiscation du pouvoir », kandi inyandiko ya Le Monde nashoboye kuronka ni iyo ku wa 12 Nyakanga 1987 (yibanda ku nama ya Goma).)*
+Buyoya, imbere ya coup, yari umwe mu basirikare bari bafise ijambo mu régime ya Bagaza. Bagaza na Buyoya bari abavukana ba kure (cousins), bombi Abahima bo mu Bururi.
 
-Mu kiganiro yagiranye na Le Monde, ku wa 20 Nyakanga 1987, Buyoya yavuze ko régime ya Bagaza yari yatanguye neza, ariko ko mu nyuma yari yagiye mu **"confiscation du pouvoir."**
-
-🔴 *(Raporo ya Refworld ntiraboneka nashoboye kuyironka — igomba kwongera kwemezwa. Inyandiko imwe (allAfrica) ivuga ko coup yavuye ku "mutinerie de soldats et sous-officiers qui craignaient d'être mis en retraite anticipée" — igitangaza c'uko ivyo bivugwa ko ari impamvu ari ikindi kintu gikwiye kwongerwaho igihe kizoboneka.)*
-
-Raporo ya Refworld ivuga ko mu 1987 hari ukwiyongera kw'ukutishimira régime ya Bagaza, cane cane mu gisirikare no mu bantu bamwe bo mu ntwaro.
+[FR-CITATION] 🟡 Wikipedia ("1987 Burundian coup d'état") ivuga ko Buyoya yari mubyara wa Bagaza; Wikipedia ("1988 ethnic violence in Burundi") ivuga ko bombi bari Abatutsi-Abahima bo mu ntara ya Bururi. Igituma nyaco Buyoya yatanguye kutumvikana na Bagaza ntikirasobanuka neza mu masoko dufise.
 
 ---
 
-Icavuye guhita kigaragara, inyuma ya coup: ibibanza vy'ugusengera vyari vyarafunzwe mu gihe ca Bagaza vyaratanguye gusubira gufungurwa.
+Impamvu z'ico gikorwa zivugwa mu buryo butandukanye:
 
-Ku wa **13 Nyakanga 1987**, Cathédrale ya Gitega yarasubiye gufungura.
+- Diplomate zavuze ko ikibazo ca Leta na Kiliziya Gatolika, aho abaturage 65% ari Abagatolika, cari inkomoko ikomeye (Wikipedia, "1987 Burundian coup d'état").
+- Isoko rimwe (allAfrica) ryandika ko coup yakurikiye intango y'igitero c'abasirikare n'abasotsiyeri bakwiye guhabwa pension imbere y'igihe.
 
-🔴 *(Itariki n'ivyerekeye Cathédrale ya Gitega ntiraboneka mu masoko nashoboye kuronka. Wikipedia ("1987 Burundian coup d'état") ivuga gusa ko Buyoya, Umugatolika, yavuze ko azokuraho ingingo Bagaza yashize kuri Kiliziya.)*
+[FR-CITATION] 🟡 Ivyo ni impamvu zivugwa n'amasoko atandukanye, ntizishoboka kwemezwa nk'iyonyene. Twakuyeho ibice vyavugaga ikiganiro ca Buyoya na Le Monde (20 Nyakanga 1987) n'inyandiko ya Refworld, kubera ko tutashoboye kubona izo nyandiko.
+
+---
+
+Inyuma ya coup, Buyoya yarahiye ku wa 2 Gitugutu 1987 nka perezida wa Military Committee for National Salvation. Yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya, kandi ubutegetsi bwiwe bwarekuye Abahutu amajana bari bafunzwe kubera politike.
+
+[FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état") ivuga ko Buyoya, Umugatolika, yavuze ko azokuraho ingingo Bagaza yashize kuri Kiliziya; Wikipedia ("1988 ethnic violence in Burundi") yongera ko yashize imbere kuvugurura umubano na Kiliziya, agakuraho ibibuza vyinshi vyo mu Deuxième République, akarekura Abahutu amajana bafunzwe kubera politike. 🟡 Itariki nyayo yo gufungura Cathédrale ya Gitega ntitwabashije kuyibona, ni co gituma tutayivuga.
 
 Ico gikorwa nyene carerekana uburemere bw'ikibazo ca Leta-Kiliziya twize muri EP09.
 

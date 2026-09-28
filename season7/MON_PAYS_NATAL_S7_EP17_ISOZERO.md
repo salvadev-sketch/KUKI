@@ -24,9 +24,9 @@ Naho ntitwakwemeza uruhara rwiwe nyakuri mu bwicanyi bwo mu 1972, na none, ntitw
 
 Amasoko dufise ubu aduha amakuru make gusa ku buzima bwiwe bwo mu buhungiro n'urupfu rwiwe:
 
-[FR-CITATION] 🟡 Wikipedia ("Jean-Baptiste Bagaza") ivuga ko yavutse ku wa 29 Myandagaro 1946 i Rutovu (Bururi), yagarutse mu Burundi mu 1994, ayobora PARENA, kandi yapfuye mu 2016. Gulf News (Washington Post) ivuga ko yapfuye ku wa 4 Rusama 2016 mu Bubiligi afise imyaka 69; Wikipedia ("1987 Burundian coup d'état") ivuga ko, inyuma ya coup, yahungiye muri Uganda, hanyuma mu 1989 muri Libiya, aho yahawe ubuhungiro bwa politike.
+[FR-CITATION] 🟢 Wikipedia ("Jean-Baptiste Bagaza") ivuga ko yavutse ku wa 29 Myandagaro 1946 i Rutovu (Bururi), yagarutse mu Burundi mu 1994, ayobora PARENA, akaba umusenateri w'ubuzima bwose. Washington Post (biciye kuri Gulf News) yemeza ko yapfuye ku wa 4 Rusama 2016 mu Bubiligi afise imyaka 69, na Wikipedia ivuga ko yahambwe i Bujumbura ku wa 17 Rusama 2016. Wikipedia ("1987 Burundian coup d'état") ivuga ko, inyuma ya coup, yahungiye muri Uganda, hanyuma mu 1989 muri Libiya, aho yahawe ubuhungiro bwa politike (Libiya gushika 1993).
 
-🔴 *(Ivyerekeye imyaka ya Bagaza mu buhungiro biratandukanye mu masoko: Africanews (4 Rusama 2016) ivuga ko yagumye muri Libiya gushika 1993 kandi ko yapfuye afise imyaka 70, mu gihe itariki y'amavuka (29 Myandagaro 1946) n'urupfu (4 Rusama 2016) bituma aba afise 69. Ntitwahitamwo.)*
+[FR-CITATION] 🟢 Ikibazo c'imyaka kirakemutse: 29 Myandagaro 1946 gushika 4 Rusama 2016 ni imyaka 69. Africanews yanditse 70 (ikosa ry'igitigiri), kandi Simple English Wikipedia yandika 1926 na 89, ni ikosa rigaragara; ntitwabikoresha.
 
 Ivyo bisigaye — ubuzima bwiwe bwose mu buhungiro — bikeneye ubundi bushakashatsi bw'inyongera.
 

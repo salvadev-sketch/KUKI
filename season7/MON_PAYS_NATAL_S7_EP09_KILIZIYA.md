@@ -22,10 +22,10 @@ Ntitwovuga ko ari ikibazo cabaye ku munsi umwe. Cari kimaze imyaka gikura, gushi
 
 ---
 
-Ivyo bikanabikane n'ikindi kintu tuzoraba: ku wa 13 Nyakanga 1987 — iminsi micye gusa inyuma y'uko Bagaza akurwa ku butegetsi — Cathédrale ya Gitega yaraye ifunze, isubira gufungura.
+Kiliziya yatanguye kubona impinduka inyuma y'uko Bagaza akurwa ku butegetsi: Buyoya, Umugatolika, yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya.
 
-Ico gikorwa nyene c'ukwongera gufungura amasengero cerekana neza uburemere bw'ico kibazo mu myaka ya nyuma y'ingoma yiwe.
+[FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état") na Wikipedia ("Anti-clerical campaign of the government of Burundi") bemeza ko umubano wa Leta na Kiliziya wongeye gusubira kuba mwiza gusa inyuma ya coup ya 1987. Twakuyeho itariki ya 13 Nyakanga 1987 y'ifungurwa rya Cathédrale ya Gitega yari mu nyandiko ya mbere, kuko nta soko na rimwe ryizewe ryayemeje.
 
-🔴 *(Itariki yihariye y'ifungurwa rya Cathédrale ya Gitega ntiraboneka mu masoko nashoboye kuronka. Icemejwe: Buyoya, amaze gufata ubutegetsi, yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya — nk'uko Wikipedia "1987 Burundian coup d'état" ibivuga. Itariki igomba kwongera kwemezwa.)*
+Iyo mpinduka nyene yerekana neza uburemere bw'ico kibazo mu myaka ya nyuma y'ingoma yiwe.
 
 **MON PAYS NATAL — SEASON 7 — EP10 — INGORANE Z'UBUTUNZI (1986–87)**, ni ho tuzoraba ikindi kibazo cageze icarimwe.
