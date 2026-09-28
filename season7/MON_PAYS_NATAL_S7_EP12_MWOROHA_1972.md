@@ -10,6 +10,8 @@ Hari umurwi tutari twaravuze cane: **Jeunesses Révolutionnaires Rwagasore — J
 
 Muri Myandagaro 1972, yaciye avamwo uwo mwanya, aja i Buraya gukora études doctorales.
 
+🔴 *(Uruhare rwa Mworoha nka Secrétaire Général wa JRR mu 1972, kuva kuri uwo mwanya muri Myandagaro 1972, n'urugendo rwiwe i Buraya, ntibiraboneka mu masoko nashoboye kuronka kuri internet. Ivyo bigomba kwemezwa kuri Commission Vérité et Réconciliation ubwayo canke ku yindi nyandiko y'ibanze imbere yo kubivuga nk'ivyemejwe.)*
+
 ---
 
 Ariko hari ikindi kintu gikomeye cane: mu gihe c'ubwicanyi, **Mworoha yarandikiye Perezida Michel Micombero**.
@@ -18,7 +20,11 @@ Intumbero y'iryo kete yari ukumenyesha Micombero ko, ku bw'iwe, uburyozwe bw'ivy
 
 ---
 
-Iyi ni source ikomeye, ivuye kuri Commission Vérité et Réconciliation.
+Iyi ni source ivuye kuri Commission Vérité et Réconciliation.
+
+🔴 *(Inyandiko y'urwo rwandiko sinashoboye kuyironka. Kandi hakwiye kwibukwa ko CVR ubwayo ikomeje kunengwa n'abantu bamwe (n'itangazamakuru nka JusticeInfo) ko ishobora kuba igikoresho cya politike cya guverinoma iriho — ico ni ikintu cerekana ko iyi soko ikeneye kwongera kwemezwa n'indi.)*
+
+[FR-CITATION] 🟡 JusticeInfo.net (4 Ntwarante 2021) yagize iti: « la Commission vérité et réconciliation du Burundi ont porté sur les massacres de 1972 qui avaient essentiellement visé des Hutus... une commission déjà accusée de n'être qu'un instrument de propagande du régime actuel » — arivyo bisobanura mu Kirundi ngo: "imirimo ya CVR yibanze ku bwicanyi bwo mu 1972 bwibasiye Abahutu... ni commission yari yaramaze kuvugwako ari igikoresho cya propagande y'ubutegetsi buriho."
 
 Ariko dutegerezwa kwandika neza: **"Mworoha yarandikiye Micombero..."** — ntitwovuga **"Mworoha yaciye ahagarika ubwicanyi."** Nta gihamya dufise yerekana ko iryo kete ryahinduye politike ya Micombero.
 

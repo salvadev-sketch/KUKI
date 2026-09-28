@@ -4,11 +4,13 @@ Mu 1978, Émile Mworoha aba **Secrétaire Général wa UPRONA.**
 
 Iyi ni yo turning point ikomeye cane mu buzima bwiwe bwa politike.
 
+[FR-CITATION] 🟢 Académie des sciences d'outre-mer (2018) yagize iti: « De 1978 à 1987 il est secrétaire général du parti Uprona, grand parti nationaliste "tutsi" alors au pouvoir » — arivyo bisobanura mu Kirundi ngo: "Kuva 1978 gushika 1987 ni secrétaire général wa UPRONA, umugambwe mukuru w'ubwenegihugu 'w'Abatutsi' wari ku butegetsi."
+
 ---
 
 Kuko UPRONA yari parti unique mu Burundi muri ico gihe, uwo mwanya wari ukomeye cane.
 
-Mu Kigarama 1979, habaye congrès ya mbere y'igihugu ya UPRONA. Central Committee nshasha irarongorwa. Kuva muri Nzero 1980, iyo Central Committee itangura gufata ibikorwa vyari vyasanzwe bikorwa na Conseil Suprême Révolutionnaire — twize kuri iyo mpinduka muri EP07.
+Mu Kigarama 1979, habaye congrès ya mbere y'igihugu ya UPRONA. 🔴 *(Itariki n'ubwoko bw'iyo congrès ntibiraboneka mu masoko nashoboye kuronka — bigomba kwongera kwemezwa.)* Central Committee nshasha irarongorwa. Kuva muri Nzero 1980, iyo Central Committee itangura gufata ibikorwa vyari vyasanzwe bikorwa na Conseil Suprême Révolutionnaire — twize kuri iyo mpinduka muri EP07.
 
 ---
 

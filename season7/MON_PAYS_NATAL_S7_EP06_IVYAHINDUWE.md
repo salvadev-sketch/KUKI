@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 7 — EP06 — IVYAHINDUWE 1977–78
 
-Mu 1977, Bagaza yakuyeho **impôt de capitation** — amatagisi yari asanzwe yishurwa n'abanyagihugu bose.
+Mu 1977, Bagaza yakuyeho **impôt de capitation** — amatagisi yari asanzwe yishurwa n'abanyagihugu bose. 🔴 *(Ukuraho impôt de capitation ntikuraboneka mu masoko nashoboye kuronka; ico nashoboye kwemeza ni impinduka ku butaka n'ubugererwa (reba hasi). Bigomba kwongera kwemezwa.)*
 
 ---
 

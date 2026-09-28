@@ -10,6 +10,10 @@ Haciye haza: kugabanya ibikorwa vya Kiliziya, guhagarika bimwe muri byo, amakimb
 
 Ikigo c'Ubushikiranganji bw'Amerika (U.S. Department of State) kivuga ko, inyuma y'amatora yo mu 1984, urwego rw'uburenganzira bwa muntu munsi ya Bagaza rwarushirije kuba mibi, harimwo guhagarika ibikorwa vy'idini no gufata abanyapolitike batavuga rumwe na Leta.
 
+[FR-CITATION] 🟢 Wikipedia ("Anti-clerical campaign of the government of Burundi") igira iti: « the liquidation of Catholic press and education, the expulsion of hundreds of foreign missionaries, limitations on religious freedom, and the arrest of clergy and lay Catholic activists » — arivyo bisobanura mu Kirundi ngo: "gusenya ibinyamakuru n'amashure ya Gatolika, kwirukana abamisiyonari amajana b'abanyamahanga, kugabanya ubwisanzure bw'idini, no gufata abapadiri n'abakirisu." Iyo campagne yamaze kuva 1977 gushika 1987.
+
+[FR-CITATION] 🟡 The Washington Post (biciye kuri Gulf News) yavuze ko Bagaza yafunze radiyo n'ibinyamakuru vya Gatolika, abuza amamisa yo ku minsi isanzwe, yirukana abamisiyonari b'abanyamahanga, afata amashure ya Gatolika. Iyo nyandiko ivuga kandi ko Abagatolika bari 65% y'abaturage.
+
 ---
 
 Iki ni kimwe mu bibazo bikomeye vyaranze impera y'ubutegetsi bwa Bagaza.
@@ -21,5 +25,7 @@ Ntitwovuga ko ari ikibazo cabaye ku munsi umwe. Cari kimaze imyaka gikura, gushi
 Ivyo bikanabikane n'ikindi kintu tuzoraba: ku wa 13 Nyakanga 1987 — iminsi micye gusa inyuma y'uko Bagaza akurwa ku butegetsi — Cathédrale ya Gitega yaraye ifunze, isubira gufungura.
 
 Ico gikorwa nyene c'ukwongera gufungura amasengero cerekana neza uburemere bw'ico kibazo mu myaka ya nyuma y'ingoma yiwe.
+
+🔴 *(Itariki yihariye y'ifungurwa rya Cathédrale ya Gitega ntiraboneka mu masoko nashoboye kuronka. Icemejwe: Buyoya, amaze gufata ubutegetsi, yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya — nk'uko Wikipedia "1987 Burundian coup d'état" ibivuga. Itariki igomba kwongera kwemezwa.)*
 
 **MON PAYS NATAL — SEASON 7 — EP10 — INGORANE Z'UBUTUNZI (1986–87)**, ni ho tuzoraba ikindi kibazo cageze icarimwe.

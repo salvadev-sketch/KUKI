@@ -22,11 +22,19 @@ Naho ntitwakwemeza uruhara rwiwe nyakuri mu bwicanyi bwo mu 1972, na none, ntitw
 
 ---
 
-Amasoko dufise ubu ntaduha amakuru arambuye ku buzima bwiwe bwo mu buhungiro, inyuma ya 1987, canke ku rupfu rwiwe. Iyo ni imwe mu ngingo dukwiye kuvuga twemeye: sinacumva vyose.
+Amasoko dufise ubu aduha amakuru make gusa ku buzima bwiwe bwo mu buhungiro n'urupfu rwiwe:
+
+[FR-CITATION] 🟡 Wikipedia ("Jean-Baptiste Bagaza") ivuga ko yavutse ku wa 29 Myandagaro 1946 i Rutovu (Bururi), yagarutse mu Burundi mu 1994, ayobora PARENA, kandi yapfuye mu 2016. Gulf News (Washington Post) ivuga ko yapfuye ku wa 4 Rusama 2016 mu Bubiligi afise imyaka 69; Wikipedia ("1987 Burundian coup d'état") ivuga ko, inyuma ya coup, yahungiye muri Uganda, hanyuma mu 1989 muri Libiya, aho yahawe ubuhungiro bwa politike.
+
+🔴 *(Ivyerekeye imyaka ya Bagaza mu buhungiro biratandukanye mu masoko: Africanews (4 Rusama 2016) ivuga ko yagumye muri Libiya gushika 1993 kandi ko yapfuye afise imyaka 70, mu gihe itariki y'amavuka (29 Myandagaro 1946) n'urupfu (4 Rusama 2016) bituma aba afise 69. Ntitwahitamwo.)*
+
+Ivyo bisigaye — ubuzima bwiwe bwose mu buhungiro — bikeneye ubundi bushakashatsi bw'inyongera.
 
 ---
 
 Uburundi bwari bumaze kubona abategetsi batatu bakurikirana bafashe ubutegetsi biciye kuri coup — Micombero, Bagaza, ubu na Buyoya.
+
+[FR-CITATION] 🟢 APA News yagize iti: « le renversement de Jean-Baptiste Bagaza par Pierre Buyoya constitue le troisième changement de pouvoir par la force depuis l'indépendance » — arivyo bisobanura mu Kirundi ngo: "guhirikwa kwa Jean-Baptiste Bagaza na Pierre Buyoya ni guhindura ubutegetsi kwa gatatu kwabaye ku ngufu kuva ku bwigenge."
 
 Ariko Buyoya na we azoza kugira inkuru yiwe idasanzwe, izokwerekana ko Uburundi bugifise urugendo rurerure imbere yaco.
 

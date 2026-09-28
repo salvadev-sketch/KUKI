@@ -8,7 +8,7 @@ Ariko yari **candidat umwe gusa**.
 
 Yararonse hafi **99,6%** by'amajwi.
 
-[FR-CITATION] 🟡 UCA igira iti: « President Bagaza was re-elected with 99 percent of the vote on August 31, 1984 » — arivyo bisobanura mu Kirundi ngo: "Perezida Bagaza yongeye gutorwa n'amajwi 99% ku wa 31 Myandagaro 1984." (Umubare uri hano, 99,6%, ushobora kuba uvuye mu kindi kigereranyo gito, ariko ntitwahinduye ico gitigiri kikomeye c'intsinzi.)
+[FR-CITATION] 🟢 Spectrum Magazine yagize iti: « In August 1984, Bagaza was reelected to the presidency as the single candidate of Uprona, garnering 99.63% of the 1.7 million votes cast » — arivyo bisobanura mu Kirundi ngo: "Muri Myandagaro 1984, Bagaza yongeye gutorwa nka candidat umwe rukumbi wa UPRONA, ashikira 99,63% y'amajwi miliyoni 1,7 yatowe." UCA na yo ivuga itariki ya 31 Myandagaro 1984 (99%).
 
 ---
 
