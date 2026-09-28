@@ -6,19 +6,21 @@ Yakuze mu mashure.
 
 ---
 
-Afise imyaka itandatu, mu **1938**, Rwagasore yatanguye amashure abanza.
+Afise imyaka irindwi, yatanguye amashure abanza mu mashure ya Gatolika.
 
-Yize i **Bukeye**, hanyuma i **Kanyinya**.
+Yize i **Bukeye**, i **Kanyinya** no i **Gitega**.
 
----
-
-Amaze imyaka icumi, yaciye ajana mu mashure yisumbuye: i **Gitega**, ku Bafratere b'Urukundo, aho amaze imyaka ibiri.
-
-Hanyuma aja kuri **Groupe Scolaire d'Astrida**, i Butare y'ubu — ishure ryari rikomeye cane mu karere kose, ryatoje abagabo benshi bazoza kugira uruhara mu buyobozi bw'u Rwanda n'Uburundi mu mpera z'ubukoloni. Yamaze aho imyaka itandatu.
+[FR-CITATION] 🟢 Wikipedia ("Louis Rwagasore", ikurikiza Weinstein 1976, p. 251) ivuga ko yatanguye amashure afise imyaka irindwi, mu mashure ya Gatolika i Bukeye, Kanyinya na Gitega. Twahinduye inyandiko ya mbere yavugaga imyaka itandatu (1938) n'imyaka ibiri kuri Bafratere b'Urukundo i Gitega, kuko nta soko ryemeje ivyo.
 
 ---
 
-Ni ukuvuga: mu myaka cumi na ine, Rwagasore yari amaze kwiga ahantu hane hatandukanye — kandi ahagarukanye n'abandi bahungu bo mu miryango itandukanye y'igihugu, atari mu muryango w'ubwami gusa.
+Mu **1945**, yaciye ajana kuri **Groupe Scolaire d'Astrida**, i Butare y'ubu — ishure ryari rikomeye cane mu karere kose, ryatoje abagabo benshi bazoza kugira uruhara mu buyobozi bw'u Rwanda n'Uburundi mu mpera z'ubukoloni. Yamaze aho imyaka itandatu.
+
+[FR-CITATION] 🟢 Wikipedia (ikurikiza Weinstein 1976) yemeza 1945 n'imyaka itandatu i Astrida. BlackPast ivuga ko iryo shure ryashinzwe mu 1929 n'Abafratere b'Urukundo (Frères de la Charité), Ababiligi, kugira ngo batoze Abarundi n'Abanyarwanda bafasha ubutegetsi bw'abakoloni.
+
+---
+
+Ni ukuvuga: yize mu mashure yo mu turere dutandukanye, ahagurukanye n'abandi bahungu bo mu miryango itandukanye y'igihugu, atari mu muryango w'ubwami gusa.
 
 ---
 
