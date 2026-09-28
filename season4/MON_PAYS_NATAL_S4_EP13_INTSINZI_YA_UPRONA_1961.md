@@ -30,7 +30,7 @@ Ariko iyo ntsinzi ntiyari kumara igihe kirekire.
 
 **[CITATION — 🟢]**
 
-René Lemarchand, *Rwanda and Burundi* (Pall Mall Press, 1970), p. 340, hamwe n'amasoko menshi (Weinstein 1976; Iwacu-Burundi; Yaga-Burundi) yemeza itariki y'amatora (18 Nzeri 1961) n'igitigiri cy'imyanya (UPRONA: 58; Front Commun: 6, kuri 64 zose) hamwe n'itariki Rwagasore yagizwe umushikiranganji wa mbere (28 Nzeri 1961).
+René Lemarchand, *Rwanda and Burundi* (Pall Mall Press, 1970), p. 340, hamwe n'amasoko menshi (Weinstein 1976; Iwacu-Burundi; Yaga-Burundi) yemeza itariki y'amatora (18 Nyakanga 1961) n'igitigiri cy'imyanya (UPRONA: 58; Front Commun: 6, kuri 64 zose) hamwe n'itariki Rwagasore yagizwe umushikiranganji wa mbere (28 Nyakanga 1961).
 
 ---
 

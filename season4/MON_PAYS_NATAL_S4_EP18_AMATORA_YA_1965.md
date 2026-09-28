@@ -8,7 +8,7 @@ Aya yari ayambere kuva Uburundi bubaye igihugu cigenga.
 
 **[CITATION — 🟢]**
 
-Wikipedia ("1965 Burundian parliamentary election"), biciye ku masoko y'inyandiko, yemeza itariki (10 Rusama/Gicurasi 1965), igitigiri cy'imyanya (33, kuva ku 64 zo mbere), n'uko UPRONA yaronse imyanya 21.
+Wikipedia ("1965 Burundian parliamentary election"), biciye ku masoko y'inyandiko, yemeza itariki (10 Rusama 1965), igitigiri cy'imyanya (33, kuva ku 64 zo mbere), n'uko UPRONA yaronse imyanya 21.
 
 ---
 

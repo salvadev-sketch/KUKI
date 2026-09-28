@@ -8,7 +8,7 @@ Ku wa 13 Gitugutu 1961, Louis Rwagasore yaragandaguwe.
 
 **[CITATION — 🟢]**
 
-Jean-Baptiste Ntidendereza (biciye kuri Wikipedia, ishingiye kuri Lemarchand 1970 p.340) yemeza itariki nyayo y'urwicwa (13 Ukwakira/Gitugutu 1961), n'uko Rwagasore yari amaze iminsi 15 ku murimo (kuva ku wa 28 Nzeri gushika ku wa 13 Ukwakira 1961).
+Jean-Baptiste Ntidendereza (biciye kuri Wikipedia, ishingiye kuri Lemarchand 1970 p.340) yemeza itariki nyayo y'urwicwa (13 Gitugutu 1961), n'uko Rwagasore yari amaze iminsi 15 ku murimo (kuva ku wa 28 Nyakanga gushika ku wa 13 Gitugutu 1961).
 
 ---
 

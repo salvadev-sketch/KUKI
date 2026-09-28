@@ -12,7 +12,7 @@ Ariko Ntare V yamaze igihe gito cane.
 
 ---
 
-Mu **Gushyingo 1966**, **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose.
+Mu **Munyonyo 1966**, **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose.
 
 Uburundi buba **Repubulika**.
 

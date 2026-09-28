@@ -52,7 +52,7 @@ Ni co gituma tudashaka guhitamwo imwe ngo ni yo y'ukuri.
 
 Tuzobika zombi, uko zabitswe.
 
-[FR-CITATION] 🟡 Nk'uko tubisoma mu gitabo canditswe na Jean-Pierre Chrétien, citwa *Burundi, l'histoire retrouvée* (1993), yagize ati: « un faiseur de pluie nommé Ntwero venu du lac Tanganyika » — arivyo bisobanura mu Kirundi ngo: "umuntu w'imvura yitwa Ntwero, yavuye ku kiyaga Tanganyika." Igitabu kivuga ko uwo Ntwero yarongoye umwamikazi Namirembe. Iyi nkuru yatanzwe n'umuvugizi Dominique Ruvugazinaniwe, wo i Bisoro, yabajijwe kabiri: mu Werurwe 1954 no ku wa 21 Nyakanga 1979.
+[FR-CITATION] 🟡 Nk'uko tubisoma mu gitabo canditswe na Jean-Pierre Chrétien, citwa *Burundi, l'histoire retrouvée* (1993), yagize ati: « un faiseur de pluie nommé Ntwero venu du lac Tanganyika » — arivyo bisobanura mu Kirundi ngo: "umuntu w'imvura yitwa Ntwero, yavuye ku kiyaga Tanganyika." Igitabu kivuga ko uwo Ntwero yarongoye umwamikazi Namirembe. Iyi nkuru yatanzwe n'umuvugizi Dominique Ruvugazinaniwe, wo i Bisoro, yabajijwe kabiri: mu Ntwarante 1954 no ku wa 21 Nyakanga 1979.
 
 ---
 

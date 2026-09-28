@@ -8,7 +8,7 @@ Umwami yari yaratwaye Uburundi imyaka irenga mirongo itanu, agapfa kure y'igihug
 
 Yapfuye ku wa **26 Ntwarante 1977**, i Genève, afise imyaka 64.
 
-Amasoko menshi ahurira kuri iyo tariki, naho hari andi make atanga izindi. Kuri iyi documentaire, ntituzogera kuri gihamya idashidikanywako, ariko iyi ni yo itariki iboneka mu masoko menshi.
+Amasoko menshi ahurira kuri iyo tariki, naho hari andi make atanga izindi. Kuri iyi documentaire, ntituzogera ku gihamya idashidikanywako, ariko iyi ni yo tariki iboneka mu masoko menshi.
 
 ---
 
