@@ -1,0 +1,17 @@
+# MON PAYS NATAL — SEASON 8 — EP03 — IMINSI YA MBERE YA RÉGIME
+
+Buyoya yatanguye ingoma yiwe avuga ku vugururwa.
+
+Ariko imyaka itarenga imwe inyuma ya coup, igihugu carongeye kubona ikintu kibi kurusha ibindi vyose Uburundi bwari bwaramaze kubona kuva 1972.
+
+---
+
+Régime nshasha yari ifise intumbero yo kwerekana itandukaniro n'iy'imbere: gukingura ibibanza vy'amasengesho, gusubiza ubuyobozi bw'abasivile, kurekura bamwe mu banyororo.
+
+Ariko munsi y'ico gikorwa co hejuru, ibibazo vy'imbere mu gihugu — cane cane amakimbirane hagati y'Abahutu n'Abatutsi, hamwe n'ingaruka za 1972 zitigeze zikemuka — vyaguma vyihishe.
+
+---
+
+Muri Myandagaro 1988, ivyo bibazo vyaciye biduka rwose.
+
+**MON PAYS NATAL — SEASON 8 — EP04 — NTEGA NA MARANGARA — UBWICANYI**, ni ho tuzobibona.
