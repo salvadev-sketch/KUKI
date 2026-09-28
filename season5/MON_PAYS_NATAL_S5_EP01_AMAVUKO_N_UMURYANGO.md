@@ -2,7 +2,7 @@
 
 Uburundi buracari munsi y'ubutegetsi bw'Ababiligi.
 
-Umwami ni Mwambutsa IV, uwo twize mu Season 4 — akiri muto, ategekwa na regency.
+Umwami ni Mwambutsa IV, uwo twize mu Season 4 — akiri muto, ategekwa n'abamufasha.
 
 Kandi mu muryango w'uwo mwami, havuka umwana azoza guhindura amateka y'igihugu, mu buryo yaba akiriho canke atakiriho.
 

@@ -80,4 +80,4 @@ Aho Mwambutsa III yahambwe ntibisobanutse. Kandi hari amazina menshi amuranga �
 
 Iyi episode irangiza urunani rwa nyuma rw'abami bo mu "gice cabo," imbere yo kwinjira mu bami bane b'ingenzi, bafise amateka menshi kandi yegereye ibihe vyanditswe n'abashakashatsi b'abanyamahanga.
 
-**MON PAYS NATAL — NTARE IV RUTAGANZWA RUGAMBA — INTANGO**, ni ho tuzokomeza, dutangura urundi rugendo rurerure.
+**MON PAYS NATAL — SEASON 2 — NTARE IV RUTAGANZWA RUGAMBA — INTANGO**, ni ho tuzokomeza, dutangura urundi rugendo rurerure.

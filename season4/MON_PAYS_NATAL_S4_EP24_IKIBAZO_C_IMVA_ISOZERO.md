@@ -38,4 +38,4 @@ Ubwami bw'Uburundi bwarangiye muri we, na we.
 
 Ariko urugendo rw'Uburundi ntirwarangiye.
 
-**MON PAYS NATAL — SEASON 5 — NTARE V NDIZEYE**, ni ho tuzokomeza — umwami wa nyuma w'Uburundi, uwakuye se ku ngoma, akaba na we azoza kugira iherezo ributse.
+**MON PAYS NATAL — SEASON 5 — LOUIS RWAGASORE: AMAVUKO N'UMURYANGO**, ni ho tuzokomeza — kuri Rwagasore, umuhungu wa Mwambutsa, uwo twavuze muri iyi Season, none tukazomukurikirana kuva ku ivuka ryiwe gushika ku murage wiwe.
