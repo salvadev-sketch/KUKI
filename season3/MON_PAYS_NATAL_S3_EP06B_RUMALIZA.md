@@ -10,7 +10,7 @@ Yitwa **Rumaliza**, izina ryiwe ry'ukuri akaba ari **Mohammed bin Khalfan**.
 
 Yari umukuru w'abadandaza b'abacakara, bakorera hafi y'ikiyaga Tanganyika, mu myaka ya 1880.
 
-[FR-CITATION] 🟢 Wikipedia ("Mwezi IV of Burundi," asubiramwo Weinstein 1976:248-249) igira iti: « In 1884 he led the Burundian army in battle against slave traders led by Rumaliza along the Kivu-Tanganyika road, inflicting a major defeat upon his opponents » — arivyo bisobanura mu Kirundi ngo: "Mu 1884, yayoboye ingabo z'Uburundi mu ntambara yo kurwanya abadandaza b'abacakara ba Rumaliza ku nzira ya Kivu-Tanganyika, abatsinda intsinzi ikomeye." Wikipedia ("Rumaliza") na yo ivuga ko yagumye afise ibirindiro bitanu ku nkengera y'ikiyaga hagati ya 1884 na 1894, agakora ibitero mu misozi no mu kibaya c'uruzi rwa Rusizi. Luffin (1999) avuga ko izina "Rumaliza" mu Kirundi risobanura "uwitwara vyose."
+[FR-CITATION] 🟢 Wikipedia ("Mwezi IV of Burundi," asubiramwo Weinstein 1976:248-249) ivuga ko mu 1884 yayoboye ingabo z'Uburundi mu ntambara yo kurwanya abadandaza b'abacakara ba Rumaliza ku nzira ya Kivu-Tanganyika, abatsinda intsinzi ikomeye. Wikipedia ("Rumaliza") na yo ivuga ko yagumye afise ibirindiro bitanu ku nkengera y'ikiyaga hagati ya 1884 na 1894, agakora ibitero mu misozi no mu kibaya c'uruzi rwa Rusizi. Luffin (1999) avuga ko izina "Rumaliza" mu Kirundi risobanura « uwitwara vyose ».
 
 ---
 
