@@ -28,6 +28,6 @@ Ivyo ni **ubuhamya bw'ababibonye** — tubibika uko biri, atari nk'inyandiko y'u
 
 ---
 
-Umubiri wiwe wajanywe ku kibanza kiri hafi y'uruzi **Ruvubu**, ku mutumba wa Bukirasazi, zone Nyabibuye, komine Shombo, intara ya Karusi.
+Umubiri wiwe wajanywe ku kibanza kiri hafi y'uruzi **Ruvubu**, ku mutumba wa Bukirasazi, mu karere ka Nyabibuye, komine Shombo, intara ya Karusi.
 
 **MON PAYS NATAL — SEASON 6 — EP24 — UMURAGE**, ni ho tuzoraba icamusigaranye.

@@ -18,7 +18,7 @@ Iyi data igaragaza neza ikibazo c'urwego rw'uko amoko yari ahagarikiwe mu nzego 
 
 ---
 
-Mworoha rero yaguma, icarimwe, ku ntebe zombi zikomeye: Secrétaire Général wa UPRONA, na Perezida wa Assemblée Nationale — kugeza ku wa 3 Nyakanga 1987, igihe coup ya Pierre Buyoya yahirikaga Bagaza.
+Mworoha rero yaguma, icarimwe, ku ntebe zombi zikomeye: Secrétaire Général wa UPRONA, na Perezida wa Assemblée Nationale — kugeza ku wa 3 Nyakanga 1987, igihe igikorwa ca Pierre Buyoya co gutembagaza ubutegetsi cahirikaga Bagaza.
 
 ---
 

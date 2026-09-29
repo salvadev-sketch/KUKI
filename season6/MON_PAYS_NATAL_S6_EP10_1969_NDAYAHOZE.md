@@ -6,7 +6,7 @@ Yari umutegetsi w'Umuhutu, umwe mu bakomeye muri système ya Micombero — Minis
 
 ---
 
-Ndayahoze yari amaze kubona ko amakimbirane ashingiye ku moko ariko arakomera.
+Ndayahoze yari amaze kubona ko amatati ashingiye ku moko ariko arakomera.
 
 Ku wa 18 Ndamukiza 1968, yandikiye Micombero raporo imuburira ku mwuka mubi muri politike n'ibihuha vy'umugambi wo guhirika ubutegetsi.
 

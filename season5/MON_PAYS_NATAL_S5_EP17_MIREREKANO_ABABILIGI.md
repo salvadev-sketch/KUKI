@@ -14,7 +14,7 @@ Ivyo bisobanura: Mirerekano ntiyari yaje kuba umunyapolitike kuko Rwagasore yamu
 
 Ku wa **31 Rusama 1955**, Mwami Baudouin w'Ababiligi yasuye Uburundi.
 
-Ubuhamya buvuga ko Mirerekano yamwegereye, amwereka ingorane z'abahinzi. Hari inkuru ivuga ko Baudouin yamurungikiye tractors zibiri, imwe muri zo ikaza gufatwa n'ubutegetsi bwo mu gihugu. Iyi si detail twashobora kwemeza nk'ukuri kudashidikanywako — dufise gusa ubuhamya.
+Ubuhamya buvuga ko Mirerekano yamwegereye, amwereka ingorane z'abahinzi. Hari inkuru ivuga ko Baudouin yamurungikiye tractors zibiri, imwe muri zo ikaza gufatwa n'ubutegetsi bwo mu gihugu. Iyi si nsobanuro twashobora kwemeza nk'ukuri kudashidikanywako — dufise gusa ubuhamya.
 
 ---
 

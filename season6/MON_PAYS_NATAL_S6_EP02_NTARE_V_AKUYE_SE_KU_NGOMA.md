@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 6 — EP02 — NTARE V AKUYE SE KU NGOMA
 
-Uburundi bwari bukiri mu bibazo, inyuma y'ibyabaye mu 1965: umushikiranganji Léopold Biha yari yararashwe muri coup yagerageshejwe, umwami Mwambutsa IV yari yagiye mu buhungiro.
+Uburundi bwari bukiri mu bibazo, inyuma y'ibyabaye mu 1965: umushikiranganji Léopold Biha yari yararashwe mu gikorwa co gutembagaza ubutegetsi cagerageshejwe, umwami Mwambutsa IV yari yagiye mu buhungiro.
 
 Charles Ndizeye yasubiye mu gihugu, afise umugambi.
 

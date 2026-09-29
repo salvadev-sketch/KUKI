@@ -1,8 +1,8 @@
 # MON PAYS NATAL — SEASON 6 — EP18 — IHIRIKWA RYA MICOMBERO — 1976
 
-Ntidukwiye kuvuga ko coup yo mu 1976 yabaye kubera imvo imwe gusa.
+Ntidukwiye kuvuga ko igikorwa co mu 1976 cabaye kubera imvo imwe gusa.
 
-Hari ibibazo vy'ubutegetsi, ukutumvikana mu gisirikare, ibirego vy'ugukoresha nabi ububasha, hamwe n'amakimbirane hagati y'abasirikare bakuru.
+Hari ibibazo vy'ubutegetsi, ukutumvikana mu gisirikare, ibirego vy'ugukoresha nabi ububasha, hamwe n'amatati hagati y'abasirikare bakuru.
 
 ---
 
@@ -14,9 +14,9 @@ Hari amakuru — ariko amakuru make, ava ku buhamya bumwe — avuga ko yagize ur
 
 Icarimwe, **Jean-Baptiste Bagaza** yari amaze kugira ububasha bukomeye mu gisirikare, ari Chef d'État-Major adjoint. Bagaza na Micombero bari bafitaniye imigenderanire myiza, bombi bakomoka i Rutovu.
 
-Amakuru avuga ko Micombero yavuganye na Bagaza n'abandi bakuru bo muri Bururi, kubera umugambi yari amaze kumenya wa Ndabemeye. Nyuma, Bagaza n'abo bari kumwe barihuta, bakora coup imbere y'uko uwundi mugambi ushika ku musozo.
+Amakuru avuga ko Micombero yavuganye na Bagaza n'abandi bakuru bo muri Bururi, kubera umugambi yari amaze kumenya wa Ndabemeye. Nyuma, Bagaza n'abo bari kumwe barihuta, bakora igikorwa co gutembagaza ubutegetsi imbere y'uko uwundi mugambi ushika ku musozo.
 
-Ntitwovuga ngo "Ndabemeye ni we wari yateguye coup, Bagaza aca ayiba" — nta gihamya gihagije kuri ivyo.
+Ntitwovuga ngo "Ndabemeye ni we wari yateguye ico gikorwa, Bagaza aca akiyiba" — nta gihamya gihagije kuri ivyo.
 
 ---
 

@@ -18,6 +18,6 @@ Umuhinga Lemarchand avuga ko, uko imyaka yaja igenda, ukudashirwa hamwe kw'Abahu
 
 Ariko ikibazo gikomeye ntabwo cari hagati ya Micombero n'igihugu gusa.
 
-Ku mpera z'ubutegetsi bwiwe, hari hatanguye amakimbirane, imbere y'igisirikare ubwaco, hagati y'abakuru bakomeye.
+Ku mpera z'ubutegetsi bwiwe, hari hatanguye amatati, imbere y'igisirikare ubwaco, hagati y'abakuru bakomeye.
 
 **MON PAYS NATAL — SEASON 6 — EP18 — IHIRIKWA RYA MICOMBERO — 1976**, ni ho tuzobibona.
