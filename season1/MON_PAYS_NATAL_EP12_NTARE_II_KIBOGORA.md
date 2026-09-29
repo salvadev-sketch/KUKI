@@ -12,7 +12,7 @@ Izina ryiwe: **Ntare II Kibogora.**
 
 ## Izina rifise ivyifuzo bibiri
 
-Mu nyandiko za Alexis Kagame, umuhinga yize imivugo y'abami b'u Rwanda, uyu mwami avugwa ku mazina abiri: **Kibogora**, canke, mu bindi bisigo, **Bijanyali**. 🔴 *(Igitabu ca Alexis Kagame ubwaco ntikiraboneka muri iyi repo — iri zina "Bijanyali" rikeneye kwongera kwemezwa.)*
+Mu nyandiko za Alexis Kagame, umuhinga yize imivugo y'abami b'u Rwanda, uyu mwami avugwa ku mazina abiri: **Kibogora**, canke, mu bindi bisigo, **Bijanyali**. [FR-CITATION] 🟡 Urubuga rwa Amateka.net ("Burundi and Rwanda: The Recurring Ntare") rwemeza ko Kagame yaremye urutonde rw'abami b'Uburundi ahuza n'urw'u Rwanda, akita uwu mwami "Ntare Kibogora," akamuhuza n'igihe ca Ruganzu Ndori. 🔴 *(Ariko izina "Bijanyali" ubwaryo sinabashije kuryemeza muri iyo soko canke ahandi — igitabu ca Kagame ubwaco (Abrégé de l'ethno-histoire du Rwanda/Burundi) ntikiraboneka muri iyi repo canke kuri internet mu buryo bwitegerezwa. Rigumye ari izina rikeneye kwongera kwemezwa.)*
 
 Ivyo bituma tubona ikintu gikomeye: n'izina ry'umwami ubwaryo rishobora kugira imvugo zitandukanye, uko imigenzo yagiye igenda.
 

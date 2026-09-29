@@ -12,7 +12,7 @@ Ariko ico tutarabaza ni ikindi kibazo, kikaba ari co gituma inkuru y'Uburundi it
 
 Jabwe yari afise agace k'i Ntunda, Mugamba na Kwijuru.
 
-Nsoro na we, umuvandimwe wiwe, yari afise agace k'i Bututsi, Gitanga na Ryansoro — akarere kamwe kamwe kitwa Nyabikenke, aho imigenzo ivuga ko Nsoro yabaga. 🔴 *(Izina "Nyabikenke" ntiraboneka mu masoko dufise ubu — rikeneye kwongera kwemezwa.)*
+Nsoro na we, umuvandimwe wiwe, yari afise agace k'i Bututsi, Gitanga na Ryansoro — akarere kamwe kamwe kitwa Nyabikenke, aho imigenzo ivuga ko Nsoro yabaga. [FR-CITATION] 🟢 GADM (ububiko mpuzamakungu bw'imipaka y'ibihugu) buremeza ko "Nyabikenke" ari colline nyakuri, iri muri commune ya Ryansoro, intara ya Gitega — iyo commune ikaba iri ku ruhande rumwe rw'iy'i Gitanga, nk'uko iyi episode ivuga. Ibi ntibiremeza ko ari na ho koko Nsoro yabaga mu mvo z'amateka, ariko birerekana ko izina n'ikibanza ariho koko.
 
 Izina Ryansoro ubwaryo risobanurwa mu migenzo nk'**"itongo rya Nsoro"** — ubutaka bwa Nsoro.
 

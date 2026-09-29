@@ -32,7 +32,7 @@ Hari umwami akwiye kwitwa **Ntare Rugamba**, azoba yarategetse mu myaka y'inyuma
 
 Iyo mizina yombi — Ntare Rushatsi na Ntare Rugamba — yagiye ivangwa mu migenzo. Abashakashatsi bavuga ko hari "amalgames spatio-temporels" — ibintu vyabaye mu bihe bitandukanye bikaza guhurizwa hamwe n'imigenzo yo mu kanwa.
 
-🔴 *(Imibare y'imyaka yihariye (1530-1550, 1680-1709) n'ijambo ryihariye "amalgames spatio-temporels" ntiraboneka ku buryo bweruye mu masoko dufise ubu muri iyi repo — bigomba kwongera kwemezwa ku mugereka w'ibitabu bimwe bimwe (nka Vansina 1972) tutarasoma umwimerere wabyo.)*
+[FR-CITATION] 🟢 Ijambo "amalgames spatio-temporels" ni ryo nyene Jean-Pierre Chrétien yakoresheje, nk'uko bisubirwamwo mu bushakashatsi bw'inyigisho z'amateka ku myanya y'ibihe mu Rwanda/Uburundi (123dok.net, "Débats et problèmes chronologiques"): ko « amalgames spatio-temporels » ari co gituma ivyo bisata bivangwa. Iryo nyandiko rimwe rivuga ko Vansina, mu 1961, yatanze umwaka wa 1675 nk'uwiharuye ("approximative") w'aho Ntare Rushatsi yashikira ku ngoma; Britannica na Wikipedia bafata umwaka wa 1675-1709. Umwami wa kabiri, Ntare Rugamba, we akaba yarategetse hafi 1795-1852 (Britannica). Imibare ya "1530-1550" (urutonde rw'imigenzo, ntirwo rw'igihe kigezweho) na 1680-1709 biboneka muri Wikipedia ("List of kings of Burundi"), ariko turacyakeneye kongera gusoma Vansina (1972, *La légende du passé*) ubwiwe imbere yo kuwuha uburemere bw'isoko ry'ibanze.
 
 Ni co gituma inkuru zimwe zivuga ko Ntare Rushatsi yarwanye na Ruhaga, izindi zikavuga ko yarwanye na Nsoro, izindi zikamuha ibikorwa bisa n'ivya Ntare Rugamba. Buri nkuru dutegerezwa kuyitohoza ukwayo, ntitwovanga ibihe bibiri mu kimwe.
 
