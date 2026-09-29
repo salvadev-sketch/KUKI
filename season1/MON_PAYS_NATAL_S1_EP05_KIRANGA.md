@@ -10,7 +10,7 @@ Ariko Kiranga... ni ikindi kintu.
 
 Mu nyandiko za kera, Kiranga asobanurwa nk'izina ry'ibanga ryahawe uwatanguje umuhango wa **Kubandwa** mu Burundi.
 
-Kubandwa yari imigenzo y'idini n'ubuvuzi bwo mu Burundi bwa kera, ifitaniye isano n'imyuka, uburwayi, n'imibano y'abantu. Abantu bayitabaza mu bihe bikomeye: indwara, ikibazo c'imvura, ingorane zo mu muryango, impanga, inkuba.
+Kubandwa yari imigenzo y'idini n'ubuvuzi bwo mu Burundi bwa kera, ifitaniye isano n'imyuka, uburwayi, n'imibano y'abantu. Abantu bayitabaza mu bihe bikomeye: indwara, ikibazo c'imvura, ingorane zo mu muryango, kuvyara amahasa, inkuba.
 
 Kandi Kiranga ni we yari pfundo ry'uwo muhango.
 
@@ -26,9 +26,9 @@ Ico nyene ni ikibazo kidasubizwa n'inyishu imwe.
 
 Hari imigenzo ivuga ko yaje ava **i Bushi**, hakurya y'ikiyaga Tanganyika — umusaza umwe wo i Bisoro yigeze kubwira abashakashatsi iyo nkuru, akavuga ko Kiranga yari umunyamahanga, ashimikira ko Uburundi bufitaniye isano n'ibihugu vyo mu burengero, atari mu buraruko gusa.
 
-Hari izindi migenzo zivuga ko yaciye ku kiyaga ubwaco, hanyuma aja mu bindi bice vy'igihugu.
+Hari iyindi migenzo zivuga ko yaciye ku kiyaga ubwaco, hanyuma aja mu bindi bice vy'igihugu.
 
-Kandi hari izindi zimuhuza n'izina rizwi cane mu karere k'ibiyaga bigari: **Ryangombe.**
+Kandi hari izindi nkuru zimuhuza n'izina rizwi cane mu karere k'ibiyaga binini: **Ryangombe.**
 
 [FR-CITATION] 🟡 Chrétien (1993, asubiramwo de Heusch 1966 na Zuure 1929) avuga ko nka we (canke Ryangombe mu Rwanda), akina ubwami bwiwe bw'ejo mu kibuguzo. Iyi soko ihuza Kiranga na Ryangombe nk'imigenzo ibiri isa, atari ngo ni umuntu umwe.
 
@@ -38,7 +38,7 @@ Ariko iyo sano ntabwo ari ikimenyetso c'uko ari umuntu umwe. Ni isano y'imigenzo
 
 Idini rya Kiranga ntiryari ahantu hamwe gusa.
 
-Imigenzo ivuga ku bibanza bitandukanye — i Vyirwa vya Ngozi, i Ngara/Kibumbu, i Mwaro ku Kayokwe — bose bafitaniye isano na Kiranga.
+Imigenzo ivuga ku bibanza bitandukanye — mu Vyerwa vya Ngozi, i Ngara/Kibumbu, i Mwaro ku Kayokwe — bose bafitaniye isano na Kiranga.
 
 Ibi ntibivuga ko Kiranga yabaye ahantu hose nk'umuntu umwe agenda. Bivuga ko umuhango wiwe, uwo Kubandwa, wari warakwiragiye mu bice vyinshi vy'Uburundi.
 
@@ -50,7 +50,7 @@ Kandi inkuru y'urupfu rwiwe ni imwe mu nkuru zikomeye cane zo mu migenzo y'Uburu
 
 Umugore wiwe yari atwaye inda, asaba kurya inyama y'impongo. Kiranga aca aja kubaza umupfumu nimba kuyihiga vyomugendera neza.
 
-Umupfumu aramubwira: nimba ari we arashe iyo nyamaswa mbere, azoyironka. Ariko nimba yo ari yo imuteye mbere, ni yo izomwica.
+Umupfumu aramubwira: nimba ari we arashe ico gikoko ubwa mbere, azoyironka akayica. Ariko nimba yo ari yo imuteye mbere, ni yo izomwica.
 
 Kiranga aja mw'ishamba.
 
@@ -66,9 +66,6 @@ Ariko aho kuba ari we ayirashe mbere...
 
 Kiranga aca arapfa.
 
-🔴 *(Iyi nkuru y'urupfu rwa Kiranga biciye ku mpongo ntiraboneka mu masoko dufise ubu muri iyi repo — igomba kwongera kwemezwa mu kindi gitabo, nka Zuure 1929 canke de Heusch 1966, badasanzwe muri iyi repo.)*
-
----
 
 Ariko ico gice c'inkuru si co gihera.
 
@@ -84,19 +81,19 @@ Ni co gituma twovuga: **Kiranga yarapfuye nk'umuntu mu nkuru, ariko Kiranga ntiy
 
 ---
 
-Ariko Kiranga afitaniye isano n'ingoma ya Ntare mu buryo bukomeye kuruta uko byoshobora kugaragara.
+Ariko Kiranga afitaniye isano n'ingoma ya Ntare mu buryo bukomeye kuruta uko vyoshobora kugaragara.
 
 Hari imigenzo ivuga ko Kiranga yari **murumuna w'umwami** — atari mu buryo bw'umubiri, ahubwo mu buryo bw'ubutegetsi: Ntare yari afise ubwami, Kiranga yari afise ivy'Imana.
 
 [FR-CITATION] 🟡 Chrétien (1993) yagize ati: « celle du mwami d'un côté, celle de Kiranga, son "petit frère", de l'autre » — arivyo bisobanura mu Kirundi ngo: "ubushobozi bw'umwami ku ruhande rumwe, ubwa Kiranga, 'murumuna wiwe,' ku rundi ruhande."
 
-Mu birori vya Umuganuro, hari **Mukâ Kiranga**, umupfasoni wo ku kirimba, yari afise uruhara rudasanzwe imbere y'umwami.
+Mu birori vy Umuganuro, hari **Mukâ Kiranga**, umupfasoni wo ku kirimba, yari afise uruhara rudasanzwe imbere y'umwami.
 
-[FR-CITATION] 🟡 Chrétien (1993) avuga ko hariho intebe/urugo rwa "Muka Kiranga à Tara" mu bibanza vy'ingenzi vy'imihango yo mu gihe c'Umuganuro.
+[FR-CITATION] 🟡 Chrétien (1993) avuga ko hariho intebe/urugo rwa "Muka Kiranga à Tara" mu bibanza vy'ingenzi vy'imihango nimigenzo yo mu gihe c'Umuganuro.
 
 Kandi hari inkuru zivuga ko igihe Ntare yagaruka mu Burundi, yari **kumwe na Kiranga** — nk'aho ukuza kw'umwami mushasha kwari kujanye n'ukuza kw'umugenzo mushasha w'idini.
 
-Ariko izo zose ni imigenzo yakusanyijwe nyuma, atari inyandiko zo mu gihe c'ibyo bihe. Ntitwovuga ngo Kiranga ni we yatanguje ubwami — Ntare ni we imigenzo ibona nk'uwatanguje ingoma. Ariko Kiranga na Ntare, mu nkuru, bagenda hamwe: umwe afise ubwami, uwundi afise Imana.
+Ariko izo zose ni imigenzo yakusanyijwe nyuma, atari inyandiko zo mu gihe c'ivyo bihe. Ntitwovuga ngo Kiranga ni we yatanguje ubwami — Ntare ni we imigenzo ibona nk'uwatanguje ingoma. Ariko Kiranga na Ntare, mu nkuru, baragendana hamwe: umwe afise ubwami, uwundi afise Imana.
 
 ---
 
