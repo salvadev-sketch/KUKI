@@ -26,6 +26,8 @@ Isoko rindi, Yaga Burundi, ryo ryerekana ikindi gice cy'inkuru: Mwezi yahunze aj
 
 Ntitwovuga ngo izo nkuru zibiri zivuguruzanya rwose — zishobora kuba zivuga ibihe bibiri bitandukanye vy'intambara imwe, canke amasoko yagiye ashimika ku bantu batandukanye. Ariko ico dushobora kuvuga ku bwizewe ni iki: **Twarereye yaratsinzwe, kandi Ndivyariye na Rwasha (ku bumwe mu buryo) bagize uruhara rukomeye muri iyo ntsinzi.**
 
+[FR-CITATION] 🟡 Iyi migenzo ibiri ivuye ku "Université du Burundi" no ku "Yaga Burundi," nk'uko byavuzwe hejuru — sinabashije kuronka indi soko (Chrétien, Nduwamahoro) ivuga ku ntambara ya Nkondo canke ku mugani "Biracitse nk'ivy'i Nkondo." Igomba kwongera kwemezwa niba dushaka kuyongera ku rwego rwo hejuru.
+
 ---
 
 Ivyerekeye umubare w'abasirikare, canke uko intambara nyene yabaye ku buryo burambuye — igihe yamaze, uburyo bwakoreshejwe, ahandi hantu twaharwaniwe — ni make cane. Iyi ni imigenzo n'inkuru z'amateka, atari ivyanditswe n'umuntu yari ahari ico gihe.

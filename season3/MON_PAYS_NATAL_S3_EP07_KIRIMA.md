@@ -14,6 +14,8 @@ Mu migenzo yakusanyijwe, Kirima yavuga ko akomoka kuri Ntare Rugamba, biciye ku 
 
 Iyi ni **imigenzo**, atari umuryango dushobora kwemeza nk'ukuri kutagira amakenga. Isoko ubwaryo rikoresha imvugo iserevya amakenga: Kirima "yivugako" ari umuragwa — atari ko yari azwi n'abandi ko ari we.
 
+[FR-CITATION] 🟢 Chrétien (1993) yagize ati: « l'usurpateur Kirima vint d'abord s'implanter à Zina, pour affirmer sa qualité de "fils de Ntare" » — arivyo bisobanura mu Kirundi ngo: "uwiyita umuragwa, Kirima, yaciye ashinga urugo i Zina, kugira yerekane ko ari 'umuhungu wa Ntare.'" Iyo nyandiko ikoresha ijambo "usurpateur" (uwiyita), rimaze kwerekana amakenga y'uwo mwanditsi.
+
 ---
 
 Ariko yaba koko afise ico gitsina canke atacifise, ikintu kimwe kigaragara: Kirima yaronse **abayoboke benshi**, mu turere two mu buraruko bushira uburengero.
