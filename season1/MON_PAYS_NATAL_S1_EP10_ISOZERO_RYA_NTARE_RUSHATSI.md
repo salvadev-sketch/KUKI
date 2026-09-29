@@ -2,11 +2,11 @@
 
 Twaramaze kwiyumvamwo inkuru imwe.
 
-Inkuru ya Ntwero, Jabwe na Nsoro, Inamabuye, Buha n'umwungere Cambarantama — inkuru yitwa **umuzunguruko wa Nkoma**, iyiganje cane mu migenzo yakusanyijwe.
+Inkuru ya Ntwero, Jabwe na Nsoro, Inamabuye, Buha n'umwungere Cambarantama — inkuru yitwa **umuzunguruko wa Nkoma**, iyiganje cane mu migenzo yegeranijwe.
 
 Ariko si yo yonyene.
 
-Kandi iyi episode ni yo iheza inkuru ya Ntare Rushatsi — atari ngo turangize ivyo tuzi vyose, ahubwo ngo turangize urugendo twagenze kugira twumve neza aho tugeze.
+Kandi iyi episode ni yo iheza inkuru ya Ntare Rushatsi — atari ngo duheze ivyo tuzi vyose, ahubwo ngo turaze urugendo twagenze kugira twumve neza aho tugeze.
 
 ---
 
