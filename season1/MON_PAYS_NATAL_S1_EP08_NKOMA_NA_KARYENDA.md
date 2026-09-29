@@ -20,7 +20,7 @@ Iyo nzoka ivugwa ko yavuye muri uwo mugina, igakubita umutwe kuri urwo rusato.
 
 Haca humvikana ijwi.
 
-[FR-CITATION] 🟡 Nk'uko umuvugizi Stanislas Masasu yabitangaje (yasomewe muri Chrétien, "Du hirsute au hamite," 1981), yagize ati: « le serpent nkoma... cogne la peau de sa tête... et elle résonne comme un tambour » — arivyo bisobanura mu Kirundi ngo: "inzoka nkoma... ikubita umutwe ku ruhu... hakumvikana ijwi risa n'iry'ingoma."
+[FR-CITATION] 🟡 Nk'uko umuvugizi Stanislas Masasu yabitangaje (yasomewe muri Chrétien, "Du hirsute au hamite," 1981), yagize ati: « cogne la peau de sa tête... résonne comme un tambour » — arivyo bisobanura mu Kirundi ngo: "ikubita umutwe ku ruhu... ijwi risa n'iry'ingoma," bivuga inzoka nkoma.
 
 ---
 
