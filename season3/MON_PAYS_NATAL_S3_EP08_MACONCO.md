@@ -12,6 +12,8 @@ Amasoko amwita **umukwe wa Mwezi Gisabo** — ni ukuvuga yari yarongoye umukobwa
 
 Yari umuntu akomeye, afise ubushobozi n'abayoboke.
 
+[FR-CITATION] 🟢 Wikipedia ("Burundi–Germany relations") yagize iti: « His son-in-law, Inanga Maconco, joined forces with the Germans when they tried to capture Mwezi... he was arrested and hanged by the Germans after being accused of stealing a weapon » — arivyo bisobanura mu Kirundi ngo: "umukwe wiwe, Inanga Maconco, yifatanije n'Abadagi igihe bagerageza gufata Mwezi... yaje gufatwa akanigwa n'Abadagi, ashinzwe icaha co kwiba igikoresho c'intambara."
+
 ---
 
 Ariko umubano wiwe na Mwezi urononekara — kandi impamvu, nk'uko amakuru menshi abivuga, ni imbwa.
