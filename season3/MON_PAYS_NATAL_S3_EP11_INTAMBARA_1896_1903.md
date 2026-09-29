@@ -22,11 +22,13 @@ Mu gihe c'urugamba, ibwami i **Muramvya** — icicaro ca Mwezi kuva kera — har
 
 ---
 
-Urubuga rwa Leta y'Uburundi ruvuga ko Abadagi n'abari babashigikiye bahatiye Mwezi kuva i Muramvya, inyuma y'ibitero n'ugutwika ibice vy'ibwami.
+ABP na burundidaily.net bavuga ko Abadagi n'abari babashigikiye bahatiye Mwezi kuva i Muramvya, inyuma y'intambara ya Gahondo (24 Rusama 1903) n'ugutwika ibice vy'ibwami.
+
+[FR-CITATION] 🟢 ABP ("120 ans après la signature du Traité de Kiganda") itanga itariki nyayo y'intambara ya nyuma: 24 Rusama 1903, i Gahondo, hafi ya Muramvya, Kiganda na Fota.
 
 Mwezi arava i Muramvya, aja **i Kiganda**.
 
-Hari n'isoko rimwe, iry'umuhinga Émile Mworoha, rivuga ko Mwezi yagiye i **Burunga** — ahantu h'ingenzi mu migenzo y'ubwami — imbere y'uko ibintu bigera ku musozo w'intambara.
+Isoko rimwe (Club Karibu) rivuga ko Mwezi yahunze mu bumanuko, ariko Abapadiri Beera b'i **Mugera**, hamwe n'abana biwe bamwe (Ntarugera na Rugema), bamuhanuye ngo aganire n'Abadagi.
 
 Amasoko ntahurira ku rukurikirane runaka rw'ibintu byabaye. Ntitwoshaka guhimba urukurikirane nk'aho hari isoko imwe gusa.
 

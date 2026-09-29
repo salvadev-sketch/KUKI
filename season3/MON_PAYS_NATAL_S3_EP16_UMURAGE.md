@@ -36,7 +36,9 @@ Amasoko amuha imyaka 13 kugeza 15 — akiri muto cane.
 
 Ni co gituma, nk'uko twabibonye kuri Mwezi ubwiwe kera, igihugu carongowe n'abamufasha, umwami akiri muto.
 
-Hano hari umugore wa Mwezi Gisabo, yitwa **Ririkumutima**, uwagize uruhara rukomeye muri ubwo butegetsi bw'abamufasha — naho hari amasoko avuga ko atari nyina w'amaraso w'umwami mushasha. Nyina we ariko yitwa **Ntibanyiha Bizama**, mu masoko amwe. Ntitwovanga abo babiri.
+Hano hari umugore wa Mwezi Gisabo, yitwa **Ririkumutima**, uwagize uruhara rukomeye muri ubwo butegetsi bw'abamufasha — naho hari amasoko avuga ko atari nyina w'amaraso w'umwami mushasha. Nyina we ariko yitwa **Ntibanyiha**, mu masoko amwe. Ntitwovanga abo babiri.
+
+[FR-CITATION] 🟢 Wikipedia ("Ririkumutima", asubiramwo Gates & Akyeampong; "Mutaga IV of Burundi") bemeza ko Ntibanyiha ari nyina w'amaraso wa Mutaga IV Mbikije, mu gihe Ririkumutima ari uwundi mugore wa Mwezi Gisabo wagerageje kwikuza ubutegetsi. IWACU ivuga ko Ririkumutima yaje kwica Ntibanyiha kugira ngo yikuze ubwo bwami. 🟡 Amasoko atatandukanya ku myaka Mutaga yari afise igihe yashikira ku ngoma: EP16 ivuga 13-15, Wikipedia ivuga 15-16 (yavutse 1892, ashikira 1908).
 
 ---
 

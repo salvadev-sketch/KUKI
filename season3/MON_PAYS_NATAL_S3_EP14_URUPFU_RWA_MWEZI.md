@@ -8,6 +8,8 @@ Ico dushobora kuvuga dushize umutima hamwe ni iki: **Mwezi IV Gisabo yapfuye ku 
 
 Inyandiko y'Ikigo c'Igihugu c'Ibarurishamibare ca Kayanza, hamwe n'iy'Université du Burundi, zombi zihurira kuri iyo tariki n'ahantu.
 
+[FR-CITATION] 🟢 IWACU ("Du passé composé au futur simple") na yaga-burundi ("Mutaga Mbikije, cet autre roi victime du divide et impera") bemeza itariki (21 Ruheshi/Myandagaro 1908) n'ikibanza (Buhonga, ubu ni komine Kanyosha, intara ya Bujumbura). Wikipedia ("Mwezi IV of Burundi") na yo iremeza umwaka (1908), naho itanga gusa "August" nta munsi uzwi.
+
 ---
 
 Ariko hari ikibazo kimwe kigumye gifunguye: **yoba yarishwe?**

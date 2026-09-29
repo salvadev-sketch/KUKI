@@ -8,6 +8,8 @@ Aho **inganzo yiwe** — imva y'umwami — iri ku **musozi wa Remera**, mu karer
 
 Kandi iri munsi y'uburinzi bw'**Abiru** — abo bacunga imigenzo n'ivy'idini vy'ubwami.
 
+[FR-CITATION] 🟢 Urubuga rwa UNESCO ("Les paysages naturels sacrés de Muramvya, de Mpotsa et de Nkiko-Mugamba", whc.unesco.org), twari twakoresheje kuri Ntare Rugamba na Mutaga Mbikije, na rwo rwemeza ko igituba ca Mwezi Gisabo kiri i Remera, muri Nkiko-Mugamba.
+
 ---
 
 Iyi ni imwe mu nkuru zitworohera kubona ahantu nyakuri, atari imigenzo gusa. Nk'uko twabibonye kuri Gishora, mu Season 2, hari ahantu amateka y'Uburundi ashobora kwerekana, atari kuvuga gusa.

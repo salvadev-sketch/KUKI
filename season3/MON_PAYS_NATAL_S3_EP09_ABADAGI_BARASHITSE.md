@@ -16,6 +16,8 @@ Hagati y'ikiyaga n'ikirimba c'umwami, hari intambwe ndende — kandi Mwezi Gisab
 
 Amasoko yose ahurira ku kintu kimwe: **Mwezi Gisabo yabanje kurwanya ukwinjira kw'Abadagi**, mu myaka yinshi.
 
+[FR-CITATION] 🟢 IWACU, ABP (Agence Burundaise de Presse), na burundidaily.net (bose bavuga ku bijanye n'imyaka 100+ y'Amasezerano ya Kiganda) bahurira ku nkuru imwe: kuva 1885 gushika 1903, Abarundi barwanije ukwinjira kw'Abadagi imbere y'igihugu.
+
 Ntitwoshaka gukoresha ijambo "guhagarika" — kuko ntiyabahagaritse igihe cose. Ariko ntiyabemereye kwinjira bidatevye, nk'uko biboneka ko babigira ahandi.
 
 Yari umwami wamaze imyaka yigarurira ubwami bunini bwa se. Ntiyari kwemera ata kurwana, ko umuntu uwo ari we wese, uvuye hehe uwo ari we wese, aza kumugabanyiriza ubwami bwiwe.

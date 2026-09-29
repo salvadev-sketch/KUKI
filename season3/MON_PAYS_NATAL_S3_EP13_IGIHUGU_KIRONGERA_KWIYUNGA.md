@@ -14,6 +14,8 @@ Ico kibazo cabaye ingenzi cane ku Badagi: kugabura ubutegetsi mu bagabo batatu, 
 
 Aca ahindura politike.
 
+[FR-CITATION] 🟢 Yaga-Burundi ("Mwezi Gisabo et l'après traité de Kiganda") ivuga ko Von Grawert (uwasubiye Von Beringe nka résident) yasanze abatware benshi bakiyobokera Mwezi, ico kikaba caramuteye kwongera gukomeza ubutegetsi bwiwe.
+
 Ku wa **15 Rusama 1905**, Von Grawert yafashe **Maconco**, aramwica i Usumbura.
 
 Iyi ntsinzi imwe yahinduye vyose:
@@ -31,6 +33,8 @@ Iyo si intsinzi y'ubugarariji ku ruhande rw'Abadagi bakunda ubwigenge bw'Uburund
 Kirima, na we, ntiyagumye ari akaga gakomeye igihe kirekire.
 
 Yafashwe i **Mibirizi**, mu Rwanda, mu **Ndamukiza 1906**, hanyuma ajanwa mu bunyagano i **Neu-Langenburg**, hafi y'ikiyaga Nyasa, mu bihugu bikwiragiye none nka Malawi.
+
+[FR-CITATION] 🟢 Yaga-Burundi ("Au Burundi, les rébellions, c'est aussi dans l'histoire ancienne") yemeza itariki ya Maconco (15 Rusama 1905, i Usumbura) n'iya Kirima (afashwe Mbirizi mu Ndamukiza 1906, ajanwa Neu-Langenburg), hamwe n'itariki Mwezi yongeye kumenyekana ku bwami bwose: 8 Gitugutu 1905.
 
 ---
 

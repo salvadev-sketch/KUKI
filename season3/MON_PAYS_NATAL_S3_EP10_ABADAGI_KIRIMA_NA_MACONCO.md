@@ -12,7 +12,9 @@ Aca abasanga.
 
 ---
 
-Minisiteri y'Ubukerarugendo y'Uburundi ivuga yeruye: Von Berling yaronse ubufasha bwa Maconco na Kirima, maze abo bagabo babiri, bari basanzwe barwanya umwami, bafasha ingabo z'Abadagi kumushira ku gitutu.
+burundidaily.net na Club Karibu (bisubiramwo inyandiko z'amateka y'ubukoloni) bavuga yeruye: **Von Beringe** (izina rinasomwa "Von Bering"/"Von Berling") yaronse ubufasha bwa Maconco (umukwe wa Mwezi) na Kirima (murumuna wa Mwezi), maze abo bagabo babiri, bari basanzwe barwanya umwami, bafasha ingabo z'Abadagi kumushira ku gitutu, bahawe abasirikare 400 n'ibirwanisho.
+
+[FR-CITATION] 🟢 Amasoko atatu yisumbukanya (burundidaily.net, Club Karibu, ABP) yemeza izina rya Von Beringe, isano ya Maconco na Kirima na Mwezi (umukwe n'umuvukanyi), n'uko bahawe abasirikare 400.
 
 Ntitwovuga ngo Abadagi bari bakunda Kirima na Maconco.
 

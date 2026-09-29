@@ -32,6 +32,8 @@ Ariko hari **uwundi mupfumu** yamubwiye ko akwiye guhagarika ico gikorwa, kuko *
 
 Mwezi Gisabo arahagarika.
 
+[FR-CITATION] 🟢 Wikipedia ("Catholic Church in Burundi") ivuga iyi nkuru neza: Mwami Mwezi IV Gisabo yagerageje kubirukana, akoresheje uburozi n'ibiterasoni, ariko uwundi mupfumu aramubwira ngo ahagarike, kuko Imana izokingira abo bamisiyonari. Ikigo c'ikiliziya (eglisecatholique.bi) na yaga-burundi bemeza itariki ya Mugera: 11 Ruhuhuma 1899.
+
 ---
 
 Iyi nkuru ni ngufi, ariko ifise insobanuro ikomeye: Mwezi ntiyakoresheje ingabo ku bamisiyonari, nk'uko yabigenje kuri Kirima na Maconco. Yakoresheje uburyo bw'idini n'imigenzo — kandi yareke, igihe uwundi mupfumu yamubwiye ko ari uko bikwiye.

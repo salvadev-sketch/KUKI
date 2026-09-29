@@ -24,7 +24,9 @@ Mwezi yemeye:
 
 **Ubwigenge bwa Maconco i Muramvya.**
 
-Gutanga **inka 424** nk'indishi — atari 420, nk'uko amasoko amwe yoshobora kubivuga make; urubuga rwa Leta y'Uburundi rutanga umubare uwo, ugaragara ko ari wo w'ukuri.
+Gutanga **inka 424** nk'indishi.
+
+[FR-CITATION] 🟢 Guidetouristique-Club Karibu (biciye ku nyandiko z'amateka y'ubukoloni) na burundi-forum.org ("Retour sur les 121 ans du Traité de Kiganda") bemeza itariki (6 Ruheshi 1903), ikibanza (Kiganda, Muramvya), n'ingingo z'amasezerano (ubusegaba bw'Ubudagi, ubwigenge bwa Kirima i Bukeye na Maconco i Muramvya, inka 424).
 
 Kutongera kubuza ibikorwa vy'ubutumwa bwa Gatolika i Mugera.
 
