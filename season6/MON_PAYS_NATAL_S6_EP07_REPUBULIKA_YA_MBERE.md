@@ -8,7 +8,9 @@ Ariko Micombero ntiyaciye yubaka ubutegetsi bushasha nk'ubutegetsi bwa gisivile 
 
 Ubutegetsi bushasha bwari bushingiye cane ku gisirikare.
 
-Inyuma yo gufata ubutegetsi, Micombero yabaye umutware wa **Conseil National de la Révolution (CNR)**, wari ugizwe n'abasirikare cumi na barindwi, muri bo cumi na babiri bakaba bari Abatutsi.
+Inyuma yo gufata ubutegetsi, Micombero yabaye umutware wa **Conseil National de la Révolution (CNR)**, wari ugizwe gusa n'abasirikare.
+
+[FR-CITATION] 🟢 Wikipedia ("November 1966 Burundian coup d'état") ivuga ko CNR yashinzwe mu buryo bw'agateganyo, igizwe gusa n'abasirikare, iyoborwa na Micombero. IWACU itanga urutonde rw'amazina 10 rurimwo: Micombero, Sylvère Sota, Martin Ndayahoze, Zacharie Harerimana, Gabriel Ndikumana, André Ntahonsigaye, Albert Shibura, Damien Nkoripfa, Marcien Burasekuye, na Jérôme Sinduhije. 🟡 Umubare nyawo w'abagize CNR (17, na 12 Batutsi) ntitwabashije kuwemeza.
 
 ---
 

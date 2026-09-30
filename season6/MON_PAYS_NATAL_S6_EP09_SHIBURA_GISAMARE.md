@@ -10,6 +10,8 @@ Amasoko amushira hamwe na Simbananiye nk'abantu bari bafise uruhara runini mu bi
 
 Abo bantu batatu bari bafise inkomoko ya Tutsi-Hima, kandi bari mu bantu bakomeye bari bagize uwo murwi.
 
+[FR-CITATION] 🟢 Wikipedia ("Ikiza") ivuga ko amatati hagati y'Abatutsi-Banyaruguru (bafitaniye isano n'ubwami bwa kera) n'Abatutsi-Hima (bo mu bwoko bwa Micombero n'abambari biwe ba Bururi) yagumije ubutegetsi bwa Micombero budashobora kwemerwa n'igihugu cose.
+
 ---
 
 Ariko ubwo bushobozi ntibwabakingiye igihe cose.

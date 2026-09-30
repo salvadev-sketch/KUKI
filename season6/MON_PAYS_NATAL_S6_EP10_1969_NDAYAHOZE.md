@@ -12,15 +12,17 @@ Ku wa 18 Ndamukiza 1968, yandikiye Micombero raporo imuburira ku mwuka mubi muri
 
 ---
 
-Mu ntango za Nyakanga 1969, uwo mugambi wari uhari koko — canke abantu bavuze ko uhari.
+Mu ntango za Nzero (Septembre) 1969, uwo mugambi wari uhari koko — canke abantu bavuze ko uhari.
 
-Uwo mugambi wari utegerezwa kuba mu ijoro ryo ku wa 16–17 Nyakanga 1969.
+Uwo mugambi wari utegerezwa kuba mu ijoro ryo ku wa 16–17 Nzero 1969.
 
 Ndayahoze yarawumenyesheje Micombero.
 
 ---
 
-Inyuma y'ivyo, abantu bagera kuri 70 barafashwe. Muri bo, hafi 25 bakicwa.
+Inyuma y'ivyo, abantu bagera kuri 70 barafashwe. Muri bo, 25 baciriwe urubanza rw'urupfu.
+
+[FR-CITATION] 🟢 Wikipedia ("Martin Ndayahoze") na Sciences Po Mass Violence Research Network (ikurikiza Chrétien & Dupaquier 2007, Lemarchand 1970/1994) bemeza itariki (intango za Nzero/Septembre 1969, umugambi utegekanijwe ku ijoro ryo ku wa 16-17), umubare w'abafashwe (70), n'uw'abaciriwe urubanza rw'urupfu (25). 🟡 Twahinduye "Nyakanga" (Ukwezi kwa 7) aja kuri "Nzero" (Ukwezi kwa 9), kuko amasoko yose ahuriza kuri Septembre, atari Juillet.
 
 ---
 
