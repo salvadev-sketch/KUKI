@@ -12,9 +12,19 @@ Ariko Ntare V yamaze igihe gito cane.
 
 ---
 
-Mu **Munyonyo 1966**, **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose.
+Mu **Gushyingo 1966**, **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose.
 
 Uburundi buba **Repubulika**.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("July 1966 Burundian coup d'état," "Ntare V of Burundi") yemeza itariki (8 Mukakaro/Nyakanga 1966 — Ntare V akura se ku ngoma; 28 Munyonyo/Gushyingo 1966 — Micombero akuraho ubwami).
+
+*Icyitonderwa: iyi episode ikoresha "Gushyingo" ku kwezi kwa 11, naho izindi episode (nka EP03) zikoresha "Munyonyo." Ntabwo ari ikosa ry'itariki, ni inconsistency y'imyandikire y'amezi ikwiye gucungurwa.*
+
+---
 
 ---
 

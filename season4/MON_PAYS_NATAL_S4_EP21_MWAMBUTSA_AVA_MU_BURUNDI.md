@@ -14,6 +14,14 @@ Charles Ndizeye yaciye afata izina ry'ingoma:
 
 ---
 
+**[CITATION — 🟢]**
+
+Wikipedia ("Mwambutsa IV of Burundi," "July 1966 Burundian coup d'état") na royalark.net byemeza itariki nyayo (24 Ntwarante 1966) Mwambutsa yahereye umuhungu wiwe ububasha, hamwe n'uko yaguma mu buhungiro (cane cane mu Busuwisi) kugeza apfuye i Genève mu 1977.
+
+---
+
+---
+
 Ariko Mwambutsa, ku mugaragaro, yari akiri umwami.
 
 Yari yasize umuhungu wiwe amuserukira, atari amuha ingoma burundu.
