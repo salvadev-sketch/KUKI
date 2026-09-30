@@ -10,6 +10,8 @@ Hari imirwano ikomeye.
 
 **Léopold Biha yarakomerekejwe.**
 
+[FR-CITATION] 🟢 Wikipedia ("1965 Burundian coup d'état attempt") ivuga ko ku wa 18-19 Gitugutu 1965, umutwe mutoyi w'abasirikare n'abapolisi b'Abahutu, bayoborwa na Gervais Nyangoma na Antoine Serukwavu, bagenda ku bwami, maze Biha ararasa akomereka. Igikorwa carananiwe, kirwanywe n'ingabo ziyobowe na Michel Micombero.
+
 Igikorwa co gutembagaza ubutegetsi carananiwe.
 
 ---

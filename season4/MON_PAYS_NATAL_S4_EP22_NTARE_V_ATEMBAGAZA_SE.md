@@ -2,7 +2,9 @@
 
 Ku wa 8 Mukakaro 1966, Charles Ndizeye yakuye se, Mwambutsa IV, ku ngoma.
 
-Aba **Ntare V** — umwami mukuru, atari uwuserukira se gusa.
+Aba **Ntare V** — umwami mukuru, atari uwuserukira se gusa. Yirukanye Léopold Biha, asaba Captain Michel Micombero (w'imyaka 26) gushinga guverinoma nshasha, ishinzwe ku wa 12 Mukakaro.
+
+[FR-CITATION] 🟢 Wikipedia ("July 1966 Burundian coup d'état") yemeza itariki (8 Mukakaro 1966), izina ry'ingoma (Ntare V), n'ishirwaho rya guverinoma ya Micombero (12 Mukakaro). 🟡 Ntare V yaje kwimikwa mu buryo bwa kitsina ku wa 1 Nzero 1966 (Icongereza: "1 September"), itariki itandukanye n'iyo yatanguye gutegeka.
 
 ---
 
@@ -12,7 +14,9 @@ Ariko Ntare V yamaze igihe gito cane.
 
 ---
 
-Mu **Munyonyo 1966**, **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose.
+Mu **Munyonyo 1966** (ku wa 28), **Michel Micombero** yaciye akuraho ubwami muri Uburundi bwose, mu gikorwa ca gatatu co gutembagaza ubutegetsi mu myaka ibiri.
+
+[FR-CITATION] 🟢 Wikipedia ("November 1966 Burundian coup d'état," "Michel Micombero") yemeza itariki (28 Munyonyo 1966).
 
 Uburundi buba **Repubulika**.
 

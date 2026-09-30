@@ -6,7 +6,9 @@ Ntiyari kuzosubira gutwara Uburundi ari ku butaka bw'Uburundi.
 
 ---
 
-Mu **Ntwarante 1966**, yahaye umuhungu wiwe **Charles Ndizeye** ububasha bwo kumuserukira mu gihugu.
+Mu **Ntwarante 1966** (ku wa 24), yahaye umuhungu wiwe **Charles Ndizeye**, w'imyaka 18, ububasha bwo kumuserukira mu gihugu.
+
+[FR-CITATION] 🟢 Wikipedia ("July 1966 Burundian coup d'état," "Mwambutsa IV of Burundi") yemeza itariki (24 Ntwarante 1966) n'imyaka ya Charles Ndizeye (18).
 
 Charles Ndizeye yaciye afata izina ry'ingoma:
 
