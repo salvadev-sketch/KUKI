@@ -2,7 +2,7 @@
 
 Yavukiye i **Rutovu**, mu ntara ya **Bururi**.
 
-Amasoko dufise ubu ntatanga itariki nyakuri y'ivuka ryiwe.
+[FR-CITATION] 🟢 Wikipedia ("Michel Micombero," ikurikiza Dictionary of African Biography 2008), Wikidata, na peoplepill.com bose bemeza itariki nyayo: 26 Myandagaro 1940.
 
 ---
 
@@ -18,7 +18,9 @@ Mu 1962, igihe Uburundi bwaronse ubwigenge, Micombero yari amaze kuba umwe mu ba
 
 ---
 
-Mu **Rusama 1963**, aba **Ministre de la Défense nationale**, muri kapiteni.
+Mu **1965** (amwe mu masoko avuga Rusama), aba **Ministre de la Défense nationale**, afise imyaka 23.
+
+[FR-CITATION] 🟡 Wikipedia n'andi masoko menshi (peoplepill, kiddle.co) bemeza ko yashizweho ku mwanya w'umushikiranganji w'ingabo afise imyaka 23, ariko ntibahuriza ku mwaka nyawo (bimwe biterekeza 1964, ibindi 1965); igihe c'ivyabaye (imbere y'ibiza vya Gitugutu 1965) bishimikiza umwaka wa 1965. Twahinduye "Rusama 1963" kuko itariki nyayo idasobanutse.
 
 Yari atagifise gusa umwanya w'umusirikare — yari amaze kuja hafi cane y'ububasha bw'ingabo n'umutekano w'igihugu.
 

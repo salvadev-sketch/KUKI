@@ -14,11 +14,15 @@ Se yari **Mwambutsa IV Bangiricenge** — uwo twize mu Season 4.
 
 Nyina yari **Umwamikazi Baramparaye**.
 
-Ndizeye yari umuhungu wa kabiri wa Mwambutsa IV, nk'uko Commission Vérité et Réconciliation y'Uburundi ibivuga.
+Ndizeye yari umuhungu wa kabiri wa Mwambutsa IV — umwana wa mbere ari Louis Rwagasore, avutse ku wundi mugore wa Mwambutsa, Thérèse Kanyonga.
+
+[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi," ikurikiza Scott 2019, p.127) na Wikidata bemeza itariki (2 Kigarama 1947), ikibanza (Gitega), nyina (Baramparaye Ruhasha, 1929-2007). Ikirundi.org (Ligue Monarchique du Burundi) ivuga ko Ndizeye ari "umwana wiwe w'ikinege" — ni ukuvuga umwana wenyene wa Baramparaye, ariko ari uwa kabiri muri bene Mwambutsa muri rusangi.
 
 ---
 
-Yakuze mu gihe cabaye ikigoye ku muryango wiwe: mushiki wiwe, Rosa Paula, na murumuna wiwe, Rwagasore, na bo bavutse muri uwo muryango. Ariko Rwagasore yaguye igihe Ndizeye akiri muto cane — twize iyo nkuru muri Season 5.
+Yakuze mu gihe cabaye ikigoye ku muryango wiwe: mukuru wiwe, Louis Rwagasore (avutse mu 1932, ku wundi mugore wa se), na bashiki biwe, Rosa Paula na Régine Kanyange. Ariko Rwagasore yaguye igihe Ndizeye akiri umwana w'imyaka 9 — twize iyo nkuru muri Season 5.
+
+[FR-CITATION] 🟢 Wikipedia ("Mwambutsa IV of Burundi") ivuga ko abana ba Mwambutsa ari Louis Rwagasore, Rosa Paula Iribagiza, Régine Kanyange, na Charles Ndizeye. Twahinduye "murumuna" (uwato) aja "mukuru" kuko Rwagasore yavutse mu 1932, imyaka 15 imbere ya Ndizeye (1947).
 
 Uburundi bwari bumaze kuronka ubwigenge, ariko bugifise ibikomere bikomeye, amacakubiri, n'inzitiro kenshi.
 

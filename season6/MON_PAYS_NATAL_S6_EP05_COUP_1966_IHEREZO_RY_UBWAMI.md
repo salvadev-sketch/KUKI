@@ -20,6 +20,8 @@ Ku wa **28 Munyonyo 1966**, Michel Micombero yakoze igikorwa co gutembagaza ubut
 
 **Ubwami bwa Burundi burakurwaho.**
 
+[FR-CITATION] 🟢 Wikipedia ("November 1966 Burundian coup d'état") yemeza itariki (28 Munyonyo 1966) n'ukuraho ubwami.
+
 ---
 
 Micombero aca atangaza ko Uburundi bubaye **Repubulika**, aba na we Perezida wa mbere.
