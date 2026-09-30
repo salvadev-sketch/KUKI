@@ -26,6 +26,14 @@ Ariko Arusha ntiyaciye ikemura intambara ubwo nyene: uwuzoyobora inzibacyuho, uk
 
 ---
 
-Mu **Gitugutu 1999**, Julius Nyerere yarapfuye. **Nelson Mandela** yaramusubiriye nk'umuhuza w'ibiganiro.
+Mu **Gitugutu 1999**, ku wa 14, Julius Nyerere yarapfuye. **Nelson Mandela** yaramusubiriye nk'umuhuza w'ibiganiro, ku wa 1 Kigarama 1999.
+
+---
+
+**[CITATION — 🟢]**
+
+Congressional Research Service (RS20910, Leta zunze Ubumwe za Amerika) yemeza ko Buyoya yararahiye nk'umukuru w'inzibacyuho muri Kamena 1998, iminsi ibiri inyuma yo gushiraho Transitional Constitutional Act; ibiganiro vya Arusha na vyo vyatanguriye muri Kamena 1998. Africa Confidential na VOA (globalsecurity.org) byemeza itariki nyayo y'urupfu rwa Nyerere (14 Ukwakira 1999) n'iyo Mandela yashizweho (1 Kigarama 1999).
+
+---
 
 **MON PAYS NATAL — SEASON 8 — EP14 — AMASEZERANO YA ARUSHA — 2000**, ni ho tuzobibona.

@@ -32,4 +32,12 @@ Ariko intsinzi ya Ndadaye ntiyari iherezo ry'ibibazo vya politike vy'Uburundi.
 
 Amatati y'amoko, ubwoba mu gisirikare, n'ukutizerana hagati y'imirwi ya politike vyaguma vyihishe.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("1993 Burundian presidential election," "Sylvie Kinigi," "Adrien Sibomana") byemeza itariki y'amatora (1 Ruheshi/Juin 1993) n'iyo Ndadaye yararahiye (10 Mukakaro/Juillet 1993).
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP10 — 1993–1996: INTAMBARA IRATANGURA, BUYOYA ARI HANZE**, ni ho tuzoraba ico kigihe, ku ruhande rwa Buyoya.

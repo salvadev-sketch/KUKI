@@ -36,4 +36,12 @@ Coup ntiyakiriwe kimwe n'abantu bose. Ku rwego mpuzamakungu, yaramaganwe — Per
 
 Ariko hari ikintu kimwe gikwiye kwibukwa: **Buyoya ntiyaciye afunga canke ngo yice Ntibantunganya.** Ntibantunganya yagumye muri Ambassade y'Amerika, hanyuma Buyoya yaragiranye na we ibiganiro.
 
+---
+
+**[CITATION — 🟢]**
+
+Inyandiko ya UN Security Council (S/1996/591, 23 Nyakanga 1996), itangazo rya Boutros Boutros-Ghali (SG/SM/6025), AP wire (biciye kuri ReliefWeb), Human Rights Watch, na Universalis/Le Monde byemeza itariki zose (20 Nyakanga — Bugendana; 23 — Ntibantunganya mu Ambassade; 25 — Buyoya) n'igitigiri (barenga 300, ibindi bimwe bivuga 320-648) c'abapfuye i Bugendana.
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP12 — SANCTIONS N'IKIBAZO C'AMAKAMBI YA REGROUPEMENT**, ni ho tuzobibona.

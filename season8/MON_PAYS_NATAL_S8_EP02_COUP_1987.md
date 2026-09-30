@@ -26,7 +26,7 @@ Icakurikiye caragenze mu ntambwe eshatu zitomoye:
 
 **3 Septembre 1987** — Buyoya afata ubutegetsi biciye muri coup.
 
-**11 Septembre 1987** — Comité Militaire pour le Salut National (CMSN), inzego nshasha yashizweho, yahisemwo Buyoya kuba Umukuru w'Igihugu.
+**9 Septembre 1987** — Comité Militaire pour le Salut National (CMSN), inzego nshasha yashizweho, yahisemwo Buyoya kuba Umukuru w'Igihugu.
 
 **2 Ukwakira (Octobre) 1987** — Buyoya ararahira nka Perezida wa Repubulika ya Gatatu.
 
@@ -40,7 +40,7 @@ Ku wa 13 Septembre 1987, Cathédrale ya Gitega, yari yarafunzwe mu gihe ca Bagaz
 
 **[CITATION — 🟢/🟡]**
 
-Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nzeri 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Ukwakira 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya (9 canke 11 Nzeri): CIDOB (mu Cyesipanyoli) ivuga 9 Nzeri, naho iyi episode ikoresha 11 Nzeri — ikibazo gito gikeneye gucungurwa mu masoko y'inyandiko (nka Refworld canke Keesing's Record of World Events).
+Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nzeri 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Ukwakira 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya: CIDOB na archontology.org (urutonde rw'abakuru b'igihugu) byombi byemeza 9 Nzeri 1987 — iki gikosoye 11 Nzeri yari muri iyi episode mbere.
 
 ---
 

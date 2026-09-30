@@ -28,4 +28,12 @@ Ariko ntitwokwihutira kuvuga ko ibintu vyose vyahindutse ubwo nyene.
 
 Amatati yari akiriho, kandi inzira iri imbere yari ndende cane: réconciliation, dialogue, Itegeko Nshinga rishasha, multipartisme, amatora.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("1988 ethnic violence in Burundi," "Adrien Sibomana") na Wikidata byemeza itariki ya Commission (4 Gitugutu 1988, ifise abagize 24, hafi ku buryo bungana hagati y'Abahutu n'Abatutsi), itariki Sibomana yatanguye (19 Gitugutu 1988), n'uko igitigiri cy'abaminisitiri b'Abahutu cavuye kuri 6 kigera kuri 12, kuri 24 zose.
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP08 — RÉCONCILIATION NATIONALE (1988–89)**, ni ho tuzobandanya.
