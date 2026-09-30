@@ -130,7 +130,7 @@ Hanyuma hazoca haza abandi.
 
 Abavukana mu nkuru imwe y'imigenzo.
 
-Abahungu ba Ntwero muri iyo tradition.
+Abahungu ba Ntwero muri iyo migenzo.
 
 Umwe afitaniye isano n'uturere two mu buraruko.
 
@@ -172,7 +172,7 @@ Hanyuma imigenzo igatangura kuvuga inkuru izotuma izina rimwe rija kure cane:
 
 **Ntare Rushatsi Cambarantama.**
 
-Ni muri iyo nkuru, kandi muri iyo tradition, aho Ntare avukira.
+Ni muri iyo nkuru, kandi muri iyo migenzo, aho Ntare avukira.
 
 Ariko...
 

@@ -30,7 +30,7 @@ Izina **Ruhinda** ntirivugwa mu Burundi gusa.
 
 Mu karere k'ibiyaga binini — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Abachwezi/Hinda**.
 
-[FR-CITATION] 🟡 Chrétien (1981) avuga ko iyi "thèse Hinda" yakomeje kuvugwa n'abanditsi b'ubukoloni (Stuhlmann, Van der Burgt, de Heusch 1966) kugira bahuze ubwami bwa Burundi na Ruhinda w'ibiyaga bigari, ariko Chrétien ubwiwe ararwanya iyi hypothesis, ayita ikintu cavuye ku "bricolage intellectuel" bw'abanditsi b'inyuma, atari ikimenyetso c'amateka cemejwe.
+[FR-CITATION] 🟡 Chrétien (1981) avuga ko iyi "thèse Hinda" yakomeje kuvugwa n'abanditsi b'ubukoloni (Stuhlmann, Van der Burgt, de Heusch 1966) kugira bahuze ubwami bwa Burundi na Ruhinda w'ibiyaga bigari, ariko Chrétien ubwiwe ararwanya iki gitekerezo, ayita ikintu cavuye ku "bricolage intellectuel" bw'abanditsi b'inyuma, atari ikimenyetso c'amateka cemejwe.
 
 Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri iyo migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe yategetse ahantu hose.
 

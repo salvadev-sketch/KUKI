@@ -34,7 +34,7 @@ Iyi ni imwe mu nkuru zikomeye cane kuri iyi documentaire, kuko yerekana ikintu t
 
 Uyu ni wo mutwe mukuru w'inkuru ya Mutaga III.
 
-Amakimbirane hagati y'u Rwanda n'Uburundi yashitse ku rugero rwo hejuru mu gihe ciwe. Imigenzo ivuga ko yari yarashinze umurwa wiwe i **Nkanda**, mu karere kari mu Rwanda rw'ubu, hafi y'inkengero z'Akanyaru — hamwe n'ikindi kigo i **Mwumba**.
+Amatati hagati y'u Rwanda n'Uburundi yashitse ku rugero rwo hejuru mu gihe ciwe. Imigenzo ivuga ko yari yarashinze umurwa wiwe i **Nkanda**, mu karere kari mu Rwanda rw'ubu, hafi y'inkengero z'Akanyaru — hamwe n'ikindi kigo i **Mwumba**.
 
 Ni i Nkanda Mutaga III yaguye mu ntambara.
 
@@ -66,7 +66,7 @@ Aho yahambwe ntibisobanutse neza — hari abamuhuza na Budandari, ariko iyo mva 
 
 ---
 
-Mutaga III Sebitungwa ni umwe mu bami bafise inkuru ikomeye kurusha iy'abo twize kera — Mwezi I, Mutaga I, Mwambutsa I, Mutaga II, na Mwambutsa II. Inkuru yiwe ihuza urukundo n'intambara, ubucuti n'amakimbirane, mu buryo budasanzwe.
+Mutaga III Sebitungwa ni umwe mu bami bafise inkuru ikomeye kurusha iy'abo twize kera — Mwezi I, Mutaga I, Mwambutsa I, Mutaga II, na Mwambutsa II. Inkuru yiwe ihuza urukundo n'intambara, ubucuti n'amatati, mu buryo budasanzwe.
 
 ---
 

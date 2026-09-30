@@ -120,7 +120,7 @@ Bamwe bavuga ko **Jabwe** ashobora kuba afitaniye isano n'ijambo "kujaba" — ku
 
 Nsoro na we, bamwe bavuga ko yibutsa **ubusoro** — amabuye yo mu ruzi — canke **igisoro**, umukino wo mu migenzo ukoreshwa amabuye/insoro.
 
-Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis.
+Iyo nsiguro ntizemejwe n'abahinga bose. Ni igitekerezo gitarahamywa.
 
 [FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981, asubiramwo F.M. Rodegem) yagize ati: « Jabwe peut dériver de kujaba, "troubler l'eau" » — arivyo bisobanura mu Kirundi ngo: "Jabwe ashobora kuva ku ijambo 'kujaba,' 'gutera akajagari mu mazi.'" Uwo muhinga anavuga ko Nsoro na we ashobora kwibutsa "ubusoro" (amabuye yo mu ruzi) n'umukino w'igisoro.
 

@@ -44,7 +44,7 @@ Hari n'iyindi nkuru, itandukanye rwose, ivuga ko Ntwero atavukiye i Bututsi na g
 
 Iyo nkuru ivuga ko yavuye i **Bushi**, hakurya y'ikiyaga Tanganyika, akaza mu Burundi azanye imvura yari yarabuze mu misozi.
 
-Iyo tradition ihuza izina rya Ntwero n'ahantu bita **Kizingwe** — ikibanza kibitse ubwo bwibutso.
+Iyo migenzo ihuza izina rya Ntwero n'ahantu bita **Kizingwe** — ikibanza kibitse ubwo bwibutso.
 
 Ntitwokwemeza ko iyi nkuru ari yo y'ukuri kuruta iyindi. Zombi ziratandukanye. Zombi ni imigenzo. Kandi zombi zibitswe n'abantu batandukanye, ahantu hatandukanye.
 

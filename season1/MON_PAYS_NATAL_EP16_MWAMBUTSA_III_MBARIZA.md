@@ -36,7 +36,7 @@ Imigenzo ivuga ko bamwe mu bamwegereye bagerageje kumwica. Hari inkuru izwi cane
 
 Mwambutsa ngo yarakekeranije uwo mugambi, arungika umukozi imbere yiwe. Uwo mukozi ni we winjira mu mazi, agapfa mu mwanya wiwe.
 
-Ni umugani. Ntituwushire nk'ikintu cemejwe. Ariko urerekana amakimbirane y'ubutegetsi yari inyuma y'ugutoranya umwami.
+Ni umugani. Ntituwushire nk'ikintu cemejwe. Ariko urerekana amatati y'ubutegetsi yari inyuma y'ugutoranya umwami.
 
 ---
 
