@@ -28,6 +28,16 @@ Le Monde yamudondoye nk'umuntu wagiye hagati ya **"coups d'État et compromis"**
 
 ---
 
+**[CITATION — 🟢/🟡]**
+
+Inyandiko rasmi ya African Union (Progress Report of the Chairperson, 25 Mutarama 2013) yemeza ko Buyoya yashizweho Special Representative/Head of AFISMA ku wa **30 Nzero 2013** — bihuye 100% na EP16. Ku bijanye n'itariki yashizweho High Representative: inyandiko imwe ya AU ivuga inama yo ku wa 24 Ukwakira 2012 (EP16 ikoresha 25) — itandukaniro rito rikwiye gucungurwa. Africanews na Rappler (18 Ukuboza 2020) byemeza ko yeguye ku mwanya mu mpera za Munyonyo 2020, iminsi mikeya inyuma yo gucirwa urubanza (20 Gitugutu 2020).
+
+Icivugo ca Le Monde ("coups d'État et compromis") sinabashije kukiyemeza ku murongo — gikeneye gucungurwa mu bubiko bw'ibinyamakuru.
+
+---
+
+---
+
 Ariko mu gihe kimwe nyene, hari ikibazo kimwe kikomeye cane, gishobora guhindura burundu ukuntu iyi nkuru yose isozerwa.
 
 **MON PAYS NATAL — SEASON 8 — EP17 — URUBANZA RWA NDADAYE N'URUPFU / ISOZERO**, ni ho tuzoheza urugendo rwa Buyoya.

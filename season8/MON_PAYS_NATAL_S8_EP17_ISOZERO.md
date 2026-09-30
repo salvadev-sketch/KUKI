@@ -28,6 +28,14 @@ Ntidushobora kuvuga vyinshi ku bijanye n'ihambwa rya nyuma — nta soko ikomeye 
 
 ---
 
+**[CITATION — 🟢]**
+
+African Union (Communiqué ya Moussa Faki Mahamat, 18 Kigarama 2020), Rappler, na Africanews byemeza itariki y'urupfu (17 Kigarama 2020, i Paris, inyuma yo kuvanwa i Bamako), n'uko yeguye ku mwanya wa AU iminsi mikeya imbere y'urupfu, inyuma yo gucirwa urubanza (20 Gitugutu 2020).
+
+---
+
+---
+
 None se, twomufata dute mu mateka?
 
 Buyoya yafashe ubutegetsi kabiri biciye muri coup — 1987 ahirika Bagaza, 1996 ahirika Ntibantunganya. Amateka yiwe afatanye cane n'uruhara rw'igisirikare muri politike y'Uburundi.
