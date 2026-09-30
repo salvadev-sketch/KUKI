@@ -8,7 +8,7 @@ Umwami yari yaratwaye Uburundi imyaka irenga mirongo itanu, agapfa kure y'igihug
 
 Yapfuye ku wa **26 Ntwarante 1977**, i Genève, afise imyaka 64.
 
-Amasoko menshi ahurira kuri iyo tariki, naho hari andi make atanga izindi. Kuri iyi documentaire, ntituzogera ku gihamya idashidikanywako, ariko iyi ni yo tariki iboneka mu masoko menshi.
+Amasoko menshi ahurira kuri iyo tariki, naho hari andi make atanga izindi. Kuri iyi documentaire, ntituzogera kuri gihamya idashidikanywako, ariko iyi ni yo itariki iboneka mu masoko menshi.
 
 ---
 
@@ -18,6 +18,14 @@ Yahambwe mu Busuwisi, i **Meyrin**.
 
 Umwami wari yaronse ubwigenge bw'igihugu ciwe, yaraye apfa mu buhungiro, kure y'ubwo bwigenge nyene.
 
-Ariko urupfu rwiwe, ntirwarangije inkuru.
+Ariko urupfu rwiwe, ntirwarangije inkuru — mu buryo bw'ukuri, budasanzwe, nk'uko tuzobibona muri episode ikurikira.
 
 **MON PAYS NATAL — SEASON 4 — EP24 — IKIBAZO C'IMVA / ISOZERO**, ni ho tuzoheza urugendo rwa Mwambutsa IV.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Mwambutsa IV of Burundi") na Face2Face Africa byemeza itariki y'urupfu (26 Ntwarante 1977, Genève) n'aho yahambwe bwa mbere (Meyrin).
+
+---
