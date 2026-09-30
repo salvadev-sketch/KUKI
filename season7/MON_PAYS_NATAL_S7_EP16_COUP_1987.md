@@ -16,7 +16,7 @@ Amaze kumenya ico gikorwa, Bagaza yagerageje gusubira muri Afrika, ariko ikibuga
 
 ---
 
-Buyoya, imbere ya coup, yari umwe mu basirikare bari bafise ijambo mu régime ya Bagaza. Bagaza na Buyoya bari abavukana ba kure (cousins), bombi Abahima bo mu Bururi.
+Buyoya, imbere y'ico gikorwa, yari umwe mu basirikare bari bafise ijambo mu butegetsi bwa Bagaza. Bagaza na Buyoya bari abavukana ba kure, bombi Abahima bo mu Bururi.
 
 [FR-CITATION] 🟡 Wikipedia ("1987 Burundian coup d'état") ivuga ko Buyoya yari mubyara wa Bagaza; Wikipedia ("1988 ethnic violence in Burundi") ivuga ko bombi bari Abatutsi-Abahima bo mu ntara ya Bururi. Igituma nyaco Buyoya yatanguye kutumvikana na Bagaza ntikirasobanuka neza mu masoko dufise.
 
@@ -25,13 +25,13 @@ Buyoya, imbere ya coup, yari umwe mu basirikare bari bafise ijambo mu régime ya
 Impamvu z'ico gikorwa zivugwa mu buryo butandukanye:
 
 - Diplomate zavuze ko ikibazo ca Leta na Kiliziya Gatolika, aho abaturage 65% ari Abagatolika, cari inkomoko ikomeye (Wikipedia, "1987 Burundian coup d'état").
-- Isoko rimwe (allAfrica) ryandika ko coup yakurikiye intango y'igitero c'abasirikare n'abasotsiyeri bakwiye guhabwa pension imbere y'igihe.
+- Isoko rimwe (allAfrica) ryandika ko icabaye cakurikiye intango y'igitero c'abasirikare n'abasotsiyeri bakwiye guhabwa pension imbere y'igihe.
 
 [FR-CITATION] 🟡 Ivyo ni impamvu zivugwa n'amasoko atandukanye, ntizishoboka kwemezwa nk'iyonyene. Twakuyeho ibice vyavugaga ikiganiro ca Buyoya na Le Monde (20 Nyakanga 1987) n'inyandiko ya Refworld, kubera ko tutashoboye kubona izo nyandiko.
 
 ---
 
-Inyuma ya coup, Buyoya yarahiye ku wa 2 Gitugutu 1987 nka perezida wa Military Committee for National Salvation. Yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya, kandi ubutegetsi bwiwe bwarekuye Abahutu amajana bari bafunzwe kubera politike.
+Inyuma y'ico gikorwa, Buyoya yarahiye ku wa 2 Gitugutu 1987 nka perezida wa Military Committee for National Salvation. Yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya, kandi ubutegetsi bwiwe bwarekuye Abahutu amajana bari bafunzwe kubera politike.
 
 [FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état") ivuga ko Buyoya, Umugatolika, yavuze ko azokuraho ingingo Bagaza yashize kuri Kiliziya; Wikipedia ("1988 ethnic violence in Burundi") yongera ko yashize imbere kuvugurura umubano na Kiliziya, agakuraho ibibuza vyinshi vyo mu Deuxième République, akarekura Abahutu amajana bafunzwe kubera politike. 🟡 Itariki nyayo yo gufungura Cathédrale ya Gitega ntitwabashije kuyibona, ni co gituma tutayivuga.
 

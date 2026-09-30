@@ -18,7 +18,7 @@ Ayandi amwita **Ruhinda**.
 
 Kandi ntawuvuga rimwe ngo ni amazina abiri y'umuntu umwe, ngo ni umuntu umwe agira amazina abiri gusa. Abashakashatsi berekana neza ko iyo migenzo itahuza: hari inkuru zivuga Ruhaga umwe wo mu Burundi ubwabwo, hari izindi zivuga Ruhaga w'i Buha, kandi Jean-Pierre Chrétien yerekana ko mu miganzo itandukanye y'inkuru ya Ntare Rushatsi, uyu mwami w'i Buha yitwa rimwe Ruhinda, ubundi Ruhaga.
 
-[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) avuga ko umwami w'i Buha yitwa rimwe Ruhinda, rindi Ruhaga, bishobora kuba bijanye n'uko ari Buha yo mu bumanuko canke iy'amajyaruguru.
+[FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) avuga ko umwami w'i Buha yitwa rimwe Ruhinda, rindi Ruhaga, bishobora kuba bijanye n'uko ari Buha yo mu bumanuko canke iyo muburaruko.
 
 Ntitwovuga ngo iryo hindagurika ry'izina ni ikosa ryo mu migenzo. Ni ikimenyetso c'ico dukwiye kwama twibuka: iyo turiko turavuga ku bantu babayeho imbere y'inyandiko, amazina ubwayo arashobora guhinduka uko inkuru igiye ivuye ku muntu ku wundi.
 
@@ -28,13 +28,13 @@ Hari n'ikindi kibazo gikomeye tudakwiye kwirengagiza.
 
 Izina **Ruhinda** ntirivugwa mu Burundi gusa.
 
-Mu karere k'ibiyaga bigari — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Abachwezi/Hinda**.
+Mu karere k'ibiyaga binini — muri Uganda, Tanzaniya no hirya no hino — hari imigenzo ivuga ku bami bitwa Ruhinda, bafitaniye isano n'imiryango ya **Abachwezi/Hinda**.
 
 [FR-CITATION] 🟡 Chrétien (1981) avuga ko iyi "thèse Hinda" yakomeje kuvugwa n'abanditsi b'ubukoloni (Stuhlmann, Van der Burgt, de Heusch 1966) kugira bahuze ubwami bwa Burundi na Ruhinda w'ibiyaga bigari, ariko Chrétien ubwiwe ararwanya iyi hypothesis, ayita ikintu cavuye ku "bricolage intellectuel" bw'abanditsi b'inyuma, atari ikimenyetso c'amateka cemejwe.
 
-Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri izo migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe wategetse ahantu hose.
+Abashakashatsi baragumya kudukebura: **Ruhinda wo mu nkuru ya Buha si ngombwa ko ari we nyene Ruhinda wo muri iyo migenzo z'ahandi.** Amazina asa, imiryango irashobora gufitaniye isano ya kure, ariko ntibisobanura ko ari umuntu umwe yategetse ahantu hose.
 
-Ni co gituma tuzoguma tuvuga: **Ruhaga/Ruhinda w'i Buha**, atari "Ruhinda w'ibiyaga bigari" bidasubiwemwo.
+Ni co gituma tuzoguma tuvuga: **Ruhaga/Ruhinda w'i Buha**, atari "Ruhinda w'ibiyaga binini" bidasubiwemwo.
 
 ---
 
@@ -61,10 +61,6 @@ Ntare arahunga, biciye ku ruzi rwa Malagarazi, agashika i Nkoma.
 Ariko urugendo rwa Ntare ntiruhera ng'aho.
 
 Imigenzo ivuga ko haciye ibihe, Ntare na Ruhaga/Ruhinda **basubiye guhangana**, ubu ntibakiri umwungere n'umwami wiwe, ahubwo ari abagabo babiri bahiganwa ku bubasha.
-
-Ariko uko iyo ntambara yagenze — ni nde watsinze mbere, ni nde wasubiye kurwana, kandi ni ryari — ivyo biratandukana bivanye n'itondagurika ry'inkuru. Ntitwovuga ngo hari umurongo umwe uwo bose bemeranyaho.
-
----
 
 Ico dushobora kuvuga neza kuri Ruhaga/Ruhinda:
 

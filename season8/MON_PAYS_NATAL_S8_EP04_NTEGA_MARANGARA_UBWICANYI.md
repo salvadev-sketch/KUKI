@@ -16,4 +16,12 @@ Inyuma y'ubwicanyi bwo mu ntango, igisirikare c'Uburundi carinjiye muri ako kare
 
 Ariko igisirikare nticagarukiye gusa ku kurwanya abari bakoze ibitero.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("1988 ethnic violence in Burundi," inyandiko yihariye, ishingiye ku bushakashatsi bwinshi bw'abahinga) yemeza itariki (14-15 Myandagaro 1988), ahantu (Ntega, Kirundo; Marangara, Ngozi), n'uko ata bimenyetso bikomeye byerekana ko ubwo bwicanyi bw'intango bwari bwateguwe n'umugwi runaka wa politiki wa Hutu. Igitigiri cy'abapfuye kiratandukanye cane hagati y'amasoko (TIME/Genocide Watch bavuga 5.000; Iwacu/AMEPCI bavuga 25.000) — iyi episode neza ntiyacisha ijambo kuri iryo tandukaniro.
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP05 — NTEGA NA MARANGARA — INYISHU Y'IGISIRIKARE**, ni ho tuzobibona.

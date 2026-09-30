@@ -40,7 +40,7 @@ Mu **1964**, yasubiye mu buhungiro — aja i **Uvira**, muri Congo, hanyuma i **
 
 ---
 
-Muri Ruheshi 1964, yararegwe kandi ko yagize uruhara mu mugambi wo guhirika Gouvernement ya **Albin Nyamoya**. Ntitwovuga ko yarateguye coup — tuvuga ko yararegwe.
+Muri Ruheshi 1964, yararegwe kandi ko yagize uruhara mu mugambi wo guhirika guverinoma ya **Albin Nyamoya**. Ntitwovuga ko yarateguye ico gikorwa — tuvuga ko yararegwe.
 
 ---
 

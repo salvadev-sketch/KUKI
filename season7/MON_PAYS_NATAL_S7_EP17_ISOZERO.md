@@ -4,7 +4,7 @@ Twamukurikiranye kuva i Bururi, mu gisirikare, gushika ku ntebe ya Perezida.
 
 Twaramubonye afata ubutegetsi bushingiye ku gisirikare, hanyuma agerageza kubuhindura buba iburyo bushingiye kuri UPRONA nk'umutima wa système.
 
-Twaramubonye akuraho impôt de capitation n'ubugererwa, ashinga ibikorwa vy'iterambere, ariko na none akuraho impari nyakuri mu matora, akongera akagira amakimbirane akomeye na Kiliziya Gatolika.
+Twaramubonye akuraho impôt de capitation n'ubugererwa, ashinga ibikorwa vy'iterambere, ariko na none akuraho impari nyakuri mu matora, akongera akagira amatati akomeye na Kiliziya Gatolika.
 
 ---
 
@@ -32,7 +32,7 @@ Ivyo bisigaye — ubuzima bwiwe bwose mu buhungiro — bikeneye ubundi bushakash
 
 ---
 
-Uburundi bwari bumaze kubona abategetsi batatu bakurikirana bafashe ubutegetsi biciye kuri coup — Micombero, Bagaza, ubu na Buyoya.
+Uburundi bwari bumaze kubona abategetsi batatu bakurikirana bafashe ubutegetsi biciye ku bikorwa vyo gutembagaza ubutegetsi — Micombero, Bagaza, ubu na Buyoya.
 
 [FR-CITATION] 🟢 APA News ivuga ko guhirikwa kwa Jean-Baptiste Bagaza na Pierre Buyoya ni guhindura ubutegetsi kwa gatatu kwabaye ku ngufu kuva ku bwigenge.
 

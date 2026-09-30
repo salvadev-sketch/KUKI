@@ -24,4 +24,12 @@ Ntitwovuga ko imigambwe yose yari ishingiye ku bwoko gusa. Politike y'ico gihe y
 
 Ikintu gikomeye cane: régime ya Buyoya yemeye gutegura amatora y'amashirahamwe menshi ya politike — ibintu bishasha cane, kuko kuva mu 1966 igihugu cari kimaze igihe kinini munsi y'ubutegetsi bw'igisirikare n'umugambwe umwe.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("1991 Burundian Charter of National Unity referendum," "1992 Burundian constitutional referendum") na IFES (raporo yo muri 1992) byemeza inzira yose: Charte de l'Unité Nationale yemejwe na référendum (Wikipedia ivuga 9 Gashuantano 1991; isoko rimwe ry'ubuhinga mu Bufaransa rivuga 5 Gashuantano — gato gutandukana gukwiye gucungurwa), hanyuma Constitution yemejwe na référendum ku wa 9 Ntwarante 1992, isohoka (promulguée) ku wa 13 Ntwarante 1992.
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP09 — AMATORA YA 1993 — BUYOYA YEMERA GUTSINDWA**, ni ho tuzobibona.

@@ -22,6 +22,8 @@ Uburundi buba **Repubulika**.
 
 ---
 
+---
+
 Aha, amateka y'ingoma y'abami b'Uburundi — urugendo twagize kuva ku Ntwero na Ntare Rushatsi, imyaka amajana menshi imbere, gushika kuri uyu musi — yahagarariye burundu.
 
 Umwana yakuye se ku ngoma. Uwundi mugabo yakuye ubwami ku bwami bwose.

@@ -1,6 +1,6 @@
 # MON PAYS NATAL — S1 — EP08 — NKOMA NA KARYENDA
 
-Ntare amaze guhunga Buha, biciye ku ruzi rwa Malagarazi, agashika mu karere kimwe kizoba ikirori mu nkuru y'Uburundi.
+Ntare amaze guhunga Buha, biciye ku ruzi rwa Malagarazi, agashika mu karere kamwe kazoba ikirori mu nkuru y'Uburundi.
 
 Izina ryako: **Nkoma.**
 
@@ -52,13 +52,13 @@ Rero Nkoma iba ahantu hahurira ibintu bibiri:
 
 Ikimenyetso c'ubutegetsi — **Karyenda.**
 
-N'ikimenyetso c'uburumbuke n'ubuzima bw'igihugu — **Umuganuro.**
+N'ikimenyetso c'uburumbuke/irondoka numwimbu n'ubuzima bw'igihugu — **Umuganuro.**
 
 ---
 
 Ariko tuributswe rimwe: ntitwovuga ko ibi vyose vyabaye ku munsi umwe, canke ko Ntare, akiri i Nkoma, ari we yubatse ivyo vyose uko biri none.
 
-Ibibanza nka Gishora, aho ingoma zera zaje kubikwa, byaje kuboneka mu myaka y'inyuma cane, biciye ku mwami Ntare Rugamba, mu kinjana ca cumi n'icenda — imyaka myinshi inyuma ya Ntare Rushatsi. Ntitwovanga ivyo bihe.
+Ibibanza nka Gishora, aho ingoma zera zaje kubikwa, vyaje kuboneka mu myaka y'inyuma cane, biciye ku mwami Ntare Rugamba, mu kinjana ca cumi n'icenda — imyaka myinshi inyuma ya Ntare Rushatsi. Ntitwovanga ivyo bihe.
 
 Ico dufise kuri Ntare Rushatsi ubwiwe ni ngoro: izina rya Karyenda ryatanguriye i Nkoma, mu nkuru y'urusato n'inzoka, kandi ko Umuganuro nyene ufatanywa na we.
 

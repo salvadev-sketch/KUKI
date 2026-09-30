@@ -10,13 +10,13 @@ Abagabye igitero barateye ku kirimba c'Umwami. Abari barinze Umwami barishwe, ar
 
 Ubutegetsi bwaciye bwagiriza Mirerekano ko yari afise uruhara muri uwo mugambi.
 
-Ariko ntitwovuga "Mirerekano ni we yateguye coup." Umuhinga René Lemarchand yavuze ko bamwe mu banyapolitike b'Abahutu bashobora kuba bari muri uwo mugambi, ariko ko abantu benshi bishwe mu nyuma bari abere.
+Ariko ntitwovuga "Mirerekano ni we yateguye igikorwa co gutembagaza ubutegetsi." Umuhinga René Lemarchand yavuze ko bamwe mu banyapolitike b'Abahutu bashobora kuba bari muri uwo mugambi, ariko ko abantu benshi bishwe mu nyuma bari abere.
 
-Ntitufise gihamya iduha uburenganzira bwo kuvuga ko Mirerekano ari we yateguye coup.
+Ntitufise gihamya iduha uburenganzira bwo kuvuga ko Mirerekano ari we yateguye igikorwa co gutembagaza ubutegetsi.
 
 ---
 
-Inyuma y'iyo coup attempt, ibintu vyaciye bihinduka amaraso.
+Inyuma y'ico gerageza co gutembagaza ubutegetsi, ibintu vyaciye bihinduka amaraso.
 
 Ku wa **21 Gitugutu**, conseil de guerre yaciriye urwo gupfa abasirikare 34.
 

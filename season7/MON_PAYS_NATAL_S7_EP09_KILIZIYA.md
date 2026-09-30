@@ -6,7 +6,7 @@ Ariko uko imyaka yagenze, guverinoma yatanguye kubona ibikorwa vya Kiliziya — 
 
 ---
 
-Haciye haza: kugabanya ibikorwa vya Kiliziya, guhagarika bimwe muri byo, amakimbirane akomeye hagati ya Leta na Kiliziya Gatolika, n'ifatwa ry'abatavuga rumwe n'ubutegetsi.
+Haciye haza: kugabanya ibikorwa vya Kiliziya, guhagarika bimwe muri byo, amatati akomeye hagati ya Leta na Kiliziya Gatolika, n'ifatwa ry'abatavuga rumwe n'ubutegetsi.
 
 Ikigo c'Ubushikiranganji bw'Amerika (U.S. Department of State) kivuga ko, inyuma y'amatora yo mu 1984, urwego rw'uburenganzira bwa muntu munsi ya Bagaza rwarushirije kuba mibi, harimwo guhagarika ibikorwa vy'idini no gufata abanyapolitike batavuga rumwe na Leta.
 

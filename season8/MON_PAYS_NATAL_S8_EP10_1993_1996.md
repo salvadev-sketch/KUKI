@@ -30,4 +30,14 @@ Muri ico gihe cose, Uburundi bwinjiye mu ntambara: armée, imirwi yitwaje ibirwa
 
 Buyoya yari hanze y'ubutegetsi, ariko yagumye ari umuntu akomeye mu basirikare no muri politike.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Timeline of Burundian history," "Cyprien Ntaryamira," "1994 in Burundi") na archontology.org (urutonde rw'abakuru b'igihugu) byemeza itariki zose: urupfu rwa Ndadaye (21 Gitugutu 1993), Ntaryamira ararahira (5 Ruhuhuma 1994), Ntaryamira apfa hamwe na Habyarimana (6 Ndamukiza 1994).
+
+*Icyitonderwa: archontology.org na yo yemeza ko CMSN yahisemwo Buyoya ku wa 9 Nzeri 1987 (atari 11) — ikemura ikibazo twari twaravuze kuri EP02.*
+
+---
+
 **MON PAYS NATAL — SEASON 8 — EP11 — COUP YA 1996 — BUYOYA ASUBIRA KU BUTEGETSI**, ni ho tuzobibona.

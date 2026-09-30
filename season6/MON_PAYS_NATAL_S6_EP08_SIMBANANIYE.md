@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 6 — EP08 — ARTÉMON SIMBANANIYE
 
-Inyuma ya coup yo ku wa 28 Munyonyo 1966, Micombero yamugize **Procureur général de la République**.
+Inyuma y'igikorwa co gutembagaza ubutegetsi co ku wa 28 Munyonyo 1966, Micombero yamugize **Procureur général de la République**.
 
 Ku wa 6 Kigarama 1966, amugira **Ministre de la Justice.**
 

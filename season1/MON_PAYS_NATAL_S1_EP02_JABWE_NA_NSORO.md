@@ -86,13 +86,13 @@ Jabwe arashaka ko umwana aba iwe.
 
 Nsoro na we amubona nk'umwana w'umugore wiwe, azoba mu rugo rwiwe.
 
-Igihe kimwe, Jabwe yasavye ko Ntare, akiri muto, aza kumusura.
+Igihe kimwe, Jabwe yasavye ko Ntare, akiri muto, aza kumuramutsa muhira iwiwe.
 
 Ntare arajayo.
 
 Ariko Jabwe **aramugumana**, ntiyemera ko Ntare asubira kwa Nsoro.
 
-Ni ho amatati hagati y'abavukana yarushiriza gukomera, agahinduka ikintu kitagira umuti woroshe.
+Ni ho amatati hagati y'abavukana yarushiriza gukomera, agahinduka ikintu kitoroshe gutorera umuti.
 
 ---
 
@@ -100,15 +100,15 @@ Nsoro ararwana na Jabwe.
 
 Ingabo za Jabwe ziratsinda.
 
-Nsoro, hamwe n'abantu biwe n'amasho yiwe, barazimira mu bishanga vya **Gitanga**, hagati ya Matana na Ryansoro.
+Nsoro, hamwe n'abantu biwe n'amasho yiwe, barazimira mu rufunzo rwa **Gitanga**, hagati ya Matana na Ryansoro.
 
-Ni ho haturuka umugani ukiriho gushika none:
+Ni ho haturuka umugani ukiriho gushika na nubu:
 
 **"Kunyika nka Nsoro yanyikiye mu Gitanga."**
 
 Mu Kirundi, kunyika ni ukuzimira, kurohama mu kintu — umuntu akagenda ntamenyekane aho ari.
 
-Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari **imvugo** ivuga ko azimiye, izindi zikavuga ko yapfuye mu ntambara. Ico dushobora kuvuga neza ni ico: bararwanye, Nsoro akazimira i Gitanga, kandi izina ryiwe ryaje kuguma mu rurimi rw'ikirundi nk'umugani, uwundi na uwundi akawukoresha ata n'aho aribuka Nsoro ubwiwe.
+Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari **imvugo** ivuga ko yazimiye/aburirwa irengero, izindi zikavuga ko yapfuye mu ntambara. Ico dushobora kuvuga neza ni ico: bararwanye, Nsoro akazimira i Gitanga, kandi izina ryiwe ryaje kuguma mu rurimi rw'ikirundi nk'umugani, abantu dukoresha.
 
 [FR-CITATION] 🟡 Nk'uko thesis ya Nduwamahoro ibivuga (asubiramwo Rodegem, 1965:94; Mworoha, 1987:106), Nsoro yatsinzwe muri iyo ntambara "acaazimanganira mu Gitânga" — kandi abakomotse kuri we baritwa Abasoro.
 
@@ -116,31 +116,18 @@ Ntitwovuga ngo Nsoro yaraguye ng'aho koko. Hari **imvugo** ivuga ko azimiye, izi
 
 Hari abahinga bibajije ikindi kintu: amazina Jabwe na Nsoro nyene, mbega afise insobanuro?
 
-Bamwe bavuga ko **Jabwe** ashobora kuba afitaniye isano n'ijambo "kujaba" — kudurumbanya amazi — mu gihe *umujabu* akaba yasobanura ibuye ryo mu ruzi.
+Bamwe bavuga ko **Jabwe** ashobora kuba afitaniye isano n'ijambo "kujaba" — kudurumbanya amazi — mu gihe *umujabu* akaba yasobanuye ko ari ibuye ryo mu ruzi.
 
-Nsoro na we, bamwe bavuga ko yibutsa **ubusoro** — amabuye yo mu ruzi — canke **igisoro**, umukino wo mu migenzo ukoreshwa amabuye.
+Nsoro na we, bamwe bavuga ko yibutsa **ubusoro** — amabuye yo mu ruzi — canke **igisoro**, umukino wo mu migenzo ukoreshwa amabuye/insoro.
 
 Iyo nsiguro ntizemejwe n'abahinga bose. Ni hypothesis.
 
 [FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981, asubiramwo F.M. Rodegem) yagize ati: « Jabwe peut dériver de kujaba, "troubler l'eau" » — arivyo bisobanura mu Kirundi ngo: "Jabwe ashobora kuva ku ijambo 'kujaba,' 'gutera akajagari mu mazi.'" Uwo muhinga anavuga ko Nsoro na we ashobora kwibutsa "ubusoro" (amabuye yo mu ruzi) n'umukino w'igisoro.
 
-Ariko birashimishije kubona ko inkuru yabo yuzuyemwo amashusho y'amazi, amabuye, imigezi, ibishanga — kuva ku mvura yafashe Jabwe, gushika ku bishanga vya Gitanga vyanyitse Nsoro.
-
-Bishoboka ko izo si biographies z'abantu gusa, ahubwo ari n'uburyo imigenzo yagenze isobanura inkomoko y'uturere n'imiryango.
-
----
-
-Jabwe na Nsoro, umwe wese, si abantu bakwiye documentaire yabo bwite — ku makuru dufise ubu. Inkuru zabo hafi yose zizunguruka ku nkuru imwe: iy'ivuka rya Ntare n'ubutegetsi bwakurikiyeho.
-
-Ariko ntibaba abantu bo kwirengagiza.
-
-Nta Jabwe, nta Nsoro — nta Ntare azoba yarigeze kubaho muri iyi tradition.
-
----
 
 Umwana Ntare amaze kuvuka, akaba afitaniye isano n'amashami yombi yari amaze imyaka ahanganye, ikibazo kirongera:
 
-Uwo mwana, azokura hehe?
+Uwo mwana, azokurira hehe?
 
 Azorerwa na nde?
 

@@ -30,8 +30,8 @@ Mirerekano yari ageze ku rwego rwo hejuru rwa Leta.
 
 Ariko igihugu cari kimaze kwinjira mu bihe bibi.
 
-Urupfu rwa Pierre Ngendandumwe, amakimbirane ya UPRONA, ikibazo hagati y'Umwami n'abanyapolitike, n'ikibazo c'ubwoko carushiriza kwiyongera.
+Urupfu rwa Pierre Ngendandumwe, amatati ya UPRONA, ikibazo hagati y'Umwami n'abanyapolitike, n'ikibazo c'ubwoko carushiriza kwiyongera.
 
-Mu **Gitugutu 1965**, habaye coup attempt y'abasirikare.
+Mu **Gitugutu 1965**, habaye igerageza ryo gutembagaza ubutegetsi ry'abasirikare.
 
 **MON PAYS NATAL — SEASON 5 — EP23 — COUP YA 1965, IFATWA N'URUPFU**, ni ho tuzoheza ubuzima bwa Mirerekano.

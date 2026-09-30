@@ -20,7 +20,7 @@ Iyi ni intebuko iduha inyishu ku kibazo tugomba kubaza: ni kuki umuntu yari azwi
 
 ---
 
-Ku mpera z'ingoma yiwe, Bagaza yari afise ibibazo bitatu vyihuriye icarimwe: amakimbirane na Kiliziya, ingorane z'ubutunzi, n'ukutumvikana mu gisirikare ubwaco.
+Ku mpera z'ingoma yiwe, Bagaza yari afise ibibazo bitatu vyihuriye icarimwe: amatati na Kiliziya, ingorane z'ubutunzi, n'ukutumvikana mu gisirikare ubwaco.
 
 Ariko imbere yo kubona ico kibazo ca nyuma, dutegerezwa kumenya umuntu w'ingenzi wagize uruhara runini mu ngoma ya Bagaza — atari umusirikare, ariko umuhinga w'amateka.
 

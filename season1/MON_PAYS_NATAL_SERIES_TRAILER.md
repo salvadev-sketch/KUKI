@@ -20,7 +20,7 @@ Abantu bararaga imico.
 
 Abantu barashinga imiryango.
 
-Abandi barasiga amazina yabo mu bibanza, mu migani, mu migenzo no mu majambo yagiye aragenda avuye ku munwa umwe aja ku wundi.
+Abandi barasiga amazina yabo mu bibanza, mu migani, mu migenzo no mu majambo yagiye aragenda avuye ku munwa kumwe aja ku wundi.
 
 Ariko hari ikibazo gikomeye.
 
@@ -44,21 +44,19 @@ Mu bisigarira.
 
 Mu migenzo.
 
-Mu nyandiko zakusanyijwe haciye imyaka myinshi.
+Mu nyandiko zakusanyijwe/zegeranijwe haciye imyaka myinshi.
 
 Kandi rimwe na rimwe...
 
 ziza mu bintu bitandukanye cane.
 
-Kuko amateka y'igihugu atari igitabu kimwe.
+Kuko amateka/kahise k'igihugu atari igitabu kimwe.
 
 Ni urugendo.
 
 Ni ibice vyinshi vyagiye bibikwa n'abantu batandukanye.
 
 Hari ivyo dushobora kwegeranya.
-
-Hari ivyo dushobora kugereranya.
 
 Hari n'ivyo dutegerezwa kwemera ko tutabizi neza.
 
@@ -166,9 +164,9 @@ Arondera aho kwugama.
 
 Ashika ku rugo rwa Nsoro i Gashinyira.
 
-Nsoro ntiariho.
+Nsoro ntiyariho.
 
-Ariko umugore wiwe ari aho.
+Ariko umugore wiwe niho ari .
 
 Hanyuma imigenzo igatangura kuvuga inkuru izotuma izina rimwe rija kure cane:
 
@@ -184,7 +182,7 @@ Nta nyandiko yo muri ico gihe dufise itubwira ngo:
 
 **"Ni uko nyene vyagenze."**
 
-Ni co gituma tutazoyivuga nk'aho ari fact yemejwe.
+Ni co gituma tutazoyivuga nk'aho ari fact/verite 100% yemejwe.
 
 Tuzoyereka nk'uko yabitswe.
 
@@ -208,7 +206,7 @@ Umwana azovugwa mu nkuru z'imiryango.
 
 Umwana azohuzwa na Jabwe na Nsoro.
 
-Umwana azoca afitaniye isano n'uwundi muntu:
+Umwana azoba afitaniye isano n'uwundi muntu:
 
 **Inamabuye.**
 

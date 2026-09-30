@@ -10,13 +10,13 @@ Ariko ubucuti hagati ya Ntare V na Micombero ntibwamaze igihe kirekire.
 
 Hari amasoko yerekana ko Ntare V yashaka kugumana ububasha bukomeye nk'umwami, mu gihe abasirikare bakomeye nka Micombero bari bamaze kugira uruhara runini cane mu miyoborere y'igihugu.
 
-Ntitwovuga ko Micombero yahise ategura coup kubera gusa ko Ntare V atamwumvira. Hari ibintu vyinshi vyari bigize ico kibazo.
+Ntitwovuga ko Micombero yahise ategura igikorwa co gutembagaza ubutegetsi kubera gusa ko Ntare V atamwumvira. Hari ibintu vyinshi vyari bigize ico kibazo.
 
 ---
 
 Haciye amezi make gusa Ntare V afashe ubutegetsi, ibintu vyarahindutse.
 
-Ku wa **28 Munyonyo 1966**, Michel Micombero yakoze coup d'État.
+Ku wa **28 Munyonyo 1966**, Michel Micombero yakoze igikorwa co gutembagaza ubutegetsi.
 
 **Ubwami bwa Burundi burakurwaho.**
 

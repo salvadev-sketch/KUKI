@@ -16,9 +16,9 @@ Mwambutsa IV yarahunze igihugu.
 
 ---
 
-Amasoko atavuga rumwe ku ruhara rwa Micombero muri iyo coup attempt: hari araporo ivuga ko yari afitaniye isano na Serukwavu mu mugambi wo guhirika ubwami, ariko ko ingabo Micombero yohereje zidasanga Serukwavu nk'uko vyari vyategekanijwe — bagenda barahangana.
+Amasoko atavuga rumwe ku ruhara rwa Micombero muri ico gikorwa co kugerageza gutembagaza ubutegetsi: hari araporo ivuga ko yari afitaniye isano na Serukwavu mu mugambi wo guhirika ubwami, ariko ko ingabo Micombero yohereje zidasanga Serukwavu nk'uko vyari vyategekanijwe — bagenda barahangana.
 
-Ntitwovuga rero ko Micombero ari we yateguye wenyene iyo coup.
+Ntitwovuga rero ko Micombero ari we yateguye wenyene ico gikorwa.
 
 ---
 
@@ -28,7 +28,7 @@ Abadipolomate bari mu Burundi bagereranije abishwe hagati ya Gitugutu 1965 na Nz
 
 ---
 
-Iyo coup yari yaratsindwe.
+Ico gikorwa cari carananiwe.
 
 Ariko yari yarafashije Micombero kurushiriza kugira ububasha mu gisirikare no muri politike.
 

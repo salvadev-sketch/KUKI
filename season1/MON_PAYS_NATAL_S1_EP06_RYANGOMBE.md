@@ -24,9 +24,9 @@ Kandi hari ikibazo kimwe kikomeye kuruta ibindi vyose:
 
 **Ryangombe na Kiranga, mbega ni umuntu umwe?**
 
-Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi. [FR-CITATION] 🟡 Google Books yerekana ko igitabu ca de Heusch (*Le Rwanda et la civilisation interlacustre*, 1966) koko kirimwo ibisata bivuga ku "Kiraanga" no ku "mort de Ryangombe" (urupfu rwa Ryangombe) mu ndeksi yaco — ivyo bikomeza icizigiro ko iyi nkuru koko ivuye muri ico gitabo. 🔴 *(Ariko sinabashije kubona umwandiko ubwawo (igitabu ubwaco ntikiraboneka ku buntu kuri internet) kugira ngo nemeze ijambo "doublet" ku buryo bweruye. Rigumye ari ikintu gikeneye kwongera kwemezwa.)*
+Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi. [FR-CITATION] 🟡 Google Books yerekana ko igitabu ca de Heusch (*Le Rwanda et la civilisation interlacustre*, 1966) koko kirimwo ibisata bivuga ku "Kiraanga" no kuri "mort de Ryangombe" (urupfu rwa Ryangombe) mu ndeksi yaco — ivyo bikomeza icizigiro ko iyi nkuru koko ivuye muri ico gitabo. 🔴 *(Ariko sinabashije kubona umwandiko ubwawo (igitabu ubwaco ntikiraboneka ku buntu kuri internet) kugira ngo nemeze ijambo "doublet" ku buryo bweruye. Rigumye ari ikintu gikeneye kwongera kwemezwa.)*
 
-Impamvu yatanze: bombi ni abahigi bakomeye, kandi inkuru z'urupfu rwabo zisa cane — bombi bishwe n'inyamaswa ifise amahembe. Twaraye tubibona kuri Kiranga: yishwe n'impongo. Muri Rwanda, Ryangombe na we avugwa ko yishwe agiye guhiga kwa nyuma, n'inyamaswa ifise amahembe.
+Impamvu yatanze: bombi ni abahigi bakomeye, kandi inkuru z'urupfu rwabo zisa cane — bombi bishwe n'ibikoko bifise amahembe. Twaraye tubibonye kuri Kiranga: yishwe n'impongo. Muri Rwanda, Ryangombe na we avugwa ko yishwe agiye guhiga ubwanyuma, n'inyamaswa/igikoko gifise amahembe.
 
 Ariko ico ni **iciyumviro c'umuhinga**, si icemezo c'amateka.
 
@@ -34,7 +34,7 @@ Ariko ico ni **iciyumviro c'umuhinga**, si icemezo c'amateka.
 
 Hari n'ikindi kimenyetso gishimishije: **Binego.**
 
-Mu Rwanda, Binego avugwa nk'umwana wa Ryangombe, umwe mu bantu b'ingenzi mu mihango ya Kubandwa.
+Mu Rwanda, Binego avugwa nk'umwana wa Ryangombe, umwe mu bantu b'ingenzi/ngirakamaro mu mihango ya Kubandwa.
 
 Mu Burundi, Binego avugwa nk'umwana — canke umufasha — wa **Kiranga**.
 
@@ -52,13 +52,13 @@ Kubera iki amazina yahindutse gutya?
 
 Kuko Kubandwa ntiyari idini ry'igihugu kimwe gusa.
 
-Yari umugenzo wakwiragiye mu bice byinshi vy'akarere k'ibiyaga bigari — Rwanda, Uburundi, Buha, na kure kuruta aho.
+Yari umugenzo wakwiragiye mu bice byinshi vy'akarere k'ibiyaga binini — Rwanda, Uburundi, Buha, na kure kuruta aho.
 
 Mu Rwanda, umukuru w'Imandwa yitwa Ryangombe.
 
 Mu Burundi no mu Buha, akenshi yitwa Kiranga.
 
-Ntibisobanura ko ari umuntu umwe wemejwe. Bisobanura ko imigenzo y'idini rimwe, uko yinjira mu turere dutandukanye, itwara amazina atandukanye — ariko igasigara ifise igishushanyo kimwe: umukuru w'imyuka, umuhuza hagati y'abantu n'Imana, uwazwi mu bihe by'ubuhigi, uwapfuye ashwe n'inyamaswa ifise amahembe.
+Ntibisobanura ko ari umuntu umwe wemejwe. Bisobanura ko imigenzo y'idini rimwe, uko yinjira mu turere dutandukanye, itwara amazina atandukanye — ariko igasigara ifise igishushanyo kimwe: umukuru w'imyuka, umuhuza hagati y'abantu n'Imana, uwazwi mu bihe by'ubuhigi, uwapfuye yishwe n'inyamaswa ifise amahembe.
 
 ---
 
@@ -76,13 +76,13 @@ Amazina y'abantu b'Imandwa ahinduka bivanye n'akarere.
 
 Binego agasubira mu migenzo yombi.
 
-Imigani igasa ku bintu byinshi.
+Imigani igasa ku bintu vyinshi.
 
 Ariko nta muryango wizewe uduhuza Ryangombe na Ntare Rushatsi. Ntitubahuza nk'umuryango.
 
 ---
 
-Ryangombe rero, dufise ico dushobora kuvuga: yari umukuru w'Imandwa n'intwari ikomeye ya Kubandwa mu migenzo yo mu karere k'ibiyaga bigari. Mu Rwanda izina ryiwe rizwi cane. Mu Burundi no mu Buha, imigenzo imwe ikoresha izina Kiranga ku muntu afise uruhara rusa. Hari abashakashatsi babona Kiranga nk'ishusho ihindutse ya Ryangombe.
+Ryangombe rero, dufise ico dushobora kuvuga: yari umukuru w'Imandwa n'intwari ikomeye yo Kubandwa mu migenzo yo mu karere k'ibiyaga binini. Mu Rwanda izina ryiwe rizwi cane. Mu Burundi no mu Buha, imigenzo imwe ikoresha izina Kiranga ku muntu afise uruhara rusa. Hari abashakashatsi babona Kiranga nk'ishusho ihindutse ya Ryangombe.
 
 Ariko nta cemezo gihagije dufise co kuvuga ko ari umuntu umwe mu buryo bw'amateka.
 

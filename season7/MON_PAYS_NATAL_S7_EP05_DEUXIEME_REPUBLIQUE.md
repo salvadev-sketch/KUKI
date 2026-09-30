@@ -8,7 +8,7 @@ Ariko ntibwari ubuhinduka bwo hejuru gusa.
 
 Ku wa 2 Munyonyo 1976, hashizweho **Conseil Suprême Révolutionnaire (CSR)**, igizwe n'abasirikare 30, Bagaza akaba umutware wayo.
 
-[FR-CITATION] 🟡 Wikipedia (Igifaransa n'Icongereza) na Perspective Monde bemeza umubare (abagize CSR 30) n'uko Bagaza yayiyoboye. Ariko IWACU ivuga ko, ku wa 2 Munyonyo (umunsi ukurikira uwa coup), Bagaza yari amaze kuba "président du Conseil suprême révolutionnaire" mu gihe yatanga itangazo ryiwe — bivuze ko CSR ishobora kuba yarashinzwe ku wa 1 Munyonyo (umunsi wa coup ubwawo), atari ku wa 2, nk'uko biri hano.
+[FR-CITATION] 🟡 Wikipedia (Igifaransa n'Icongereza) na Perspective Monde bemeza umubare (abagize CSR 30) n'uko Bagaza yayiyoboye. Ariko IWACU ivuga ko, ku wa 2 Munyonyo (umunsi ukurikira uw'igikorwa co gutembagaza ubutegetsi), Bagaza yari amaze kuba "président du Conseil suprême révolutionnaire" mu gihe yatanga itangazo ryiwe — bivuze ko CSR ishobora kuba yarashinzwe ku wa 1 Munyonyo (umunsi w'igikorwa ubwawo), atari ku wa 2, nk'uko biri hano.
 
 Ni ukuvuga: ubutegetsi bushasha ntibwahavuye buva mu gisirikare. Igisirikare ni co cari ciyubatse mu mutima wa système nshasha.
 

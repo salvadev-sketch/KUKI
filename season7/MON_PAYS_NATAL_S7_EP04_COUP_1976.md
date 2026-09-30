@@ -4,11 +4,11 @@ Hari amakuru avuga ko umukuru w'ingabo, **Thomas Ndabemeye**, yari amaze igihe a
 
 Micombero amaze kubimenya, ngo yaravuganye n'abasirikare bakuru bo muri Bururi, harimwo Bagaza.
 
-Hanyuma Bagaza n'abo bari kumwe barihuta, bakora coup imbere y'uko uwundi mugambi ushika ku musozo.
+Hanyuma Bagaza n'abo bari kumwe barihuta, bakora igikorwa co gutembagaza ubutegetsi imbere y'uko uwundi mugambi ushika ku musozo.
 
 ---
 
-Ntitwovuga ngo "Ndabemeye ni we wari yateguye coup, Bagaza aca ayiba." Nta gihamya bihagije kuri ivyo.
+Ntitwovuga ngo "Ndabemeye ni we wari yateguye ico gikorwa, Bagaza aca akiyiba." Nta gihamya bihagije kuri ivyo.
 
 Ico dushobora kuvuga: hari amakuru avuga ko hari abasirikare bariko bategura gukura Micombero ku butegetsi, ariko amakuru ku buryo iyo migambi yari iteye aratandukanye. Bagaza we ni we yafashe intambwe ya nyuma.
 

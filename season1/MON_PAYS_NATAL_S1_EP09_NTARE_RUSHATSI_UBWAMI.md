@@ -2,11 +2,11 @@
 
 Twaramukurikiranye kuva ku muzi w'umuryango wiwe — Ntwero, Jabwe na Nsoro, Inamabuye, Ruhaga na Ruhinda.
 
-Twaramwikuye i Buha, umwungere yambaye urusato rw'intama.
+Twarimukanye i Buha, umwungere yambaye urusato rw'intama.
 
-Twaramwherekeje i Nkoma, aho urusato rw'impfizi yiwe rwatumye havuka ijwi ry'ingoma Karyenda.
+Twaramuherekeje i Nkoma, aho urusato rw'impfizi yiwe rwatumye havuka ijwi ry'ingoma Karyenda.
 
-Ariko ntitwaraza ku kibazo nyamukuru:
+Ariko ntituraza ku kibazo nyamukuru:
 
 **Ntare Rushatsi, umwami, yari nde koko? Kandi yategetse ryari?**
 
@@ -17,8 +17,6 @@ Iki ni ikibazo abashakashatsi batarabona inyishu imwe.
 Hari uwushira Ntare Rushatsi hagati ya 1530 na 1550, ashingiye ku rutonde rwa kera rw'abami.
 
 Hari abandi bamushira hagati ya 1680 na 1709, bashingiye ku bushakashatsi bugereranya ibisekuru vy'abami bakurikira — Mwezi Ndagushimiye, Mutaga Senyamwiza, Mwambutsa Mbariza, Ntare Rugamba.
-
-Hari n'igitekerezo kivuga ko yobayeho mu kinjana ca cumi n'itanu, gishingiye ku bijanye n'amapanga y'abami n'ahashinguwe abamikazi-mamawabo.
 
 Kandi hari abashakashatsi bo muri Kaminuza y'Uburundi bavuga umwanya munini, hagati ya 1500 na 1700, bakemeza yuko amatariki y'ibintu vy'ubwami bwa mbere atandukana bivanye n'umushakashatsi.
 
@@ -42,13 +40,13 @@ Ariko naho amatariki n'amazina bigoye, hari ibintu bimwe imigenzo yose ihuriraho
 
 Ntare Rushatsi afatwa nk'uwahuje ibice n'uturere twari dutandukanye kugira habeho ubwami bumwe.
 
-Ariko ntitwovuga ko Uburundi bw'ubu bwose bwari bumaze kuba igihugu kimwe igihe yimika. Mu bushakashatsi bumwe, ubwami bwa mbere bwari bugizwe n'ibice nka Mugamba, Buyenzi na Kirimiro — hamwe n'utundi turere two hagati no mu bumanuko. Ibice nka Bubanza, Cibitoke, Bugesera, Buyogoma na Buragane ntibyari birimwo muri ubwo bwami bwa mbere.
+Ariko ntitwovuga ko Uburundi bw'ubu bwose bwari bumaze kuba igihugu kimwe igihe yimikwa. Mu bushakashatsi bumwe, ubwami bwa mbere bwari bugizwe n'ibice nka Mugamba, Buyenzi na Kirimiro — hamwe n'utundi turere two hagati no mu bumanuko. Ibice nka Bubanza, Cibitoke, Bugesera, Buyogoma na Buragane ntivyari birimwo muri ubwo bwami bwa mbere.
 
 Ni ukuvuga: Ntare Rushatsi ntabwo yaremye Uburundi bufise imbibe nk'iz'uyu musi. Yafashije gushinga no guhuza igice c'ingenzi c'ubwami bwaje kwaguka mu binjana vyakurikiye.
 
 ---
 
-Mu bwami, Ntare Rushatsi afatanywa n'itanguriro ry'inzego zimwe zikomeye.
+Mu bwami, Ntare Rushatsi afatanywa n'itanguriro ry'inzego imwe ikomeye.
 
 **Abaganwa** — abakomoka mu muryango w'abami — baronse uruhara runini mu butegetsi.
 
@@ -60,23 +58,19 @@ Ubwami rero, uko busobanurwa n'imigenzo, ntibwari ubutegetsi bw'intambara gusa. 
 
 ---
 
-Hari n'ibibanza bifatwa nk'ubuhamya bw'ahantu Ntare Rushatsi yagiyemwo.
+Hari n'ibibanza bifatwa nk'icemeza ko Ntare Rushatsi yabayeho.
 
 **Gashinyira i Matana** ivugwa nk'aho yavukiye. Inyandiko za leta zivuga ko ahantu hafitaniye isano n'inka z'ubwami na Karyenda. Ariko hari n'abavuze ko ico kibanza kitari kibungabunzwe ku rugero rwari rukwiye, naho gifise agaciro gakomeye k'amateka.
 
-Kandi hari **amaziko y'abami yo i Nkiko-Mugamba**, aho abami bane ba mbere — Ntare Rushatsi, Mwezi, Mutaga na Mwambutsa — bafatwa nk'abashyinguwe, i **Budandari**, mu karere ka Kabarore.
+Kandi hari **amaziko y'abami yo i Nkiko-Mugamba**, aho abami bane ba mbere — Ntare Rushatsi, Mwezi, Mutaga na Mwambutsa — bafatwa nk'aho bahambwe, i **Budandari**, mu karere ka Kabarore.
 
-[FR-CITATION] 🟡 Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashyinze abami bane ba kera."
-
-Ariko turakwiye kuvuga "imva ifatwa nk'iya Ntare Rushatsi", aho kuvuga "ubushakashatsi bw'ivyacukuwe bwemeje ko ari imva yiwe" — kuko ivyo bisaba ubushakashatsi bw'ubucukuzi bwihariye tutari dufise.
-
----
+[FR-CITATION] 🟡 Chrétien (1993) yagize ati: « le bois sacré de Budandari étant censé abriter quatre rois anciens » — arivyo bisobanura mu Kirundi ngo: "ishamba ryera rya Budandari rifatwa nk'aho ryashinze abami bane ba kera."
 
 Rero, uko dushize hamwe ivyo twize, dusanga hari **Ntare Rushatsi batatu**, bose bariho icarimwe muri iyi nkuru:
 
 Hari **Ntare Rushatsi w'imigenzo** — umwami wa mbere, uwashinze ingoma, umuhuza w'Uburundi, umushingantahe w'ubwami.
 
-Hari **Ntare Rushatsi w'amateka** — umuntu yabayeho koko, birashoboka cane, ariko igihe yabayemwo, inkomoko yiwe nyakuri, intambara yakoze, n'imbibe nyazo z'ubwami bwiwe ntibiramenyekana neza.
+Hari **Ntare Rushatsi w'amateka** — umuntu yabayeho koko, birashoboka cane, ariko igihe yabayemwo, inkomoko yiwe nyakuri, intambara yarwanye, n'imbibe nyazo z'ubwami bwiwe ntibiramenyekana neza.
 
 Kandi hari **Ntare Rushatsi w'imigani** — umwana ava i Buha, Cambarantama, umwungere, Kiranga, abapfumu, inzoka Inkoma, Karyenda, Umuganuro, imvura, uburumbuke, intambara n'abandi bami — inkuru dukwiye kubika, atari nk'ivyabaye, ahubwo nk'umugenzo w'Abarundi usobanura uko basobanura inkomoko y'ubwami.
 

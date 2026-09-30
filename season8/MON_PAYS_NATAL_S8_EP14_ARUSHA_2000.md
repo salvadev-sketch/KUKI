@@ -6,6 +6,14 @@ Abaserukira imigambwe mikuru y'Abahutu (G-7) n'Abatutsi (G-10), hamwe na gouvern
 
 ---
 
+**[CITATION — 🟢]**
+
+Congressional Research Service (RS20910) yemeza itariki nyayo (28 Myandagaro 2000) amasezerano yasinywe, hamwe n'uko FDD na FNL bitasinye icaro cose.
+
+---
+
+---
+
 Amasezerano yarimwo ivyerekeye: gusangira ubutegetsi, ivugururwa ry'igisirikare, ubutungane, inzego za Leta, amatora, n'ukugarukana amahoro.
 
 ---

@@ -6,7 +6,7 @@ Ikibazo cari: **ninde azoyobora igice ca mbere?**
 
 ---
 
-Ku wa 10 Mukakaro 2001, Nelson Mandela — uwari amaze kuba umuhuza w'ibiganiro inyuma y'urupfu rwa Julius Nyerere — yashikirije umugambi:
+Ku wa 23 Mukakaro 2001, Nelson Mandela — uwari amaze kuba umuhuza w'ibiganiro inyuma y'urupfu rwa Julius Nyerere — yashikirije umugambi:
 
 **Pierre Buyoya** aba Perezida mu gice ca mbere.
 
@@ -45,5 +45,13 @@ Umunyamabanga Mukuru wa ONU yaramushimiye ku bwo kwubahiriza ivyo yari yiyemeje.
 ---
 
 Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka umunani inyuma y'uko yagarutse ku butegetsi biciye muri coup.
+
+---
+
+**[CITATION — 🟢/🟡]**
+
+International Crisis Group (raporo ebyiri zitandukanye), Wikipedia ("Burundian Civil War," "Domitien Ndayizeye," "Pierre Buyoya"), na Refworld/CPJ byemeza: itariki Mandela yatanze umugambi (23 Mukakaro 2001 — igikosowe hano, cari 10 mbere), intango y'inzibacyuho (1 Munyonyo 2001), n'itariki Ndayizeye yararahiye (30 Ndamukiza 2003).
+
+---
 
 **MON PAYS NATAL — SEASON 8 — EP16 — INYUMA Y'UBUTEGETSI**, ni ho tuzoraba ico akoze inyuma y'aho.

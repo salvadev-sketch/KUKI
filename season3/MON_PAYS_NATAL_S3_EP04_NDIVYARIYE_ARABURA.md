@@ -36,7 +36,7 @@ Abana biwe n'abamukomotseko ntibibagiye ko se yari amaze gutakaza ubushobozi.
 
 Umuhinga Jean-Pierre Chrétien avuga ko ubugarariji bw'abahungu ba Ndivyariye bwamaze **hafi imyaka mirongo itandatu** — kuva hafi 1870 gushika mu myaka ya 1930.
 
-[FR-CITATION] 🟢 Chrétien (1993) yagize ati: « l'enclos de Kamaramagambo devint un véritable sanctuaire... vénéré par les grands chefs Batare du nord-est » — arivyo bisobanura mu Kirundi ngo: "ikigabiro ca Kamaramagambo caje kuba ahera cane... aharamywa n'abatware bakuru b'Ababare bo mu buseruko bw'amajyaruguru." 🔴 *(Imyaka nyakuri "1870-1930" ntiraboneka mu gice c'igitabu dufise — igomba kwongera kwemezwa.)*
+[FR-CITATION] 🟢 Chrétien (1993) yagize ati: « un véritable sanctuaire... vénéré par les grands chefs Batare » — arivyo bisobanura mu Kirundi ngo: "ahera cane... aharamywa n'abatware bakuru b'Ababare," ku bijanye n'ikigabiro ca Kamaramagambo. 🔴 *(Imyaka nyakuri "1870-1930" ntiraboneka mu gice c'igitabu dufise — igomba kwongera kwemezwa.)*
 
 Ni ukuvuga ko ikibazo kitari ic'umwami umwe n'umurezi wiwe.
 
