@@ -14,11 +14,15 @@ Ku wa **30 Ntwarante 1972**, Ntare V yaragarutse mu Burundi, ava muri Uganda.
 
 Amasoko atandukanya ku buryo nyabwo bw'uko yagarutse: hari avuga ko yagaruwe ku nguvu, andi avuga ko yemeye kugaruka kubera bwa bwishingizi bwa Micombero.
 
+[FR-CITATION] 🟢 IWACU na burundi-forum.org (bisubiramwo raporo za CVR) bavuga ko ku wa 30 Ntwarante 1972, Ntare V yaramanuwe ku nguvu, ajanwa i Bujumbura mu ndege ntoya ya hélicoptère ya police y'Uganda, ivuye ku kirimba ca Nakasero. Wikipedia ("Ntare V of Burundi") ivuga ko Idi Amin yavuze ko yaronse icizigiro cinditse kuva kuri Micombero.
+
 ---
 
 Akimara gushika i Bujumbura, ntiyaremerewe kuguma mu bwisanzure nk'umwenegihugu asanzwe.
 
-Yaciye ajanwa i **Gitega**, ashirwa mu nzu igenzurwa — mu nyubakwa yahoze ari ikirimba c'umwami.
+Yaciye ajanwa i **Gitega**, ashirwa mu nzu igenzurwa — mu gikoni c'ikirimba yahoze aba se, Mwambutsa IV.
+
+[FR-CITATION] 🟢 CVR ("la CVR retrace le parcours de l'ancien Mwami Ntare V") na burundi-forum.org bemeza ko yajanywe i Gitega ku ndege, agenzurwa na Commandant Joseph Rwuri, ashirwa mu gikoni c'ikirimba ca se ho ari mu nzu igenzurwa.
 
 ---
 

@@ -22,6 +22,8 @@ Abantu bamwe bo mu nzego zo hejuru, harimwo abahoze ari abategetsi n'abasirikare
 
 Ku wa 14 Nzero 1972, tribunal militaire yaraciriye urwo gupfa abasirikare bane b'Abanyaruguru n'abasivile batanu, abandi barindwi baciriwe umunyororo w'ubuzima bwose.
 
+[FR-CITATION] 🟢 Wikipedia ("Ikiza") yemeza ko muri Mukakaro 1971, guverinoma yagirije Abanyaruguru benshi b'ingenzi umugambi wo gusubiza Ntare ku ngoma, kandi ko ku wa 14 Nzero 1972, tribunal militaire yaciriye icimba Abanyaruguru 9, abandi 7 baciriwe imyaka y'ubuzima bwose mu munyororo.
+
 ---
 
 Ku wa 4 Ruhuhuma 1972, Micombero yaragiriye imbabazi abantu icenda muri bo, harimwo abaminisitiri babiri bahoze mu migenderanire n'amahanga.

@@ -24,11 +24,15 @@ Ni bande bari inyuma y'ubwigomeke?
 
 Amazina akunze kuvugwa: Célius Mpasha, Albert Butoyi, Daniel Ndaburiye, Ezechias Biyorero (azwi kandi nka Yussuf Ibrahim). Abenshi muri abo bari baragiye kuba muri Tanzania kuva mu 1969.
 
+[FR-CITATION] 🟢 Sciences Po Mass Violence and Resistance Research Network ("The Burundi Killings of 1972") itanga ayo mazina yompi nk'abasanzwe bavugwa nk'abategura, ivuga ko bari abanyeshuri ba kera ba Kaminuza ya Bujumbura bazwi ku vyiyumviro vyabo bikaze, bose babaga muri Tanzania kuva 1969. 🟢 Itariki (29 Ndamukiza 1972) yemejwe n'amasoko menshi (Wikipedia "Ikiza", "Martyazo", "1972 in Burundi"; EBSCO; Tufts University).
+
 Ariko amakuru yizewe ku bateguye ubwo bwigomeke ni make. Ntitwoshobora kuvuga ko uruhara rwa buri wese rwamaze kwemezwa ata mpaka.
 
 ---
 
-Mu ntango za Rusama 1972, abigometse barigeze gutangaza ico bita **"Martyazo Republic,"** i Vyanda.
+Ku wa **1 Rusama 1972**, abigometse baratangaje ico bita **"Republic of Martyazo,"** i Vyanda, mu ntara ya Makamba.
+
+[FR-CITATION] 🟢 Wikipedia ("Martyazo", ikurikiza Scott 2019, Lemarchand 2009, Chrétien & Dupaquier 2007) yemeza itariki (1 Rusama) n'ikibanza (Vyanda). Ingabo za Leta zagaruye Rumonge ku wa 1 Rusama, Nyanza-Lac ku wa 2, kandi ku wa 10 Rusama ubutegetsi bwatangaje ko bwongeye kugenzura agace kose ko mu bumanuko.
 
 Ariko iyo ntwaro ntiyamaze igihe kirekire. Ingabo za Leta zaratanguye ibikorwa vyo gusubiza inyuma abigometse, kandi mu minsi mikeyi ubwigomeke bwo mu bumanuko bwaratsinzwe.
 

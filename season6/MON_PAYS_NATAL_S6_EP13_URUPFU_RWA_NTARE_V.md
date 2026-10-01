@@ -32,6 +32,8 @@ Umurambo wiwe washizwe mu ngobyi, hanyuma ubikwa mu bubiko bw'ibirwanisho bw'ika
 
 Mu 2023, Agence Burundaise de Presse yatangaje ko imva rusangi bavuga ko umurambo wa Ntare V wajemwo itari bwamenyekane.
 
+[FR-CITATION] 🟢 ABP ("La fosse commune où on a jeté le corps de Ntare V n'est pas encore trouvée") ivuga ko abamenyeshamigenzo bamwe bavuze ko umurambo wajanywe mu mva rusangi iri i Tankoma, hafi ya Kaminuza Polytechnique ya Gitega, hamwe n'abandi bantu 6. IWACU ivuga ko CVR yacukuye imva 8 zitandukanye idasanga.
+
 **Aho yahambwe: ntiharamenyekana neza.**
 
 ---
