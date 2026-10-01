@@ -53,3 +53,13 @@ Umuryango umwe, Baranyanka, wari rero ufise abagabo bakomeye ku ruhande rumwe rw
 Kandi mu myaka izokurikira, izo nzira zombi — iya Rwagasore n'iya Baranyanka — zizohura, mu buryo bubi cane.
 
 **MON PAYS NATAL — SEASON 5 — EP07 — 1960: URUGAMBA N'IFUNGWA I BURURI**, ni ho tuzobandanya.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia (inyandiko zihariye: "Jean-Baptiste Ntidendereza," "Joseph Biroli," "Pierre Baranyanka," "Christian Democratic Party (Burundi)," ishingiye kuri Weinstein 1976 na Lemarchand 1970) byemeza amatariki yose y'ivuko (31 Rusama 1926; 28 Rusama 1929) na PDC (5 Ruhuhuma 1960).
+
+*Umuce w'ingenzi ku bizoza: Wikipedia ivuga ko ubutegetsi bw'Ababiligi (cane cane "Assistant Resident Pierre DeFay") bwatanze imfashanyo z'amafaranga kuri Ntidendereza na PDC, kandi ko urwicwa rwa Rwagasore "was organised by Biroli and Ntitendereza with the encouragement of some Belgian officials." Iyi ngingo ikomeye ikwiye kugaragara muri episode ijanye n'urwicwa ubwarwo.*
+
+---

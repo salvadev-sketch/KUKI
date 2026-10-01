@@ -21,3 +21,11 @@ Ni ukuvuga: hagati ya 1958 na 1960, UPRONA yakoze mu buryo butagira uburenganzir
 Ico gihe, hari n'undi mugambwe ugenda ushirwaho, kuva mu muryango utandukanye — umuryango w'abatware bakomeye, batavuga rumwe na Rwagasore.
 
 **MON PAYS NATAL — SEASON 5 — EP06 — UMURYANGO WA BARANYANKA NA PDC**, ni ho tuzowumenya.
+
+---
+
+**[CITATION — 🟢]**
+
+Christine Deslaurier (Cairn.info), Ludo De Witte (2021), na Jean-Paul Harroy (guverineri w'igihe) bemeza ko inama za mbere za UPRONA zabaye muri Nyakanga/Nzeri 1958, ariko itariki yo kwemerwa ku mugaragaro (agrément officiel) ari 7 Nzero 1960 — bihuye 100% n'ivyari vyaravuzwe kuri EP11 ya Season 4.
+
+---

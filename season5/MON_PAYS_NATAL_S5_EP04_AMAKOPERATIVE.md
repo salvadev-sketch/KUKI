@@ -20,7 +20,7 @@ Mu **1958**, Rwagasore ubwiwe yaranditse ko CCB yari imaze gushikira **abadandaz
 
 Ntiyari iyo kugurisha gusa: yashaka kudandaza ikawa, itabi, ubunyobwa, ricin, amavuta y'ibigazi, ku masoko yo mu gihugu no hanze.
 
-Yarandikye ati: **"En résumé, elle est une force économique future, c'est pourquoi d'ailleurs on la combat sérieusement."**
+Yarandikye ko ari **"une force économique future"** — ni co gituma, nk'uko yabyanditse, "on la combat sérieusement."
 
 [FR-CITATION] 🟢 Wikipedia ("Louis Rwagasore," ikurikiza Lemarchand 1970:331) yemeza ko muri Ruheshi (Juin) 1957, Rwagasore yashinze amakoperative kugira afashe mu bukungu Abarundi, akubaka urufatiro rw'ubushobozi bwiwe bwa politike.
 
@@ -35,5 +35,15 @@ Ariko ubutegetsi bw'Ababiligi ntibwabuze kubibona.
 Mu 1958, bwatanguye kugenzura amakoperative — ubwabona ko ari **"machines de guerre"** zirwanya ubutegetsi bw'abakoloni.
 
 Ubutunzi, kuri Rwagasore, ntibwari bwigenga ku vya politike.
+
+---
+
+**[CITATION — 🟢/🟡]**
+
+Wikipedia ("Louis Rwagasore"), Christine Deslaurier (biciye kuri Cairn.info), na Yaga-Burundi bemeza: Rwagasore yinjiye mu murimo w'abakoloni muri Mata/Ndamukiza 1957, CCB yiyandikishije ku mugaragaro muri Kamena/Ruheshi 1957 (isoko rimwe ritanga italiki nyayo, 19 Kamena), na Paul Mirerekano nk'umufatanije mukuru. CCRU (yiswe na ryo CCC-RU) yari yamaze kuboneka kuva 1955, Rwagasore ayirongoye inyuma.
+
+Sinabashije kuronka isoko ryigenga ku gitigiri "abadandaza 1.050" — gikeneye gucungurwa.
+
+---
 
 **MON PAYS NATAL — SEASON 5 — EP05 — UPRONA IRASHINGWA**, ni ho tuzoraba ico gitekerezo kiba umugambwe.
