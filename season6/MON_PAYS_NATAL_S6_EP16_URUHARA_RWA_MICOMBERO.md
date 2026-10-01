@@ -18,6 +18,8 @@ Mu gihe ubwicanyi bwariko buraba, hari abantu bo hanze babibona bakabimenyesha a
 
 Umudiplomate w'Amerika i Bujumbura, Michael Hoyt, mu butumwa bwo ku wa 26 Rusama 1972, yaranditse ati: **"No respite, no letup. What apparently is genocide continues."**
 
+[FR-CITATION] 🟢 Iri jambo riboneka mu bushakashatsi bubiri bwigenga: Sciences Po Mass Violence Research Network ("The Burundi Killings of 1972") na Cahiers d'études africaines (2002, bisubiramwo amabaruwa ya ambassade y'Amerika, Lemarchand papers, Kaminuza ya Florida). Hoyt yari Chargé d'affaires, aje gusimbura Thomas Melady muri Mukakaro 1972.
+
 Ku wa 21 Mukakaro, raporo yavuze ko hafi y'ikibuga c'indege ca Bujumbura hari ibinogo bishasha birimwo imivyimba y'Abahutu.
 
 Abamisiyonari na bo baratangaje ibintu bisa: abantu bafatwa ku bwinshi, bamwe bahambwa bakiri bazima.

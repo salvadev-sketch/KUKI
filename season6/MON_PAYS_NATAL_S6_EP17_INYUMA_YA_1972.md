@@ -8,6 +8,8 @@ Ariko Micombero yagumye ku butegetsi, imyaka ine izokurikira.
 
 Mu **1974**, hashizweho Itegeko Nshinga rishasha, rigashiraho **UPRONA nk'umugambwe umwe wemewe** mu Burundi.
 
+[FR-CITATION] 🟢 Wikipedia ("Michel Micombero") yemeza ko Itegeko Nshinga rya 1974 ryashizeho UPRONA nk'umugambwe umwe wemewe, kandi ko ari iryo tegeko EP18 ivuga ko Bagaza yavuze ko ryarenzwe.
+
 Ubutegetsi bwose — bwa Leta, bw'umugambwe, n'ubwa gisirikare — bwaragiye burushiriza kwegerana mu maboko ya Micombero.
 
 ---

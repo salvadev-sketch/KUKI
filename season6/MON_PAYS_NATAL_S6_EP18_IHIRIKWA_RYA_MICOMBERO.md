@@ -24,7 +24,9 @@ Ku wa **1 Munyonyo 1976**, igisirikare carafashe ibibanza by'ingenzi vy'i Bujumb
 
 **Nta ntambara ndende, nta maraso menshi.**
 
-Micombero yarakuwe ku butegetsi.
+Micombero yarakuwe ku butegetsi — ico gihe yari ari mu nama ya Franco-African Summit.
+
+[FR-CITATION] 🟢 Wikipedia ("1976 Burundian coup d'état," ikurikiza New York Times obituary 1983) yemeza itariki (1 Munyonyo 1976), imiterere y'amahoro, n'uko Micombero yari ari mu nama ya Franco-African Summit igihe coup yabaga.
 
 ---
 

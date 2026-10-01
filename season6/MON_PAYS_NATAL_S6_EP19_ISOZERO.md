@@ -4,7 +4,9 @@ Inyuma yo gukurwa ku butegetsi, Micombero ntiyishwe.
 
 Yaragiye mu buhungiro, muri **Somaliya**.
 
-Ni ho yamaze imyaka yiwe ya nyuma, gushika apfuye mu **1983**.
+Ni ho yamaze imyaka yiwe ya nyuma, gushika apfuye ku wa 16 Mukakaro 1983, afise imyaka 42, azize indwara y'umutima.
+
+[FR-CITATION] 🟢 Wikipedia ("Michel Micombero," "1976 Burundian coup d'état") na FindAGrave bemeza itariki y'ivuka (26 Myandagaro 1940), iy'urupfu (16 Mukakaro 1983, i Mogadishu), n'ikibanza c'ubuhungiro (Somaliya, munsi y'ubutegetsi bwa Siad Barre). New York Times yatangaje urupfu rwiwe ku wa 18 Mukakaro 1983.
 
 ---
 
