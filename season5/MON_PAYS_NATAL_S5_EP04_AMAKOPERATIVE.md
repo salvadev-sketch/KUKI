@@ -22,6 +22,8 @@ Ntiyari iyo kugurisha gusa: yashaka kudandaza ikawa, itabi, ubunyobwa, ricin, am
 
 Yarandikye ati: **"En résumé, elle est une force économique future, c'est pourquoi d'ailleurs on la combat sérieusement."**
 
+[FR-CITATION] 🟢 Wikipedia ("Louis Rwagasore," ikurikiza Lemarchand 1970:331) yemeza ko muri Ruheshi (Juin) 1957, Rwagasore yashinze amakoperative kugira afashe mu bukungu Abarundi, akubaka urufatiro rw'ubushobozi bwiwe bwa politike.
+
 ---
 
 Muri iyo mice, hari umuntu yaje kumufasha: **Paul Mirerekano**, umudandaji w'imboga, uwafashije gutunganya imyiyerekano ya mbere y'ivyokwiza ico gitekerezo.

@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 5 — EP05 — UPRONA IRASHINGWA
 
-Mu **Nyakanga 1958**, Rwagasore yashinze umugambwe wa politike.
+Mu **1958**, Rwagasore yashinze umugambwe wa politike.
 
 **UPRONA — Union pour le Progrès National.**
 
@@ -9,6 +9,8 @@ Mu **Nyakanga 1958**, Rwagasore yashinze umugambwe wa politike.
 Ariko ntitwovuga ngo yabaye umwe wenyene wabishinze — yari kumwe n'abandi bantu, batanguye ico gitekerezo hamwe.
 
 Kandi UPRONA ntiyahise yemerwa ku mugaragaro: ubutegetsi bw'Ababiligi ntibwayemeye kugeza ku wa **7 Nzero 1960**.
+
+[FR-CITATION] 🟡 Amasoko atandukanya cane ku tariki UPRONA yashingwa: IWACU ivuga Nzero (Septembre) 1958; Ludo De Witte avuga Nzero-Mukakaro (Sept-Oct) 1958; Guverineri Harroy avuga impera za 1959; Eggers (2006) avuga gusa 1958 muri rusangi. Itariki ya 7 Nzero (Janvier) 1960 y'uguhabwa uburenganzira bw'umugambwe wemewe na Leta ni yo yonyene ihuriweko n'amasoko yose. Twahinduye "Nyakanga 1958" kuko nta soko ryaryemeza.
 
 ---
 

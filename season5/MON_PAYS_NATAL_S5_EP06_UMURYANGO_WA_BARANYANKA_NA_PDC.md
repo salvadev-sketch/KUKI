@@ -14,6 +14,8 @@ Yari afise abahungu babiri bazoza kugira uruhara rukomeye muri iyi nkuru:
 
 **Joseph Biroli**, yavutse ku wa 28 Rusama 1929.
 
+[FR-CITATION] 🟢 Wikipedia ("Joseph Biroli," "Jean-Baptiste Ntidendereza") yemeza itariki y'amavuko ya Biroli (28 Rusama 1929) n'uko ari umuvukanyi wa Ntidendereza na Charles Baranyanka (uyu wa nyuma yinjiye muri UPRONA, aba diplomate).
+
 ---
 
 Bombi bari abanyeshure b'urugero rudasanzwe.
@@ -25,6 +27,8 @@ Biroli we yize i Astrida, hanyuma Anvers, Louvain, Oxford, na Harvard — bamwe 
 ---
 
 Ku wa **5 Ruhuhuma 1960**, Ntidendereza yafashije gushinga **Parti Démocratique Chrétien — PDC.**
+
+[FR-CITATION] 🟢 Wikipedia ("Jean-Baptiste Ntidendereza," "Christian Democratic Party (Burundi)") yemeza itariki (5 Ruhuhuma 1960) n'uko Ntidendereza na Biroli ari bo bashinze PDC, bimaze kuva muri UPRONA.
 
 Biroli, umuvukanyi wiwe, aba umwe mu bayobozi bakuru ba PDC — hanyuma **Président** wawo.
 
