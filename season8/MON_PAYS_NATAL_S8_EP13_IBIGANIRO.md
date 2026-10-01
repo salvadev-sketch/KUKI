@@ -2,7 +2,7 @@
 
 Mu 1996–97, habayeho kugerageza ibiganiro hagati ya gouvernement n'imirwi yitwaje ibirwanisho, harimwo CNDD.
 
-Ariko ibiganiro vya mbere ntivyagenze neza — mu Myandagaro 1997, régime ya Buyoya yasubiye inyuma ku biganiro vyari bitegekanijwe i Arusha.
+Ariko ibiganiro vya mbere ntivyagenze neza — mu Myandagaro 1997, ubutegetsi bwa Buyoya bwasubiye inyuma ku biganiro vyari bitegekanijwe i Arusha.
 
 ---
 
@@ -18,7 +18,7 @@ Iyi ni intambwe ikomeye cane: umugambwe wari waratsinze amatora yo mu 1993 ubu w
 
 ---
 
-Mu **Kamena (Juin) 1998**, ibiganiro vy'amahoro vya Burundi vyatanguriye i **Arusha, Tanzaniya**.
+Mu **Ruheshi 1998**, ibiganiro vy'amahoro vya Burundi vyatanguriye i **Arusha, Tanzaniya**.
 
 Umuhuza mukuru yari **Julius Nyerere**, uwahoze ari Perezida wa Tanzaniya.
 

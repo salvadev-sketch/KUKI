@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 8 — EP11 — COUP YA 1996 — BUYOYA ASUBIRA KU BUTEGETSI
+# MON PAYS NATAL — SEASON 8 — EP11 — GUTEMBAGAZA UBUTEGETSI (COUP D'ÉTAT) YA 1996 — BUYOYA ASUBIRA KU BUTEGETSI
 
 Muri Mukakaro 1996, igihugu cari kiri mu bihe bikomeye cane.
 
@@ -16,21 +16,21 @@ Ku wa **25 Mukakaro 1996**, igisirikare carafashe ubutegetsi.
 
 **Pierre Buyoya** yashizwe imbere nk'umukuru w'igihugu w'inzibacyuho.
 
-Coup yabaye ata maraso menshi.
+Igikorwa cabaye ata maraso menshi.
 
 ---
 
-Abategetsi bashigikiye coup bavuze ko igihugu cari kigeze aho inzego za Leta zitagishoboye gukora neza, umutekano wabuze, kandi Ntibantunganya atagishoboye kuyobora. Ariko izo ni nsiguro zatanzwe n'abakoze coup, si yo nsiguro yonyene abahinga bemera.
+Abategetsi bashigikiye ico gikorwa bavuze ko igihugu cari kigeze aho inzego za Leta zitagishoboye gukora neza, umutekano wabuze, kandi Ntibantunganya atagishoboye kuyobora. Ariko izo ni nsiguro zatanzwe n'abakoze ico gikorwa, si yo nsiguro yonyene abahinga bemera.
 
 ---
 
 Amaze gusubira ku butegetsi, Buyoya yatangaje ko Constitution yahagaritswe, Assemblée Nationale yasambuwe, imigambwe ya politike yahagaritswe.
 
-**Buyoya wa 1996 ntiyagarutse ku butegetsi biciye mu matora — yagarutse biciye muri coup militaire.**
+**Buyoya wa 1996 ntiyagarutse ku butegetsi biciye mu matora — yagarutse biciye ku gikorwa ca gisirikare co gutembagaza ubutegetsi.**
 
 ---
 
-Coup ntiyakiriwe kimwe n'abantu bose. Ku rwego mpuzamakungu, yaramaganwe — Perezida Bill Clinton, Umunyamabanga mukuru wa ONU Boutros Boutros-Ghali, n'umukuru wa OUA barayamaganye.
+Ico gikorwa nticakiriwe kimwe n'abantu bose. Ku rwego mpuzamakungu, yaramaganwe — Perezida Bill Clinton, Umunyamabanga mukuru wa ONU Boutros Boutros-Ghali, n'umukuru wa OUA barayamaganye.
 
 ---
 

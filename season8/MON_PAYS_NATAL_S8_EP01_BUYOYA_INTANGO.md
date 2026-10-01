@@ -46,4 +46,4 @@ Wikipedia ("Pierre Buyoya"), *Dictionary of African Biography* (Akyeampong & Gat
 
 ---
 
-**MON PAYS NATAL — SEASON 8 — EP02 — COUP YA 3 NYAKANGA 1987**, ni ho tuzoraba icamugejeje ku ntebe y'ubutegetsi.
+**MON PAYS NATAL — SEASON 8 — EP02 — GUTEMBAGAZA UBUTEGETSI (COUP D'ÉTAT) YA 3 NYAKANGA 1987**, ni ho tuzoraba icamugejeje ku ntebe y'ubutegetsi.

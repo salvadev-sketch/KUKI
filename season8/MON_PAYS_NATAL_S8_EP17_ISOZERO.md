@@ -38,7 +38,7 @@ African Union (Communiqué ya Moussa Faki Mahamat, 18 Kigarama 2020), Rappler, n
 
 None se, twomufata dute mu mateka?
 
-Buyoya yafashe ubutegetsi kabiri biciye muri coup — 1987 ahirika Bagaza, 1996 ahirika Ntibantunganya. Amateka yiwe afatanye cane n'uruhara rw'igisirikare muri politike y'Uburundi.
+Buyoya yafashe ubutegetsi kabiri biciye ku bikorwa vyo gutembagaza ubutegetsi — 1987 ahirika Bagaza, 1996 ahirika Ntibantunganya. Amateka yiwe afatanye cane n'uruhara rw'igisirikare muri politike y'Uburundi.
 
 Ariko kandi: mu 1993, yahaye ubutegetsi Ndadaye inyuma y'amatora. Kuva 2000 gushika 2003, yagize uruhara mu nzibacyuho ya Arusha, ahera aha ubutegetsi Ndayizeye. Kuva 2008 gushika 2020, yagize uruhara mu bikorwa vya AU vyo gushigikira amahoro muri Sudani, Tchad, Mali, na Sahel.
 

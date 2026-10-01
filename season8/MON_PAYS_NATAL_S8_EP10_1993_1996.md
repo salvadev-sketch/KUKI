@@ -8,13 +8,13 @@ Iyi nkuru y'ubwiwe — urupfu rwiwe, iperereza, n'abandi bategetsi barishwe (Pon
 
 Ku ruhande rwa Buyoya: ni ngombwa gushimikira ku kintu kimwe gikomeye.
 
-**Buyoya yari amaze kuva ku butegetsi ku wa 10 Mukakaro 1993** — ni ukuvuga imisi mike inyuma y'itorwa rya Ndadaye. Igihe coup yabaye, Buyoya ntiyari Perezida.
+**Buyoya yari amaze kuva ku butegetsi ku wa 10 Mukakaro 1993** — ni ukuvuga imisi mike inyuma y'itorwa rya Ndadaye. Igihe ico gikorwa cabaye, Buyoya ntiyari Perezida.
 
 ---
 
 Hari abamwagiriza kuba yari afise ubumenyi canke uruhara mu mugambi wo guhirika Ndadaye — kubera ko yari uwahoze ari Perezida, umusirikare mukuru, kandi afise ijambo mu basirikare n'Abatutsi bamwe.
 
-Ariko **nta gihamya ikomeye dufise yo kuvuga ko Buyoya ari we yategetse urupfu rwa Ndadaye canke ko ari we yari inyuma y'iyo coup.**
+Ariko **nta gihamya ikomeye dufise yo kuvuga ko Buyoya ari we yategetse urupfu rwa Ndadaye canke ko ari we yari inyuma y'ico gikorwa.**
 
 ---
 
@@ -40,4 +40,4 @@ Wikipedia ("Timeline of Burundian history," "Cyprien Ntaryamira," "1994 in Burun
 
 ---
 
-**MON PAYS NATAL — SEASON 8 — EP11 — COUP YA 1996 — BUYOYA ASUBIRA KU BUTEGETSI**, ni ho tuzobibona.
+**MON PAYS NATAL — SEASON 8 — EP11 — GUTEMBAGAZA UBUTEGETSI (COUP D'ÉTAT) YA 1996 — BUYOYA ASUBIRA KU BUTEGETSI**, ni ho tuzobibona.

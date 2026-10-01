@@ -22,7 +22,7 @@ Ntitwovuga ko imigambwe yose yari ishingiye ku bwoko gusa. Politike y'ico gihe y
 
 ---
 
-Ikintu gikomeye cane: régime ya Buyoya yemeye gutegura amatora y'amashirahamwe menshi ya politike — ibintu bishasha cane, kuko kuva mu 1966 igihugu cari kimaze igihe kinini munsi y'ubutegetsi bw'igisirikare n'umugambwe umwe.
+Ikintu gikomeye cane: ubutegetsi bwa Buyoya bwemeye gutegura amatora y'amashirahamwe menshi ya politike — ibintu bishasha cane, kuko kuva mu 1966 igihugu cari kimaze igihe kinini munsi y'ubutegetsi bw'igisirikare n'umugambwe umwe.
 
 ---
 

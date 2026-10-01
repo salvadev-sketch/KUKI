@@ -2,13 +2,13 @@
 
 Buyoya yatanguye ingoma yiwe avuga ku vugururwa.
 
-Ariko imyaka itarenga imwe inyuma ya coup, igihugu carongeye kubona ikintu kibi kurusha ibindi vyose Uburundi bwari bwaramaze kubona kuva 1972.
+Ariko imyaka itarenga imwe inyuma y'ico gikorwa, igihugu carongeye kubona ikintu kibi kurusha ibindi vyose Uburundi bwari bwaramaze kubona kuva 1972.
 
 ---
 
-Régime nshasha yari ifise intumbero yo kwerekana itandukaniro n'iy'imbere: gukingura ibibanza vy'amasengesho, gusubiza ubuyobozi bw'abasivile, kurekura bamwe mu banyororo.
+Ubutegetsi bushasha bwari bufise intumbero yo kwerekana itandukaniro n'iy'imbere: gukingura ibibanza vy'amasengesho, gusubiza ubuyobozi bw'abasivile, kurekura bamwe mu banyororo.
 
-Ariko munsi y'ico gikorwa co hejuru, ibibazo vy'imbere mu gihugu — cane cane amakimbirane hagati y'Abahutu n'Abatutsi, hamwe n'ingaruka za 1972 zitigeze zikemuka — vyaguma vyihishe.
+Ariko munsi y'ico gikorwa co hejuru, ibibazo vy'imbere mu gihugu — cane cane amatati hagati y'Abahutu n'Abatutsi, hamwe n'ingaruka za 1972 zitigeze zikemuka — vyaguma vyihishe.
 
 ---
 

@@ -18,7 +18,7 @@ Inyuma y'amezi 18, Ndayizeye akamusubirira.
 
 Ku wa **1 Munyonyo 2001**, inzibacyuho yaratanguye ku mugaragaro.
 
-Iki cari ikintu kidasanzwe: Buyoya yari yarafashe ubutegetsi mu 1996 biciye muri coup — ariko ubu yari asubiye kuba Perezida mu rwego rw'inzibacyuho rwumvikanyweko muri Arusha, atari mu buryo bw'igitugu.
+Iki cari ikintu kidasanzwe: Buyoya yari yarafashe ubutegetsi mu 1996 biciye ku gikorwa co gutembagaza ubutegetsi — ariko ubu yari asubiye kuba Perezida mu rwego rw'inzibacyuho rwumvikanyweko muri Arusha, atari mu buryo bw'igitugu.
 
 ---
 
@@ -44,7 +44,7 @@ Umunyamabanga Mukuru wa ONU yaramushimiye ku bwo kwubahiriza ivyo yari yiyemeje.
 
 ---
 
-Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka umunani inyuma y'uko yagarutse ku butegetsi biciye muri coup.
+Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka umunani inyuma y'uko yagarutse ku butegetsi biciye ku gikorwa co gutembagaza ubutegetsi.
 
 ---
 

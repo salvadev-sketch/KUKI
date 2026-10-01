@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 8 — EP09 — AMATORA YA 1993 — BUYOYA YEMERA GUTSINDWA
 
-Ku wa **1 Ruheshi (Juin) 1993**, habaye amatora ya mbere y'umukuru w'igihugu ashingiye kuri multipartisme, kuva Uburundi bwaronka ubwigenge.
+Ku wa **1 Ruheshi 1993**, habaye amatora ya mbere y'umukuru w'igihugu ashingiye kuri multipartisme, kuva Uburundi bwaronka ubwigenge.
 
 ---
 
@@ -10,7 +10,7 @@ Buyoya, uwahoze aharanira ubutegetsi, ntiyarongeye kwitoza nka candidat.
 
 ---
 
-Iki ni ikintu gihambaye cane mu mateka yiwe: umusirikare yafashe ubutegetsi biciye muri coup, mu 1987, ni we yaje gutanga ubutegetsi ku wari amaze gutsinda amatora menshi, mu 1993.
+Iki ni ikintu gihambaye cane mu mateka yiwe: umusirikare yafashe ubutegetsi biciye ku gikorwa co gutembagaza ubutegetsi, mu 1987, ni we yaje gutanga ubutegetsi ku wari amaze gutsinda amatora menshi, mu 1993.
 
 Inyuma y'amatora, Buyoya yarakiriye ivyavuye muri yo.
 

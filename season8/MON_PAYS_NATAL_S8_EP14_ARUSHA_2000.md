@@ -28,7 +28,7 @@ Ntituvuge ngo "Arusha yarangije intambara mu 2000." Tuvuge: **Arusha yashizeho u
 
 Sanctions zari zaratanguye koroherezwa kuva mu 1997–99, kubera izo mpinduka za politike.
 
-Régime ya kabiri ya Buyoya, yari yaratanguye nka régime ya gisirikare yamaganwe n'akarere, yari yaragiye buhorobuhoro mu biganiro vya politike.
+Ubutegetsi bwa kabiri bwa Buyoya, bwari bwaratanguye nk'ubutegetsi bwa gisirikare bwamaganwe n'akarere, yari yaragiye buhorobuhoro mu biganiro vya politike.
 
 ---
 
