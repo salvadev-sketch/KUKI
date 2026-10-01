@@ -20,7 +20,9 @@ Mu **1958**, yagiye mu Bubiligi gukomeza amashure y'ubupatiri na tewolojiya — 
 
 Mu **1962**, yasubiye mu Burundi, Uburundi bumaze kwikukira.
 
-Ku wa **8 Mukakaro 1963**, yaronse ubupatiri — afise imyaka hafi 28.
+Ku wa **8 Mukakaro 1963**, yaronse ubupatiri, mu archidiocèse ya Gitega — afise imyaka hafi 28.
+
+[FR-CITATION] 🟢 Musabyimana.net, Dictionary of African Christian Biography, na Wikipedia (Icitaliyano) bose bemeza itariki y'amavuko (8 Kigarama 1934, i Kibumbu, komine Kayokwe, intara ya Mwaro) n'iy'ubupatiri (8 Mukakaro 1963, archidiocèse ya Gitega).
 
 ---
 

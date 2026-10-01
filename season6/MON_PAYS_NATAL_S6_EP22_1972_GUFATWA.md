@@ -16,6 +16,8 @@ Ku wa **13 Rusama 1972**, Kayoya yarafashwe i Gitega.
 
 CVR (Commission Vérité et Réconciliation) ivuga ko, muri ico gihe, abasirikare, abategetsi bo mu ntara no mu makomine, hamwe n'urwaruka rwa JRR n'abandi, bakoreshwa mu gufata abantu — cane cane Abahutu benshi bari bafise amashure, bari mu nzego z'ubuyobozi, mu mashure, canke muri Kiliziya.
 
+[FR-CITATION] 🟢 Musabyimana.net na Dictionary of African Christian Biography bemeza itariki yo gufatwa (ijoro ryo ku wa 13 Rusama 1972, i Gitega) n'uko yafatanywe n'abandi basaserdoti n'abasivile bagera kuri 50.
+
 Ntitwovuga ko abo bose bagize uruhara mu gufata Kayoya ku giti ciwe, tutabifitiye ibimenyetso vyihariye.
 
 ---

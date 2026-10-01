@@ -6,6 +6,8 @@ Kayoya yasize inyuma ibitabu bibiri bikomeye.
 
 **"Entre deux mondes — Sur la route du développement"** — ivuga ku kibazo Kayoya yagumye yibaza: **umuntu w'Uburundi ashobora gute gutera imbere atatakaje ubuntu n'imico yiwe?**
 
+[FR-CITATION] 🟢 Musabyimana.net na Yaga-Burundi bemeza ko ibitabu vyompi vyasohowe na Presses Lavigerie (Bujumbura), bivanga récit, essai, na poésie, bishira imbere imico ya kijambere (ubuntu, ubuvyeyi, ubupfasoni). 🟡 Amasoko atandukanya gato ku myaka: amwe avuga Entre deux mondes 1970 na Sur les traces 1971; andi avuga 1970/1968.
+
 ---
 
 Ntiyabona iterambere nk'ugukwega imigenzo y'Uburaya gusa.

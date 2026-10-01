@@ -20,6 +20,8 @@ Ku wa **17 Rusama 1972**, Michel Kayoya yishwe — amaze imisi ine ari mw'iboher
 
 CVR na Archidiocèse de Bujumbura bombi bashigikira iyo tariki, naho amasoko amwe ya kera avuga 15 Rusama.
 
+[FR-CITATION] 🟡 Amasoko menshi y'inyuma (Wikipedia y'Icitaliyano, musabyimana.net, Soumbala.com) avuga ko yishwe ku wa 15 Rusama 1972. Iki gitandukaniro (15 canke 17) ntigishobotse gukemuka muri ubu bushakashatsi; tuvuga gusa ko aba ari mu minsi mike y'inyuma yo gufatwa (13 Rusama).
+
 ---
 
 Hari ubuhamya buvuga ko yaririmvye Magnificat mu masaha ya nyuma, akongera avuga amajambo y'ikigongwe ku bari bagiye kumwica. Hari n'ubuhamya buvuga ko abasirikare bamurashe bariko bararira.
