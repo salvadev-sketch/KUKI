@@ -30,6 +30,8 @@ Mirerekano yarasubijwe mw'ibohero.
 
 Ku wa **17 Mukakaro 1963**, arekuwe rwose — inyuma y'intervention ya **Mwambutsa IV Bangiricenge**.
 
+[FR-CITATION] 🟡 Wikipedia ("Claver Nuwinkware") ivuga ko "In late February 1963, Hutu political leader Paul Mirerekano was arrested, but Nuwinkware ordered him released on 1 March" — itariki y'ifatwa (hafi) ihuye n'iyo EP21 ivuga, ariko itariki yo kurekurwa (1 Ntwarante) itandukanye n'iyo EP21 ivuga (17 Mukakaro). Ntitwovuga rimwe muri izo nk'ukuri kwose.
+
 Umwami, naho atari umunywanyi wa Monrovia canke Casablanca, yagumye afise uruhara mu bibazo bikomeye vya politike y'igihugu.
 
 ---
