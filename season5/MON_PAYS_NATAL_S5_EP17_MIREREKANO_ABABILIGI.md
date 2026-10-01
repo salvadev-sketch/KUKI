@@ -18,7 +18,9 @@ Ubuhamya buvuga ko Mirerekano yamwegereye, amwereka ingorane z'abahinzi. Hari in
 
 ---
 
-Mu **1957–58**, Mirerekano yagize uruhara mu bikorwa vy'intango bya UPRONA, hamwe na Rwagasore, **Thaddée Siryuyumunsi**, **André Nugu**, na **Valentin Bankumuhari**. Hari amasoko avuga ku kintu bita **"Accord de Kavumu"** — ariko urutonde rw'ababigizemwo uruhara ntiwahurira ku isoko rimwe, ku buryo ntidushobora kwemeza uwari umukuru wa mbere wa UPRONA.
+Mu **1957–58**, Mirerekano yagize uruhara mu bikorwa vy'intango bya UPRONA, hamwe na Rwagasore, **Thaddée Siryuyumunsi**, **André Nugu**, na **Valentin Bankumuhari**.
+
+[FR-CITATION] 🟢 Wikipedia ("Paul Mirerekano," asubiramwo Weinstein 1976:188) ivuga ko Mirerekano "joined the latter's political party, the Union for National Progress (UPRONA) by late 1958" — arivyo bisobanura mu Kirundi ngo: "yinjiye muri UPRONA mu mpera z'1958." Hari amasoko avuga ku kintu bita **"Accord de Kavumu"** — ariko urutonde rw'ababigizemwo uruhara ntiwahurira ku isoko rimwe, ku buryo ntidushobora kwemeza uwari umukuru wa mbere wa UPRONA.
 
 ---
 
