@@ -27,3 +27,13 @@ Ariko ikibazo ntabwo cari kirangiye.
 Ku wa 30 Ruheshi 1962 — umusi umwe imbere y'uko Uburundi bwikukira — **Jean Kageorgis yarashwe i Usumbura.**
 
 **MON PAYS NATAL — SEASON 5 — EP13 — UBWIGENGE BURAZA — URUBANZA RURASUBIRWAMWO**, ni ho tuzoraba ivyahavuye.
+
+---
+
+**[CITATION — 🟢/🟡]**
+
+Guy Poppe (*L'assassinat de Rwagasore*, biciye kuri Iwacu-Burundi) yemeza itariki y'urubanza rwa mbere (2 Ndamukiza 1962) n'ibihano (urupfu kuri Kageorgis, Ntidendereza, Nahimana). Wikipedia na amasoko menshi bemeza itariki y'urupfu rwa Kageorgis (30 Ruheshi 1962, umusi umwe imbere y'ubwigenge).
+
+Ikibazo gito: Wikipedia ivuga ko "lower court" yaciye urubanza ku wa 27 Ugushyingo (birashoboka 1961) — itariki itandukanye n'iy'urukiko Guy Poppe avuga. Birashoboka ko ari inzego z'urukiko zitandukanye, ikwiye gucungurwa.
+
+---
