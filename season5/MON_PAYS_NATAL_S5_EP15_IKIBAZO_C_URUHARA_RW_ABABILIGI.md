@@ -10,6 +10,8 @@ Imyaka myinshi inyuma, hari inyandiko zaje kuboneka, zitumye abashakashatsi nka 
 
 Uyu mushakashatsi avuga ko hari raporo y'Umushikirizamanza wa Bruxelles itigeze isohorwa ku mugaragaro, kandi ko bamwe mu bakozi b'ubutegetsi b'Ababiligi bavuze ko **Roberto Régnier**, wari Resident w'Ababiligi, yari yavuze ko Rwagasore akwiye kwicwa.
 
+[FR-CITATION] 🟢 Wikipedia ("Roberto Régnier," asubiramwo Lemarchand 1996:55-56) ivuga ko Rwagasore, iminsi mike imbere y'urupfu rwiwe, yari yatanze ikirego ku bayobozi b'Ababiligi barindwi, harimwo Harroy na Régnier, kandi ko Kageorgis, imbere y'urupfu rwiwe, yashinje Régnier na Harroy mu magambo agira ati: "Ce crime fut perpétré par la tutelle, M. Harroy et M. Regnier."
+
 ---
 
 Ariko ibi ntibisobanura ko Ababiligi bose bategetse urupfu rwa Rwagasore.
