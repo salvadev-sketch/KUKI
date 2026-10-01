@@ -6,6 +6,8 @@ Mu ijoro ryo ku wa **18 Gitugutu 1965**, habaye igeragezwa ryo guhirika ubuteget
 
 Abagabye igitero barateye ku kirimba c'Umwami. Abari barinze Umwami barishwe, ariko Mwambutsa IV yaronse uburyo bwo guhunga. Ingabo ziyobowe na **Michel Micombero** — uwo twize muri Season 6 — zaje gushigikira ubutegetsi bw'Umwami.
 
+[FR-CITATION] 🟢 Wikipedia ("1965 Burundian coup attempt") ivuga ko "the coup failed due to the intervention of a contingent of troops led by Captain Michel Micombero" — arivyo bisobanura mu Kirundi ngo: "igerageza ryaratsinzwe kubera uruhara rw'ingabo ziyobowe na Capitaine Michel Micombero."
+
 ---
 
 Ubutegetsi bwaciye bwagiriza Mirerekano ko yari afise uruhara muri uwo mugambi.
@@ -21,6 +23,8 @@ Inyuma y'ico gerageza co gutembagaza ubutegetsi, ibintu vyaciye bihinduka amaras
 Ku wa **21 Gitugutu**, conseil de guerre yaciriye urwo gupfa abasirikare 34.
 
 Ku wa **28 Gitugutu**, ubutegetsi bwatanguye gufata no kwica abanyapolitike. **International Commission of Jurists** yavuze ko abantu 86 bishwe n'inkiko zidasanzwe.
+
+[FR-CITATION] 🟢 UCA (Political Science Dept.) ivuga ko "Eighty-six Hutus, including the presidents of the National Assembly and Senate, were executed for their alleged involvement in the Hutu rebellion between October 21 and December 17, 1965," kandi ko ICJ yarungitse "a one-member fact-finding mission (Switzerland)" kurondera ukuri ku bijanye n'uburenganzira bwa muntu.
 
 Muri bo: Gervais Nyangoma, Émile Bucumi, **Paul Mirerekano**, Sylvestre Karibwami, Ignace Ndimanya, Paul Nibirantiza, Pierre Burarame, Bernard Niyirikana, n'abandi.
 
