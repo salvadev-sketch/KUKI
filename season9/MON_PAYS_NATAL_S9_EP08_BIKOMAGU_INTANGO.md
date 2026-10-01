@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP08 — JEAN BIKOMAGU: INTANGO N'UKUZAMUKA
 
-Amakuru ku bwana bwa Jean Bikomagu — itariki y'ivuka, aho yavukiye, ababyeyi — ni make cane muri BBG. Ntitwoshaka guhimba.
+Amakuru ku bwana bwa Jean Bikomagu — itariki y'ivuka, aho yavukiye, ababyeyi — ni make cane mu masoko dufise ubu. Ntitwoshaka guhimba.
 
 ---
 

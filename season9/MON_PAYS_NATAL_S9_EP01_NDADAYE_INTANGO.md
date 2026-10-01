@@ -2,7 +2,7 @@
 
 Yavutse mu **1953**, mu ntara ya Ngozi.
 
-Amakuru arambuye ku bwana bwiwe n'umuryango wiwe ni make — iki ni ikibazo BBG ubwayo ivuga ko kigikeneye ubushakashatsi.
+Amakuru arambuye ku bwana bwiwe n'umuryango wiwe ni make — iki ni ikibazo gikeneye ubundi bushakashatsi.
 
 ---
 
