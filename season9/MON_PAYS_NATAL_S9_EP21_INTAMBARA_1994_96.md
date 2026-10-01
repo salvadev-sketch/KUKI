@@ -30,4 +30,4 @@ Ariko ibiganiro ntivyahagaritse intambara.
 
 Ntibantunganya yayoboye igihugu mu gihe c'intambara ikomeye, ariko ntiyashoboye kurangiza iyo ntambara mu kiringo ciwe — atari kubera ubunyantege nke bwiwe, ariko kubera ko intambara yari ifise imvo nyinshi, abagize uruhara benshi, ata muntu umwe yari gushobora kuyihagarika wenyene.
 
-**MON PAYS NATAL — SEASON 9 — EP22 — 1996: COUP YA BUYOYA, NTIBANTUNGANYA AKURWA**, ni ho tuzobibona.
+**MON PAYS NATAL — SEASON 9 — EP22 — 1996: IGIKORWA CA BUYOYA CO GUTEMBAGAZA UBUTEGETSI, NTIBANTUNGANYA AKURWA**, ni ho tuzobibona.

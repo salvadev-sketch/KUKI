@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP23 — BIKOMAGU: INYUMA — SENATEUR, URUPFU
 
-Mu **1997**, raporo ya ONU ivuga ko abasirikare 53 bari bashikirijwe ubutungane kubera uruhara bakekwagako muri coup yananiwe yo mu 1993.
+Mu **1997**, raporo ya ONU ivuga ko abasirikare 53 bari bashikirijwe ubutungane kubera uruhara bakekwagako mu gikorwa catsinzwe co mu 1993.
 
 Muri bo harimwo: **Colonel Charles Ntakije** (uwahoze ari Umushikiranganji w'Ingabo), **Colonel Jean Bikomagu**, na **François Ngeze** (umushingamateka wa UPRONA).
 
@@ -8,7 +8,7 @@ Ntitwovuga "Bikomagu yari umunyacaha" kubera iyo mvo yonyene — kuba yarashikir
 
 ---
 
-Mu **1996**, Commission internationale d'enquête ya ONU yashikirije raporo yayo ya nyuma. Yerekanye ko coup yari ifise uruhara rw'abasirikare bari ku rwego rwo hejuru, ariko ntiyashoboye kwemeza uruhara rwa buri muntu.
+Mu **1996**, Commission internationale d'enquête ya ONU yashikirije raporo yayo ya nyuma. Yerekanye ko ico gikorwa cari gifise uruhara rw'abasirikare bari ku rwego rwo hejuru, ariko ntiyashoboye kwemeza uruhara rwa buri muntu.
 
 ---
 

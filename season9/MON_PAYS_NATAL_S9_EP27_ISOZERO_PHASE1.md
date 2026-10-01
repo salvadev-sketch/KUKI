@@ -56,7 +56,7 @@ Kandi ko, naho ibintu vyose ari bibi, abanyagihugu bagumye bagerageza — kera k
 
 Tumaze kubona abami 10, abarwanira ubwigenge, abakuru b'igihugu benshi, n'abandi bantu bagize uruhara rukomeye — bose, gukurikira ubushakashatsi dukoze n'amasoko yabwo.
 
-Hari abandi bantu benshi, mu rutonde rw'abantu 100, badafise dossier na kimwe kugeza ubu — abanditsi, abanyabwenge, abantu bazwi mu muco n'ubunyamuhanga, n'abandi bo mu mateka ya vuba. Icobazwaho, tuzobibona igihe ubushakashatsi bwabo buzorangira.
+Hari abandi bantu benshi, mu rutonde rw'abantu 100, badafise inkuru na imwe kugeza ubu — abanditsi, abanyabwenge, abantu bazwi mu muco n'ubunyamuhanga, n'abandi bo mu mateka ya vuba. Icobazwaho, tuzobibona igihe ubushakashatsi bwabo buzorangira.
 
 ---
 

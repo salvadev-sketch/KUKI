@@ -26,17 +26,17 @@ Human Rights Watch ivuga ko Ndadaye yari yatanguye gutegura impinduka zari zigam
 
 Ku wa **11 Gitugutu 1993**, hari ikintu kikomeye: Lieutenant Gratien Rukindikiza, wari arongoye abasirikare barinda Perezida, avuga ko Bikomagu yamutegetse kuja Maurice, gutegura urugendo rwa Ndadaye — atamuha impamvu, akamubwira kutagaruka imbere ya 21 Gitugutu.
 
-Rukindikiza amaze kubimenyeshwa, yabwiye umucamanza mukuru w'igisirikare ko yakeka ko hari coup iriko irategurwa.
+Rukindikiza amaze kubimenyeshwa, yabwiye umucamanza mukuru w'igisirikare ko yakeka ko hari igikorwa co gutembagaza ubutegetsi ciriko kirategurwa.
 
-Ntitwovuga ko iryo tegeko ryari igice c'umugambi wa coup — ni ubuhamya bwa Rukindikiza, atari icemezo.
+Ntitwovuga ko iryo tegeko ryari igice c'umugambi wo gutembagaza ubutegetsi — ni ubuhamya bwa Rukindikiza, atari icemezo.
 
 ---
 
-Inyuma ya coup, hari amasoko yavuze ko Bikomagu yari umwe mu barongoye — Le Monde n'ubushakashatsi bumwe bwaramushize hamwe na Jean-Baptiste Bagaza mu bakekwa.
+Inyuma y'ico gikorwa, hari amasoko yavuze ko Bikomagu yari umwe mu barongoye — Le Monde n'ubushakashatsi bumwe bwaramushize hamwe na Jean-Baptiste Bagaza mu bakekwa.
 
 Ariko Bikomagu yarabihakanye, avugira kuri radio ku wa 23 Gitugutu, avuga ko atari yaragize uruhara.
 
-Kandi **Commission internationale d'enquête ntiyamushize ku rutonde rw'abemejwe nk'abateguye coup.**
+Kandi **Commission internationale d'enquête ntiyamushize ku rutonde rw'abemejwe nk'abateguye ico gikorwa.**
 
 Ntitwovuga "Bikomagu ni we yategetse iyicwa rya Ndadaye." Tuvuga: **yari umwe mu basirikare bakuru bakekwako uruhara, ariko yarabihakanye, kandi Commission mpuzamakungu ntiyamuhamije.**
 

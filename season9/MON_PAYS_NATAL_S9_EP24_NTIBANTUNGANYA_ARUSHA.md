@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP24 — NTIBANTUNGANYA: ARUSHA N'UMUSENATEUR
 
-Inyuma ya coup ya 1996, Ntibantunganya ntiyazimiye mu mateka y'Uburundi.
+Inyuma y'igikorwa co gutembagaza ubutegetsi co 1996, Ntibantunganya ntiyazimiye mu mateka y'Uburundi.
 
 ---
 

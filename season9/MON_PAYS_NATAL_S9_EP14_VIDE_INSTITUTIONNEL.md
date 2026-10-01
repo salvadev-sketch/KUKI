@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 9 — EP14 — INYUMA Y'IYICWA — VIDE INSTITUTIONNEL
+# MON PAYS NATAL — SEASON 9 — EP14 — INYUMA Y'IYICWA — ICUBA C'UBUTEGETSI
 
 Ndadaye yarishwe.
 
@@ -18,9 +18,9 @@ Ni ukuvuga: mu ntango, Leta n'igisirikare vyombi vyari vyarananiwe gukoresha ubu
 
 ---
 
-Ku wa **28 Gitugutu 1993**, Colonel Jean Bikomagu yatangaje ko coup yari irangiye, abasirikare basubira mu bigo vyabo.
+Ku wa **28 Gitugutu 1993**, Colonel Jean Bikomagu yatangaje ko igikorwa cari kirangiye, abasirikare basubira mu bigo vyabo.
 
-Ariko gutsindwa kwa coup ntivyazanye amahoro.
+Ariko gutsindwa k'ico gikorwa ntivyazanye amahoro.
 
 Ubwicanyi bwakomeje, abantu ibihumbi mirongo baricwa, abandi barahunga.
 
