@@ -22,6 +22,8 @@ Umugambwe wari uhagarariye cane Abahutu, naho utari uw'ubwoko bumwe gusa — har
 
 Ku wa **1 Ruheshi 1993**, habaye amatora ya mbere y'Umukuru w'igihugu, ashingiye kuri multipartisme, kuva Uburundi bwaronka ubwigenge.
 
+[FR-CITATION] 🟢 Wikipedia ("1993 Burundian presidential election") ivuga ko amatora yabaye "on 1 June 1993" — bihuza neza n'itariki EP02 ivuga.
+
 Abakandida babiri bakomeye bari: **Melchior Ndadaye (FRODEBU)** na **Pierre Buyoya (UPRONA)** — uwo twize muri Season 8, Perezida wari asanzwe ku butegetsi.
 
 **MON PAYS NATAL — SEASON 9 — EP03 — AMATORA 1993 — NDADAYE ARATSINDA**, ni ho tuzobibona.
