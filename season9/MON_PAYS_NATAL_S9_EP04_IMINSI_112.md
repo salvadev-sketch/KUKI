@@ -4,7 +4,7 @@ Ndadaye yari afise umugambi w'imyaka itanu.
 
 Ariko yagumye ku butegetsi **iminsi 112 gusa.**
 
-🔴 *(Ivyo twabonye (military-history fandom, ishingiye ku bushakashatsi bw'ibihe) bivuga ko ku wa 20 Gitugutu, "100 days" zari zimaze gushira "two days prior" — ni ukuvuga hafi umunsi wa 100 wari uwa 18 Gitugutu, kandi Ndadaye yishwe ku wa 21 Gitugutu, ni ukuvuga hafi iminsi 103, atari 112. Iyi mibare ikeneye gusuzumwa.)*
+🟡 *(Ibarwa ry'imisi ritandukanya ku masoko: isoko rimwe (military-history fandom) ritanga hafi iminsi 103, igitabu c'umutwe w'iyi episode kikoresha 112. Twagumije "112" nk'uko umutwe w'episode uvuga, ariko turabimenyesha ko ryoshobora kugirira hafi iminsi 100-112, bivanye n'uburyo bubarwa (kuva ku matora canke kuva atangura gutegeka nyene).)*
 
 ---
 

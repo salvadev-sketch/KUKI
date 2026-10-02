@@ -24,7 +24,9 @@ Pontien Karibwami, uwo tuzomenya vyimbitse, yaciye aba Umukuru w'Inama Nshingama
 
 Ariko imbere y'uko Ndadaye arahira, hari hamaze kuboneka ikimenyetso c'akaga.
 
-Ku wa **2 Mukakaro 1993**, habaye ikigeragezo c'abasirikare co gufata ubutegetsi. 🔴 *(AFP (21 Gitugutu 1993) ivuga ko iki kigeragezo cabaye ku wa 3 Mukakaro, atari 2 — itandukaniro ry'umusi umwe rikeneye gusuzumwa.)*
+Ku wa **3 Mukakaro 1993**, habaye ikigeragezo c'abasirikare co gufata ubutegetsi.
+
+[FR-CITATION] 🟢 AFP (21 Gitugutu 1993) ivuga itariki ya 3 Mukakaro; twahinduye "2" aja kuri "3" kugira tubihuze n'iryo soko.
 
 **Buyoya ubwiwe, akiri Perezida, ni we yagihagaritse.**
 

@@ -2,17 +2,15 @@
 
 Yavutse ku wa **28 Ntwarante 1953**.
 
-🔴 *(EP01 yari yanditswe ivuga "intara ya Ngozi," ariko amasoko menshi dusanze — Wikipedia, Universalis, n'inyandiko ya AFP yo ku wa 22 Gitugutu 1993 — ahuriza ku buryo bweruye ko yavukiye i Nyabihanga, mu ntara ya Muramvya, nta n'imwe muri zo ivuga Ngozi. Iki gishobora kuba ikosa rikeneye gukosorwa.)*
-
 [FR-CITATION] 🟢 AFP (22 Gitugutu 1993, biciye kuri francegenocidetutsi.org) igira iti: « born March 28, 1953 in a village of the central province of Muramvaya » — arivyo bisobanura mu Kirundi ngo: "yavutse ku wa 28 Ntwarante 1953, mu mudugudu uri mu ntara yo hagati, Muramvya."
 
 Amakuru arambuye ku bwana bwiwe n'umuryango wiwe ni make — iki ni ikibazo gikeneye ubundi bushakashatsi.
 
 ---
 
-Yagiye kwiga muri Rwanda, aho yize amashure yisumbuye, hanyuma muri Côte d'Ivoire, aronka impamyabushobozi mu vy'ubutegetsi n'ubutunzi.
+Yagiye kwiga muri Rwanda, aho yize mu Iishuri Rikuru rya Kaminuza y'igihugu (Université Nationale du Rwanda), aronka licence mu 1980, hanyuma agakora nk'umwigisha i Save kuva 1980 gushika 1983.
 
-🔴 *(Amasoko tubonye (Wikipedia, Universalis) avuga ko yize muri Rwanda — Université Nationale du Rwanda, licence mu 1980, kandi ko yakoze nk'umwigisha i Save kuva 1980 gushika 1983 — ariko nta kimwe muri vyo kivuga Côte d'Ivoire. Iki na co gikeneye gusuzumwa.)*
+[FR-CITATION] 🟢 Wikipedia na Universalis bemeza iyo nkuru (Université Nationale du Rwanda, licence 1980, umwigisha i Save 1980-1983); nta soko ryabonye rivuga Côte d'Ivoire — twahinduye iryo tagishimikiro.
 
 Ntitwovuga ngo turazi neza igituma yagiye kwiga hanze — iki ni ikindi kintu tuzogumana nk'ikibazo, atari ukuri kwuzuye.
 
