@@ -32,13 +32,7 @@ Kuri Ntidendereza na Biroli, iyi yari intsinzi ikomeye ibabujije amahirwe bari b
 
 Kandi mu myaka mike gusa, iryo hombo rizoza kugira ingaruka zibabaje.
 
----
-
-**[CITATION — 🟢]**
-
-René Lemarchand (1970) hamwe n'amasoko menshi (Wikipedia, Iwacu-Burundi, Yaga-Burundi) bemeza itariki y'amatora (18 Nyakanga 1961), igitigiri cy'imyanya (UPRONA 58, abandi 6, kuri 64), n'itariki Rwagasore yagizwe PM designate (28 Nyakanga 1961) — bihuye 100% n'ivyari vyaravuzwe kuri EP13 ya Season 4.
-
-*Icyitonderwa: umutwe w'episode ikurikira uvuga "iminsi 16" — ibarwa rya 28 Nzeri gushika 13 Ukwakira ritanga iminsi 15 (ritarimwo) canke 16 (ririmwo byombi) hakurikijwe uburyo bubarwa. EP14 ya Season 4 yakoresheje "15." Ikwiye guhuzwa.*
+🟡 *(Icyitonderwa: umutwe w'iyi episode uvuga "iminsi 16" — ibarwa rya 28 Nyakanga gushika 13 Gitugutu ritanga iminsi 15 (ritarimwo) canke 16 (ririmwo byombi) hakurikijwe uburyo bubarwa. EP14 ya Season4 yakoresheje "15." Ikwiye guhuzwa mu nyuma.)*
 
 ---
 
