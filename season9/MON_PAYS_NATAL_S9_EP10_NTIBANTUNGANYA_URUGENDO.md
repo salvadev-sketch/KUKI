@@ -37,3 +37,11 @@ Ku wa **29 Ruheshi 1993**, atorwa aba umushingamateka wa FRODEBU i Gitega.
 Ku wa **10 Mukakaro 1993**, agenwa kuba **Umushikiranganji w'Imigenderanire n'Amahanga**, muri Leta ya Ndadaye.
 
 **MON PAYS NATAL — SEASON 9 — EP11 — IBIBANZIRIZA Y'IGIKORWA CO GUTEMBAGAZA UBUTEGETSI**, ni ho tuzoraba iminsi imbere y'ubwicanyi.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Sylvestre Ntibantunganya," "Burundi Workers' Party," ishingiye kuri Banshimiyubusa 2018, Reyntjens 2009), na AllAfrica (umwirondoro uturuka mu Kirundi/Igifaransa) byemeza ivuko (8 Rusama 1956, Nyamutobo, Gishubi, Gitega), UBU (yashinzwe Kigarama 1979, na Ntibantunganya ari umwe mu bashinze), n'inzira ye idasanzwe muri UPRONA (yashizweho na Major Buyoya ubwiwe nka Secrétaire National chargé de l'Information, hanyuma Institut Rwagasore impera ya 1988) imbere yo gusubira muri FRODEBU.
+
+---
