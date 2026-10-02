@@ -22,7 +22,9 @@ Yaga Burundi ivuga abatware batandukanye bigeze guhagurukira Mwezi, mu bihe bita
 
 ---
 
-Ku bo, amasoko dufise ubu ntaduha inkuru irambuye — ni amazina, uturere, n'ibihe gusa. 🔴 *(Aya mazina n'ibihe bikeneye kwongera kwemezwa mu kindi gitabo — ntarasangwa muri Chrétien canke Nduwamahoro.)*
+Ku bo, amasoko dufise ubu ntaduha inkuru irambuye — ni amazina, uturere, n'ibihe gusa.
+
+[FR-CITATION] 🟢 Yaga-Burundi ("Au Burundi, les rébellions, c'est aussi dans l'histoire ancienne") yemeza aya mazina yose atanu, hamwe n'imyaka n'uturere: Rwoga (imyaka ya 1870, bafashijwe n'abaganwa b'Ababare, mu bumanuko), Kibango (imyaka ya 1890, mu bumanuko bw'igihugu, yitwa "Makaza" kubera ivy'uburozi n'ubwoba yatumaga mu batware), Rwerekanabirenge (mu buraruko bushira ubuseruko), Bihinda (i Banga, muri intara ya none ya Kayanza), na Biroro (intango z'imyaka ya 1890, mu bumanuko, hafi y'ikibaya ca Rusizi). Iryo soko ryongera kwemeza ko Mwezi Gisabo yasubiye gufata ubutegetsi bwuzuye ku wa 8 Gitugutu 1905, afashijwe na Von Grawert.
 
 Ntitwoshaka guhimba icobayeko, canke inkuru zabo bwite, ata co amasoko dufise adutangira. Twovuga gusa ico dushobora kuvuga: ko bahagurukiye ubutegetsi bwa Mwezi, mu bihe n'uturere bitandukanye, kandi ko batsinzwe canke bakoreshejwe mu buryo butarasigaye kirambuye mu migenzo dufise.
 

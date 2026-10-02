@@ -36,7 +36,7 @@ Abana biwe n'abamukomotseko ntibibagiye ko se yari amaze gutakaza ubushobozi.
 
 Umuhinga Jean-Pierre Chrétien avuga ko ubugarariji bw'abahungu ba Ndivyariye bwamaze **hafi imyaka mirongo itandatu** — kuva hafi 1870 gushika mu myaka ya 1930.
 
-[FR-CITATION] 🟢 Chrétien (1993) yagize ati: « un véritable sanctuaire... vénéré par les grands chefs Batare » — arivyo bisobanura mu Kirundi ngo: "ahera cane... aharamywa n'abatware bakuru b'Ababare," ku bijanye n'ikigabiro ca Kamaramagambo. 🔴 *(Imyaka nyakuri "1870-1930" ntiraboneka mu gice c'igitabu dufise — igomba kwongera kwemezwa.)*
+[FR-CITATION] 🟢 Chrétien (1993) yagize ati: « un véritable sanctuaire... vénéré par les grands chefs Batare » — arivyo bisobanura mu Kirundi ngo: "ahera cane... aharamywa n'abatware bakuru b'Ababare," ku bijanye n'ikigabiro ca Kamaramagambo. [FR-CITATION] 🟢 Wikipedia ("Mwezi IV of Burundi") yemeza ko agace k'ubuseruko n'ubumanuko kayobowe n'abatware b'Ababare, bakomoka kuri Ntare Rugamba, kandi ko ivyo bigometse vyinshi vyavuye ku bahungu n'abuzukuru ba Ndivyariye. Iryo soko rishigikira ivy'uburemere bw'ako gace mu myaka ya Mwezi Gisabo. 🔴 *(Ariko imyaka nyakuri "1870-1930" y'uko ikigabiro ca Kamaramagambo nyene cakoreshejwe ntikiraboneka ku buryo bweruye.)*
 
 Ni ukuvuga ko ikibazo kitari ic'umwami umwe n'umurezi wiwe.
 
