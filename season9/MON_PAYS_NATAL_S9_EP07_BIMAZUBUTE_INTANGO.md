@@ -41,3 +41,13 @@ Aca yinjira muri **FRODEBU** — aba umwe mu Batutsi bake bari mu bayobozi bakur
 Mu 1993, atorwa aba Umushingamateka, hanyuma **Icegera c'Umukuru w'Inama Nshingamateka**, inyuma ya Pontien Karibwami.
 
 **MON PAYS NATAL — SEASON 9 — EP08 — JEAN BIKOMAGU: INTANGO N'UKUZAMUKA**, ni ho tuzomumenya.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Gilles Bimazubute," ishingiye kuri Lemarchand 1970 na Weinstein 1976) yemeza itariki n'ahantu (1934, Ijenda — isoko rikomeye ritanga iyi tariki, naho irya "1937, Mugano" riva ku muhungu wiwe, Adélard, nk'uko bivugwa), UCJAB (1959), guhindura izina kuba JNR (1961), umurimo wa radio (1962), na Ligue Iteka (Gashuantwo 1991, umwe mu bashinze cumi na babiri).
+
+*Umuce w'ingenzi ku bizoza: Wikipedia ivuga ko mu gitondo co ku wa 21 Ukwakira 1993, naho yari Umututsi, Bimazubute yabonywe nk'"umugambanyi" n'abakoze coup kubera ko yashigikiye ubutegetsi bw'abenshi — kandi ko yarashize ku mutima kwambara ikositimu yose n'ingofero imbere y'uko abasirikare bamutwara. Iyi nsobanuro ikwiye kugaragara muri episode ivuga ku rupfu rwiwe.*
+
+---
