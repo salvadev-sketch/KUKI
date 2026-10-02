@@ -12,6 +12,8 @@ Hari inkuru zivuga ku mbunda yakoreshejwe, ifitaniye isano na **Butera**, umukoz
 
 Ntitwovuga ko Amerika yari inyuma y'ubwicanyi. Nta gihamya ihagije dufise.
 
+[FR-CITATION] 🟡 Thinkingafrica.org ivuga ko, nk'uko René Lemarchand abivuga, uwishe Ngendandumwe — impunzi y'Umunyarwanda — yakorera ku Buserukizi bwa Leta Zunze Ubumwe za Amerika i Bujumbura, kubera ko ubwo buserukizi bwakekaga ko Ngendandumwe yari afitaniye isano na Komunisme, biciye ku bucuti yagiranye n'Ubushinwa. Iyi ni interprétation ya Lemarchand, atari ikintu cemejwe n'urukiko.
+
 ---
 
 Inyuma y'ubwicanyi, abanyapolitike bo mu mugwi wa **Casablanca** barafashwe: Albin Nyamoya, Prime Niyongabo, Zénon Nicyenzi, n'abandi.

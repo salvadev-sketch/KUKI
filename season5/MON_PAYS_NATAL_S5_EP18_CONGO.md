@@ -12,6 +12,8 @@ Ku wa **30 Ruheshi 1960**, Congo yararonse ubwigenge.
 
 Mirerekano na Rwagasore bari i **Léopoldville**, mu birori — bavugwa nk'abaserukira UPRONA.
 
+[FR-CITATION] 🟢 Wikipedia ("Paul Mirerekano") ivuga ko yitavye "the Republic of the Congo's independence celebrations on 30 June 1960 in Léopoldville," kandi ko, abonye ko ubutegetsi bw'i Urundi bwamurakariye, yahisemo kuguma muri Congo kugira yirinde gufatwa.
+
 Iki ni ikintu c'ingenzi: UPRONA ntiyagumye ari umugambwe w'imbere mu Burundi gusa. Yari yatanguye kugira imigenderanire n'abandi baharanira ubwigenge muri Afrika.
 
 ---
@@ -25,6 +27,8 @@ Mirerekano ntiyaciye asubira mu Burundi ako kanya. Yagumye muri Congo, kugira nt
 ---
 
 Mu ntango za **1961**, yaranditse akantu k'inyandiko: **"Mbwire gito canje, gito c'uwundi cumvireho."**
+
+[FR-CITATION] 🟢 Wikipedia ("Paul Mirerekano") yemeza iki gitabu, ikivuga ngo "Mbire gito canje..." (1961), ikanavuga ko cabaye "popular among UPRONA members" — arivyo bisobanura mu Kirundi ngo: "cazwi cane mu bagize UPRONA."
 
 Muri iyo nyandiko, ntiyavugaga ku bwigenge gusa. Yavugaga ku bantu bato, ku bahinzi, ku butungane hagati y'abanyagihugu.
 

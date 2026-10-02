@@ -4,6 +4,8 @@ Mu ntango za Nzero 1965, Mwambutsa IV yakuyeho Gouvernement ya Albin Nyamoya, as
 
 Ku wa **7 Nzero 1965**, Ngendandumwe yaremeye — inyuma yo kubanza kugira amakenga menshi.
 
+[FR-CITATION] 🟢 Wikipedia ("Pierre Ngendandumwe") ivuga ko "On 7 January 1965, Mwambutsa called on Ngendandumwe to replace Nyamoya and form a new government" — bihuza neza n'itariki EP26 ivuga.
+
 ---
 
 Yari azi ko igihugu kirimwo imigwi itamushigikiye. Inyuma y'itorwa ryiwe, abarwanya iryo genwa ryiwe barungikiye Mwambutsa ikete bamumenyesha ko badashigikiye Ngendandumwe.

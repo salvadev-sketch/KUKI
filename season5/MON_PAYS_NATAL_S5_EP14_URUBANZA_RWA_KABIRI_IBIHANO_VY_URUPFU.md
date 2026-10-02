@@ -30,4 +30,12 @@ Ku rundi ruhande: abunganizi n'abandi bariyibajije ku buryo iperereza n'imanza v
 
 Ico kibazo, ntacyo dushobora kukirengagiza.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Jean-Baptiste Ntidendereza") yemeza ko ku wa 27 Ugushyingo 1962, urukiko rwahamije abo bantu batanu (Ntidendereza, Biroli, Nahimana, Iatrou, Ntakiyica) kandi ko baciriwe urwo gupfa — bihuye 100% n'ivyanditswe muri EP14.
+
+---
+
 **MON PAYS NATAL — SEASON 5 — EP15 — IKIBAZO C'URUHARA RW'ABABILIGI**, ni ho tuzocirambura.

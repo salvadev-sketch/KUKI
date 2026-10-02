@@ -8,6 +8,8 @@ André Muhirwa yaciye aba Umushikiranganji wa mbere. Ngendandumwe yagumye muri G
 
 Inyuma y'ukwegura kwa Gouvernement ya Muhirwa, ku wa **18 Ruheshi 1963**, Ngendandumwe aba **Umushikiranganji wa mbere w'Uburundi** — aba **Umuhutu wa mbere** yigeze kuba ku wo mwanya.
 
+[FR-CITATION] 🟢 Wikipedia ("Pierre Ngendandumwe") ivuga ko "Ngendandumwe became Burundi's first Hutu prime minister" ku wa 18 June 1963 — bihuza neza n'itariki EP25 ivuga (18 Ruheshi 1963).
+
 ---
 
 Yashize imbere iciyumviro: **"du pain et la paix"** — umukate n'amahoro.

@@ -18,6 +18,8 @@ Ngendandumwe yasohotse, hanyuma mu mwijima hakumvikana amasasu.
 
 Le Monde yaranditse ko yarashwe amasasu menshi mu **mugongo**.
 
+[FR-CITATION] 🟢 Wikipedia ("Pierre Ngendandumwe") ivuga ko "he visited his wife at a hospital in Bujumbura to watch her give birth to their son. At about 8:00 PM, as he was leaving the hospital, he was shot in the back and killed" — arivyo bisobanura mu Kirundi ngo: "yaje kuraba umugore wiwe yibaruka umuhungu, saa mbiri z'ijoro agiye gusohoka yarashwe mu mugongo, arapfa."
+
 **Pierre Ngendandumwe yarapfuye ku wa 15 Nzero 1965, imbere ya Clinique Prince Louis Rwagasore.**
 
 ---

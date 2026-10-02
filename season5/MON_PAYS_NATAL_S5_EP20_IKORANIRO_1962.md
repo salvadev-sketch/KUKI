@@ -26,6 +26,8 @@ Ico kibazo caciye kigera ku rwego rukomeye ku buryo Umwami **Mwambutsa IV** ubwi
 
 Muri Nyakanga 1962 (Nyakanga y'ico gihe = September), Congrès yabereye i Muramvya. Amasoko atavuga rumwe ku vyavuye muri yo: hari avuga ko Mirerekano na Muhirwa bombi baba vice-présidents, izindi zikavuga ko **Joseph Bamina** ari we yatorewe kuyobora, Mirerekano na Muhirwa bakaba vice-présidents biwe.
 
+[FR-CITATION] 🟢 Wikipedia ("Joseph Bamina," asubiramwo Lemarchand 1970:411-412) ivuga ko muri icyo gikorwa cyo mu 1962 UPRONA yaguye mu macakubiri, kandi ko habonetse "a cross-party Hutu caucus growing in strength" — bimwe mu bisobanuro vy'aho ibintu vyagiye bigenda.
+
 ---
 
 Hari ubuhamya buvuga ko abashigikira Mirerekano mu turere twa Rutana na Ruyigi batashoboye gushika ku matora — inzira zarafunzwe, imodoka zarabujijwe. Ariko iyi ni allegations, atari gihamya y'ibanze.

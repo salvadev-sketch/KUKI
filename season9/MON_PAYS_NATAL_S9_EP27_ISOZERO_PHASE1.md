@@ -54,9 +54,9 @@ Kandi ko, naho ibintu vyose ari bibi, abanyagihugu bagumye bagerageza — kera k
 
 **Iyi ni iherezo rya Phase 1** y'iki gikorwa — **ABANTU 100 BAGIZE AMATEKA Y'UBURUNDI.**
 
-Tumaze kubona abami 10, abarwanira ubwigenge, abakuru b'igihugu benshi, n'abandi bantu bagize uruhara rukomeye — bose, gukurikira BBG, n'amasoko yayo.
+Tumaze kubona abami 10, abarwanira ubwigenge, abakuru b'igihugu benshi, n'abandi bantu bagize uruhara rukomeye — bose, gukurikira ubushakashatsi dukoze n'amasoko yabwo.
 
-Hari abandi bantu benshi, mu rutonde rw'abantu 100, badafise dossier na kimwe muri BBG kugeza ubu — abanditsi, abanyabwenge, abantu bazwi mu muco n'ubunyamuhanga, n'abandi bo mu mateka ya vuba. Icobazwaho, tuzobibona igihe ubushakashatsi bwabo buzoshirwa muri BBG.
+Hari abandi bantu benshi, mu rutonde rw'abantu 100, badafise inkuru na imwe kugeza ubu — abanditsi, abanyabwenge, abantu bazwi mu muco n'ubunyamuhanga, n'abandi bo mu mateka ya vuba. Icobazwaho, tuzobibona igihe ubushakashatsi bwabo buzorangira.
 
 ---
 

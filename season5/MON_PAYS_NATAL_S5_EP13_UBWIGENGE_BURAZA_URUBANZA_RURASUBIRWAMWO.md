@@ -19,3 +19,13 @@ Ku wa 27 Gitugutu 1962, **Supreme Court** yarafashe ingingo yo gusubiramwo uruba
 Ubutungane bw'Uburundi bwigenga, bwari bugiye gufata ingingo ku kibazo cari kimaze kubaho mu gihe c'ubukoloni.
 
 **MON PAYS NATAL — SEASON 5 — EP14 — URUBANZA RWA KABIRI — IBIHANO VY'URUPFU**, ni ho tuzoraba icavuyemwo.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Jean-Baptiste Ntidendereza," "Supreme Court of Burundi") yemeza itariki (27 Ukwakira 1962) Supreme Court yafashe ingingo yo gusubiramwo urubanza, kubera ko urubanza rwa mbere rutari rwubahirije uburenganzira bwo guburanishwa na "jury" nk'uko Itegeko Nshinga rishasha ribisaba.
+
+*Iki gikemura ikibazo twari twaravuze kuri EP12: "27 Ugushyingo" ntiwari uvuguruza "2 Mata" — ni ibintu bibiri bikurikirana: Ukwakira 27 = Supreme Court yategeka gusubiramwo; Ugushyingo 27 = urukiko rwo hasi rwaciye urundi rubanza (EP14).*
+
+---

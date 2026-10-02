@@ -28,4 +28,6 @@ Ngendandumwe na **Paul Mirerekano** bari mu ba lieutenant ba mbere bizerwa ba Rw
 
 Mu 1961, UPRONA imaze gutsinda amatora, Ngendandumwe yinjiye muri Gouvernement, aba **Ministre des Finances**.
 
+[FR-CITATION] 🟢 Wikipedia ("Pierre Ngendandumwe," asubiramwo Eggers 2006:112 na De Witte 2021:202) ivuga ko yavukiye "1930 in Ngozi Province," kandi ko "Rwagasore ultimately became prime minister with Ngendandumwe serving as Vice Prime Minister and Minister of Finance."
+
 **MON PAYS NATAL — SEASON 5 — EP25 — UMUSHIKIRANGANJI WA MBERE — "DU PAIN ET LA PAIX"**, ni ho tuzobandanya.

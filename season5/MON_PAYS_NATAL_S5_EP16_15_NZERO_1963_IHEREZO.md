@@ -6,6 +6,8 @@ Bamanitswe imbere y'abantu benshi, ku kibuga ca Gitega.
 
 Inyandiko z'amateka zivuga ko abantu ibihumbi bari bahari.
 
+[FR-CITATION] 🟢 KAOWARSOM (Académie royale des sciences d'outre-mer) yemeza ko Ntidendereza na Biroli bapfiriye i Gitega ku wa 15 Nzero 1963 — bihuza n'itariki EP16 ivuga.
+
 ---
 
 Umuntu yari yavuye mu muryango w'abatware bakomeye — Pierre Baranyanka akaba se — akagira uruhara mu buyobozi bw'igihugu, akagira uruhara mu gushinga PDC, akabaye Ministre de l'Intérieur, yaciye ahereza ubuzima bwiwe kuri ico kibuga.
@@ -19,6 +21,8 @@ Ariko muri iyi documentaire, tuzotandukanya ico urukiko rwemeje n'ibibazo bigari
 ---
 
 Naho hari uwundi mu muryango wa Baranyanka, **Charles Baranyanka**, yari mu ruhande rwa UPRONA — bigaragaza ko n'umuryango umwe wari ufise abantu bari ku mpande zitandukanye z'ibibazo vya politike.
+
+[FR-CITATION] 🟢 Wikipedia ("Jean-Baptiste Ntidendereza," asubiramwo Russell 2019:218) ivuga ko umuvukanyi wa Ntidendereza, Charles Baranyanka, yinjiye muri UPRONA aba diplomate.
 
 ---
 

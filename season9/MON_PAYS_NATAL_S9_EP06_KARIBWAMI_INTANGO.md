@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP06 — PONTIEN KARIBWAMI: INTANGO NA FRODEBU
 
-Amakuru arambuye ku bwana bwa Pontien Karibwami — aho yavukiye, umuryango wiwe — ni make muri BBG. Ni ikibazo tugumana uko kiri.
+Amakuru arambuye ku bwana bwa Pontien Karibwami — aho yavukiye, umuryango wiwe — ni make mu masoko dufise ubu. Ni ikibazo tugumana uko kiri.
 
 ---
 

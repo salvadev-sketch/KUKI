@@ -30,4 +30,12 @@ Igihugu cose caratangaye.
 
 Kandi ubwo bwicanyi ntibwazoguma buri ikibazo c'umuntu umwe.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia (biciye kuri Lemarchand 1970) yemeza izina (Jean Kageorgis, Umugereki) n'itariki (13 Ukwakira 1961). Ubwitonzi EP10 igaragaza ku vyerekeye uwateguye urwo rwicwa buhuye n'uko amasoko atandukanya ibisobanuro (reba icyitonderwa twashizemo kuri EP06).
+
+---
+
 **MON PAYS NATAL — SEASON 5 — EP11 — UBWABUZE BWA KAGEORGIS**, ni ho tuzoraba icatanguye kugaragara.

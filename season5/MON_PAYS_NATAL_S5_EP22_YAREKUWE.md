@@ -26,6 +26,8 @@ Ku wa **20 Mukakaro 1965**, Inteko yaramutoye aba **Premier Vice-Président** wa
 
 Mirerekano yari ageze ku rwego rwo hejuru rwa Leta.
 
+[FR-CITATION] 🟢 Wikipedia ("Paul Mirerekano") ivuga ko "the body subsequently elected Mirerekano its First Vice-President on 20 July" 1965 — bihuza neza n'itariki EP22 ivuga. Wikipedia ("1965 Burundian parliamentary election") na yo ivuga ko amatora yabaye "on 10 May 1965."
+
 ---
 
 Ariko igihugu cari kimaze kwinjira mu bihe bibi.
