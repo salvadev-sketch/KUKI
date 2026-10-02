@@ -36,4 +36,4 @@ Ku wa **29 Ruheshi 1993**, atorwa aba umushingamateka wa FRODEBU i Gitega.
 
 Ku wa **10 Mukakaro 1993**, agenwa kuba **Umushikiranganji w'Imigenderanire n'Amahanga**, muri Leta ya Ndadaye.
 
-**MON PAYS NATAL — SEASON 9 — EP11 — IBIBANZIRIZA COUP**, ni ho tuzoraba iminsi imbere y'ubwicanyi.
+**MON PAYS NATAL — SEASON 9 — EP11 — IBIBANZIRIZA Y'IGIKORWA CO GUTEMBAGAZA UBUTEGETSI**, ni ho tuzoraba iminsi imbere y'ubwicanyi.

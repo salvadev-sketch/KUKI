@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 9 — EP12 — 20–21 GITUGUTU 1993 — COUP
+# MON PAYS NATAL — SEASON 9 — EP12 — 20–21 GITUGUTU 1993 — IGIKORWA CO GUTEMBAGAZA UBUTEGETSI
 
 Mw'ijoro ryo ku wa 20 rija ku wa 21 Gitugutu 1993, ibikorwa vy'abasirikare vyatanguye gukomera i Bujumbura.
 
@@ -36,7 +36,7 @@ Ico dushobora gushimikako: **yafashwe n'abasirikare mu gihe c'ikigeragezo co guf
 
 ---
 
-Coup ntiyatsinze.
+Ico gikorwa nticatsinze.
 
 Abasirikare ntibashoboye kugumana ubutegetsi bw'igihugu igihe kirekire. Ariko Uburundi bwari bwatakaje Perezida watowe, ata muyobozi mushasha yatorwa ubwo nyene.
 

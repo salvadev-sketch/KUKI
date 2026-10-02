@@ -8,13 +8,13 @@ Ntitwovuga ko Bikomagu yari yanse ivyo vugururwa — nta gihamya dufise.
 
 ---
 
-Inyuma ya coup, Bikomagu yatangaje ko coup irangiye, ategeka abasirikare gusubira mu bigo vyabo.
+Inyuma y'ico gikorwa, Bikomagu yatangaje ko kirangiye, ategeka abasirikare gusubira mu bigo vyabo.
 
-Ariko ivyo ntibihanagura amakenga yose ku ruhara rwiwe imbere ya coup — nk'uko twabonye muri EP08 na EP11.
+Ariko ivyo ntibihanagura amakenga yose ku ruhara rwiwe imbere y'ico gikorwa — nk'uko twabonye muri EP08 na EP11.
 
 ---
 
-Commission internationale d'enquête ya ONU yasanze ingabo z'Uburundi zaragize uruhara — rutaziguye canke rutaziguye — mu bikorwa vyakurikiye coup, harimwo iyicwa rya Ndadaye.
+Commission internationale d'enquête ya ONU yasanze ingabo z'Uburundi zaragize uruhara — rutaziguye canke rutaziguye — mu bikorwa vyakurikiye ico gikorwa, harimwo iyicwa rya Ndadaye.
 
 Ariko ivyo ntibisobanura "Bikomagu ni we yategetse ibintu vyose." Ni co gituma tuvuga "basirikare bamwe" canke "igice c'igisirikare," atari "igisirikare cose."
 

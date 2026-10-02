@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 9 — EP22 — 1996: COUP YA BUYOYA, NTIBANTUNGANYA AKURWA
+# MON PAYS NATAL — SEASON 9 — EP22 — 1996: IGIKORWA CA BUYOYA CO GUTEMBAGAZA UBUTEGETSI, NTIBANTUNGANYA AKURWA
 
 Ku wa **20 Mukakaro 1996**, abarwanyi barishe abantu barenga 300, ahanini abagore n'abana b'Abatutsi, mu kigo c'abavuye mu vyabo i **Bugendana.**
 
