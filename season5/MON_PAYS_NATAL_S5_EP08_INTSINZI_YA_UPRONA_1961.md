@@ -8,6 +8,8 @@ Ivyavuye muri ayo matora vyaratangaje benshi.
 
 **UPRONA — imyanya 58 kuri 64.**
 
+[FR-CITATION] 🟢 Wikipedia ("Union for National Progress," "1961 Burundian legislative election") yemeza itariki (18 Nyakanga 1961), UPRONA ikaba yararonse imyanya 58 kuri 64, hamwe n'uko Rwagasore yabaye Premier Ministre designate ku wa 28 Nyakanga.
+
 **PDC n'abandi bafatanyabikorwa — bake cane.**
 
 ---

@@ -10,6 +10,8 @@ Umuntu yaramurashe.
 
 Yitwa **Jean Kageorgis**, Umugereki.
 
+[FR-CITATION] 🟢 Wikipedia ("Louis Rwagasore," "Christian Democratic Party (Burundi)") yemeza itariki (13 Gitugutu 1961), ikibanza (iterasi y'ihoteli ku nkengera y'ikiyaga, Usumbura), n'izina ry'uwamurashe (Jean Kageorgis).
+
 ---
 
 Rwagasore yarapfuye.
