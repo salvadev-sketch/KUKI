@@ -32,12 +32,20 @@ Ntitwovuga ko iryo tegeko ryari igice c'umugambi wo gutembagaza ubutegetsi — n
 
 ---
 
-Inyuma y'ico gikorwa, hari amasoko yavuze ko Bikomagu yari umwe mu barongoye — Le Monde n'ubushakashatsi bumwe bwaramushize hamwe na Jean-Baptiste Bagaza mu bakekwa.
+Inyuma y'ico gikorwa, hari amasoko yavuze ko Bikomagu yari umwe mu barongoye — Le Monde, Le Soir, n'ubushakashatsi bumwe bwaramushize hamwe na Jean-Baptiste Bagaza mu bakekwa.
 
 Ariko Bikomagu yarabihakanye, avugira kuri radio ku wa 23 Gitugutu, avuga ko atari yaragize uruhara.
 
-Kandi **Commission internationale d'enquête ntiyamushize ku rutonde rw'abemejwe nk'abateguye ico gikorwa.**
+Raporo nyayo ya Commission internationale d'enquête (yasohotse 1996) ntiyatanze icemezo cuzuye c'uwo **yategetse** urwo rwicwa — ivuga ko iperereza ryahuye n'"ubugoye budashobora gusumbwa" (unsurmountable difficulties), kubera ko igisirikare cagumye gifunze iperereza. Ariko kuri Bikomagu ubwiwe, raporo ntiyaguma itaravuga: Associated Press ivuga ko raporo yasanze **Bikomagu ubwiwe ari we yazanye Ndadaye, umugore wiwe, n'abana biwe ku kigo c'igisirikare**, kandi ko umugore wa Ndadaye yavuze ko Bikomagu yabwiye abasirikare ati: *"This is the man you want. Do whatever you want with him."* (Bikomagu yarabihakanye.)
 
-Ntitwovuga "Bikomagu ni we yategetse iyicwa rya Ndadaye." Tuvuga: **yari umwe mu basirikare bakuru bakekwako uruhara, ariko yarabihakanye, kandi Commission mpuzamakungu ntiyamuhamije.**
+Ntitwovuga "Bikomagu ni we yategetse iyicwa rya Ndadaye" — ntawushobora kubivuga n'ikizere cuzuye. Ariko ntitwovuga na none ngo raporo ntacyo ivuze kuri we: itariyemeza ku mugaragaro nk'uwateguye, ariko yagaragaje ibikorwa byiwe nk'ibikomeye cane mu minsi yabaye, ku buryo Mail & Guardian yabyise **"particularly damning."**
 
 **MON PAYS NATAL — SEASON 9 — EP09 — CYPRIEN NTARYAMIRA: INTANGO**, ni ho tuzomumenya.
+
+---
+
+**[CITATION — 🟢]**
+
+Raporo nyayo ya International Commission of Inquiry for Burundi (1996, iboneka kuri usip.org), AP (biciye kuri ReliefWeb), Mail & Guardian (16 Myandagaro 1996), na Reuter (biciye kuri ReliefWeb, 14 Myandagaro 1996) byemeza ibintu by'ingenzi: ISCAM promotion 8, umwanya wa commandant Cibitoke (1992), umwanya wa Chief of Staff (1993), itegeko kuri Lt. Rukindikiza (11 Ukwakira), ivuga rya radio (23 Ukwakira), hamwe n'uburemere bw'ivyo raporo ivuga kuri we (bireba aho yazanye umuryango wa Ndadaye, n'icivugo umugore wa Ndadaye amushinja).
+
+---
