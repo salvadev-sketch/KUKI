@@ -14,7 +14,9 @@ Hari ibintu bibiri vyamufashije kuboneka nk'umuntu ashobora kwemerwa n'impande z
 
 ---
 
-Ku wa **8 Nzero 1994**, Sylvestre Ntibantunganya yaratorewe kuba **Umukuru w'Igihugu.**
+Ku wa **6 Ndamukiza 1994**, inyuma y'urupfu rwa Ntaryamira (twize mu ma-episode akurikira), Sylvestre Ntibantunganya yaciye aba **Umukuru w'Igihugu**, mu buryo bw'agateganyo.
+
+[FR-CITATION] 🟢 Wikipedia ("Sylvestre Ntibantunganya," "Timeline of Burundian history") yemeza itariki (6 canke 8 Ndamukiza 1994, bivanye n'isoko) — twahinduye "8 Nzero 1994" kuko iyo tariki itaboneka ku masoko yose, kandi ntibishoboka ko yaba Umukuru w'Igihugu imbere y'uko Ntaryamira yatorwa (13 Nzero) na mbere y'uko arahira (5 Ruhuhuma).
 
 Yasubiriye Cyprien Ntaryamira, inyuma y'urupfu rwiwe.
 
