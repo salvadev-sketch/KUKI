@@ -10,6 +10,8 @@ Urupfu rwabo rwagize ingaruka zirenze ubuzima bwabo bwite: kubera ko Karibwami a
 
 Bimazubute, uwari amaze imyaka irenga mirongo itatu mu vya politike — kuva UCJAB na JNR mu 1959, agera ku kuba Icegera c'Umukuru w'Inama Nshingamateka mu 1993 — na we yaguye uwo musi nyene.
 
+[FR-CITATION] 🟢 Wikipedia ("Gilles Bimazubute") ivuga ko mu 1959 "he and Prime Nyongabo founded the Union Culturelle de la Jeunesse Africaine du Burundi (UCJAB)," kandi ko mu 1961 "UCJAB was renamed Jeunesse Nationaliste Rwagasore (JNR)" — bihuza neza n'ivyo EP25 ivuga. Iyo nyandiko yongera kwemeza ko urupfu rwa Ndadaye, Karibwami, na Bimazubute "eliminated the constitutionally-delineated presidential line of succession."
+
 Urugendo rwiwe rwerekana ikintu gikomeye: Bimazubute ntiyari umunyapolitike mushasha wo mu 1993. Yari amaze kubaho impinduka nyinshi z'Uburundi — kuva ku bwami, kuja kuri Repubulika, agera no kuri demokarasi y'amashirahamwe menshi.
 
 ---
