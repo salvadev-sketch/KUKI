@@ -18,6 +18,8 @@ Ivyo vyatumye uruhara rwiwe mu gihe c'intambara ruba urwa politike, aho kuba urw
 
 Human Rights Watch yerekana ko intambara yo mu Burundi yakomeje mu myaka ya 1994–1996, kandi ko **impande zitandukanye zose** — Leta, igisirikare, na CNDD/FDD — zagiye zigirizwa ibikorwa vy'ubwicanyi n'ibindi bikorwa bihonyanga uburenganzira bwa muntu.
 
+[FR-CITATION] 🟢 Human Rights Watch (World Report 1997, Burundi) ivuga ko "the Tutsi-dominated army killed thousands of noncombatants," ariko kandi ko n'izindi ngabo ("three Hutu opposition movements") zagizemwo uruhara mu bwicanyi — bihuye n'ico EP21 ivuga ko nta ruhande rumwe gusa rwagize amakosa.
+
 Ntitwovuga ko uruhande rumwe gusa ari rwo rwakoze amakosa.
 
 ---
