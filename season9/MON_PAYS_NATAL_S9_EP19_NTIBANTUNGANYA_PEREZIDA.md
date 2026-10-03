@@ -14,9 +14,9 @@ Hari ibintu bibiri vyamufashije kuboneka nk'umuntu ashobora kwemerwa n'impande z
 
 ---
 
-Ku wa **8 Nzero 1994**, Sylvestre Ntibantunganya yaratorewe kuba **Umukuru w'Igihugu.**
+Ku wa **8 Ndamukiza 1994** — iminsi ibiri gusa inyuma y'urupfu rwa Ntaryamira — Sylvestre Ntibantunganya yafashe ubutegetsi nk'**Umukuru w'Igihugu mu gihe c'agateganyo**, nk'uko Itegeko Nshinga ribitegeka (Umukuru w'Inama Nshingamateka asubira umukuru w'igihugu igihe hari ikibazo).
 
-Yasubiriye Cyprien Ntaryamira, inyuma y'urupfu rwiwe.
+Yasubiriye Cyprien Ntaryamira, inyuma y'urupfu rwiwe. Yaje kwemezwa burundu nk'Umukuru w'Igihugu ku wa 30 Nyakanga 1994.
 
 Ariko na we, nka Ntaryamira, **ntiyatorewe n'amatora y'abanyagihugu.** Yatorewe n'Inama Nshingamateka, mu gihe igihugu cari mu kibazo ca politike.
 
@@ -29,3 +29,13 @@ Ndadaye (yatowe n'abanyagihugu) → Karibwami (yishwe, atarigeze arongora) → N
 Imyaka itarenga umwaka, Uburundi bwari bumaze kubona abakuru b'igihugu bane.
 
 **MON PAYS NATAL — SEASON 9 — EP20 — BIKOMAGU: 1993–96, IPEREREZA**, ni ho tuzoraba icakurikiye ku ruhande rw'igisirikare.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Sylvestre Ntibantunganya"), The East African, na AllAfrica byemeza itariki (23 Kigarama 1993, Umukuru w'Inama Nshingamateka; 8 Ndamukiza 1994, Umukuru w'Igihugu mu gihe c'agateganyo; 30 Nyakanga 1994, yemejwe burundu).
+
+*Ikosa ryakosowe: iyi episode yari ivuga "8 Nzero 1994," ariko ibi ntibishoboka mu gihe (Ntaryamira yari akiriho muri Nzero, yarapfuye 6 Ndamukiza). Itariki nyayo ni 8 Ndamukiza 1994.*
+
+---
