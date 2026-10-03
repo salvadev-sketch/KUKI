@@ -1,0 +1,107 @@
+<!DOCTYPE html>
+<html lang="en"><head><meta charset="utf-8">
+<meta name="viewport" content="width=device-width, initial-scale=1, viewport-fit=cover">
+<title>MPN: 15 Money Rules to Understand If You Want to Build Wealth</title>
+<link rel="preconnect" href="https://fonts.googleapis.com"><link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link href="https://fonts.googleapis.com/css2?family=Figtree:wght@500;600&family=Newsreader:ital,opsz,wght@0,6..72,400;0,6..72,600;1,6..72,400;1,6..72,500&display=swap" rel="stylesheet">
+<style>
+:root{--ink:#f6f3ec;--dim:rgba(246,243,236,.56);--serif:"Newsreader",Georgia,"Times New Roman",serif;--sans:"Figtree",system-ui,-apple-system,"Segoe UI",sans-serif;--page:#000}
+@media (prefers-color-scheme:dark){:root:not([data-theme="light"]){--page:#000}}
+:root[data-theme="dark"]{--page:#000}
+*{box-sizing:border-box;margin:0}
+html,body{height:100%;background:var(--page);overflow:hidden}
+body{font-family:var(--serif);color:var(--ink);-webkit-text-size-adjust:100%}
+.deck{height:100%;width:100%;display:flex;overflow-x:auto;overflow-y:hidden;scroll-snap-type:x mandatory;scrollbar-width:none;overscroll-behavior-x:contain;outline:none}
+.deck::-webkit-scrollbar{display:none}
+.slide{flex:0 0 100%;height:100%;scroll-snap-align:start;scroll-snap-stop:always;position:relative;overflow:hidden;container-type:size;
+ background:linear-gradient(var(--ang),var(--a),var(--b));
+ padding:calc(env(safe-area-inset-top,0px) + 7cqmin) 8cqmin calc(env(safe-area-inset-bottom,0px) + 9cqmin);display:flex;align-items:center;justify-content:center;--k:1}
+.in{position:relative;z-index:1;width:100%;max-width:150cqmin;display:grid;gap:calc(5cqmin*var(--k))}
+.small{font-family:var(--sans);font-weight:500;font-size:calc(3.1cqmin*var(--k));letter-spacing:.14em;color:var(--dim)}
+h1,h2{font-weight:600;line-height:1.08;letter-spacing:-.012em;text-wrap:balance}
+.big{font-size:calc(11.5cqmin*var(--k))}
+h2{font-size:calc(8.6cqmin*var(--k))}
+.lead{font-size:calc(5.2cqmin*var(--k));font-style:italic;color:var(--acc)}
+.msg{display:grid;gap:calc(2.6cqmin*var(--k))}
+.msg p{font-size:calc(4.9cqmin*var(--k));line-height:1.36;color:var(--ink);text-wrap:pretty}
+.msg p.pop{font-style:italic;font-weight:500;color:var(--acc);font-size:calc(5.4cqmin*var(--k))}
+.r{position:absolute;border:1.5px solid var(--acc);border-radius:50%;opacity:.16;width:var(--s);height:var(--s);left:50%;top:50%;translate:-50% -50%;pointer-events:none}
+.center .in,.L3 .in{text-align:center;justify-items:center}
+.center .big{max-width:20ch}
+.cta{display:grid;gap:calc(2.4cqmin*var(--k))}
+.cta p{font-size:calc(8.2cqmin*var(--k));line-height:1.12;font-weight:600}
+.c1{color:var(--acc)}.c2{color:var(--ink)}
+.pill{margin-top:calc(3cqmin*var(--k));font-family:var(--sans);font-weight:600;font-size:calc(3.2cqmin*var(--k));letter-spacing:.16em;color:var(--acc);border:1.5px solid var(--acc);border-radius:999px;padding:calc(3cqmin*var(--k)) calc(6.5cqmin*var(--k))}
+.rule .head{display:grid;gap:calc(2.4cqmin*var(--k));align-content:center}
+.rule .small{color:var(--dim)}
+.ring-br{--s:120cqmin;left:auto;right:0;top:auto;bottom:0;translate:38% 38%;opacity:.14}
+.ring-tl{--s:90cqmin;left:0;top:0;translate:-42% -42%}
+.ring-tl2{--s:56cqmin;left:0;top:0;translate:-42% -42%;opacity:.2}
+.blk{position:absolute;width:70cqmin;height:70cqmin;right:-14cqmin;bottom:-14cqmin;background:var(--acc);opacity:.07;rotate:22deg;border-radius:4cqmin}
+.ul{display:block;width:16cqmin;height:.9cqmin;border-radius:2px;background:var(--acc);margin-top:calc(1.6cqmin*var(--k))}
+/* portrait: stack title above message */
+@media (orientation:portrait){
+ .rule .in{grid-template-columns:1fr;align-content:center}
+ .L1 .msg{border-top:1px solid color-mix(in srgb,var(--acc) 45%,transparent);padding-top:calc(5cqmin*var(--k))}
+ .L2 .in{display:flex;flex-direction:column}.L2 .head{order:0}.L2 .msg{order:1}
+ .L3 .head,.L3 .msg{justify-items:center}
+ .L1 .head,.L4 .head{justify-items:start}
+}
+/* landscape layouts */
+@media (orientation:landscape){
+ .L1 .in,.L2 .in{grid-template-columns:1fr 1fr;gap:calc(9cqmin*var(--k));align-items:center}
+ .L1 .msg{border-left:1px solid color-mix(in srgb,var(--acc) 45%,transparent);padding-left:calc(9cqmin*var(--k))}
+ .L2 .msg{order:0}.L2 .head{order:1;text-align:right;justify-items:end}
+ .L3 .in{max-width:110cqmin}
+ .L4 .in{max-width:120cqmin;justify-items:start;gap:calc(4.5cqmin*var(--k))}
+ .big{font-size:calc(14cqmin*var(--k))}
+}
+.bar{position:fixed;left:0;right:0;bottom:env(safe-area-inset-bottom,0px);height:3px;background:rgba(255,255,255,.1);z-index:5}
+.bar i{display:block;height:100%;width:0;background:var(--c,#fff);transition:width .3s ease,background-color .4s ease}
+@media (prefers-reduced-motion:reduce){.bar i{transition:none}.deck{scroll-behavior:auto}}
+.deck:focus-visible{outline:2px solid #fff;outline-offset:-4px}
+</style></head><body>
+<main class="deck" id="deck" tabindex="0" aria-label="Slide deck">
+<section class="slide center" style="--a:#21120d;--b:#4d2c1f;--acc:#f6a9bb;--ang:245deg" data-acc="#f6a9bb"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><p class="small">Welcome back to MPN</p><h1 class="big">15 Money Rules to Understand If You Want to Build Wealth</h1><p class="lead">Let's get into it.</p></div></section>
+<section class="slide rule L1" style="--a:#1a212d;--b:#394864;--acc:#ff9d3f;--ang:170deg" data-acc="#ff9d3f"><i class="r ring-br"></i><div class="in"><div class="head"><p class="small">RULE 01</p><h2>Never Underestimate Small Savings</h2></div><div class="msg"><p class="">Small amounts may look insignificant, but consistent saving can build a strong financial habit.</p></div></div></section>
+<section class="slide rule L2" style="--a:#0a1430;--b:#18305c;--acc:#e8bd52;--ang:135deg" data-acc="#e8bd52"><i class="r ring-tl"></i><i class="r ring-tl2"></i><div class="in"><div class="head"><p class="small">RULE 02</p><h2>Think Twice Before Buying</h2></div><div class="msg"><p class="pop">Before spending, ask yourself:</p><p class="">Do I need this, or do I simply want it?</p><p class="">That question can save you money.</p></div></div></section>
+<section class="slide rule L3" style="--a:#360b1a;--b:#661f35;--acc:#ff8470;--ang:160deg" data-acc="#ff8470"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><div class="head"><p class="small">RULE 03</p><h2>Track Your Expenses</h2></div><div class="msg"><p class="">Know where your money goes.</p><p class="">You can&#x27;t manage what you don&#x27;t track.</p></div></div></section>
+<section class="slide rule L4" style="--a:#06271e;--b:#0e5240;--acc:#7ff2c8;--ang:200deg" data-acc="#7ff2c8"><i class="blk"></i><div class="in"><div class="head"><p class="small">RULE 04</p><h2>Don&#x27;t Spend to Impress People</h2><b class="ul"></b></div><div class="msg"><p class="">Looking wealthy and being financially secure are different things.</p><p class="">Don&#x27;t sacrifice your finances for someone&#x27;s approval.</p></div></div></section>
+<section class="slide rule L1" style="--a:#260e38;--b:#4f2578;--acc:#cfaeff;--ang:115deg" data-acc="#cfaeff"><i class="r ring-br"></i><div class="in"><div class="head"><p class="small">RULE 05</p><h2>Don&#x27;t Ignore Budgeting</h2></div><div class="msg"><p class="">Give your income a plan.</p><p class="">Know what goes toward needs, savings, investing, and personal spending.</p></div></div></section>
+<section class="slide rule L2" style="--a:#062f37;--b:#10606c;--acc:#ecd7aa;--ang:220deg" data-acc="#ecd7aa"><i class="r ring-tl"></i><i class="r ring-tl2"></i><div class="in"><div class="head"><p class="small">RULE 06</p><h2>Learn to Negotiate</h2></div><div class="msg"><p class="">Don&#x27;t automatically accept the first price.</p><p class="">Learning to negotiate can help you make better financial decisions.</p></div></div></section>
+<section class="slide rule L3" style="--a:#17181b;--b:#33343b;--acc:#ff4f4f;--ang:150deg" data-acc="#ff4f4f"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><div class="head"><p class="small">RULE 07</p><h2>Learn the Basics of Investing</h2></div><div class="msg"><p class="">Understand risk, returns, diversification, and time before investing.</p><p class="">Don&#x27;t put money into something simply because someone promises easy profits.</p></div></div></section>
+<section class="slide rule L4" style="--a:#040a20;--b:#0c1f55;--acc:#3ddbf7;--ang:180deg" data-acc="#3ddbf7"><i class="blk"></i><div class="in"><div class="head"><p class="small">RULE 08</p><h2>Avoid Get-Rich-Quick Schemes</h2><b class="ul"></b></div><div class="msg"><p class="">If someone promises easy money with little risk, be careful.</p><p class="">Real wealth usually requires time, discipline, and good decisions.</p></div></div></section>
+<section class="slide rule L1" style="--a:#1f2409;--b:#434e17;--acc:#c9f550;--ang:125deg" data-acc="#c9f550"><i class="r ring-br"></i><div class="in"><div class="head"><p class="small">RULE 09</p><h2>Make Saving a Habit</h2></div><div class="msg"><p class="">Don&#x27;t save only when you have extra money.</p><p class="">Treat saving as part of your normal financial routine.</p></div></div></section>
+<section class="slide rule L2" style="--a:#21120d;--b:#4d2c1f;--acc:#f6a9bb;--ang:245deg" data-acc="#f6a9bb"><i class="r ring-tl"></i><i class="r ring-tl2"></i><div class="in"><div class="head"><p class="small">RULE 10</p><h2>Avoid Lifestyle Inflation</h2></div><div class="msg"><p class="">When your income increases, don&#x27;t automatically increase your spending.</p><p class="">Let some of that extra income strengthen your finances.</p></div></div></section>
+<section class="slide rule L3" style="--a:#1a212d;--b:#394864;--acc:#ff9d3f;--ang:170deg" data-acc="#ff9d3f"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><div class="head"><p class="small">RULE 11</p><h2>Know Your Needs and Wants</h2></div><div class="msg"><p class="">Needs keep your life running.</p><p class="">Wants make life more enjoyable.</p><p class="">Knowing the difference helps you control spending.</p></div></div></section>
+<section class="slide rule L4" style="--a:#0a1430;--b:#18305c;--acc:#e8bd52;--ang:135deg" data-acc="#e8bd52"><i class="blk"></i><div class="in"><div class="head"><p class="small">RULE 12</p><h2>Build an Emergency Fund</h2><b class="ul"></b></div><div class="msg"><p class="pop">Unexpected expenses happen.</p><p class="">An emergency fund can help you handle them without immediately relying on expensive debt.</p></div></div></section>
+<section class="slide rule L1" style="--a:#360b1a;--b:#661f35;--acc:#ff8470;--ang:160deg" data-acc="#ff8470"><i class="r ring-br"></i><div class="in"><div class="head"><p class="small">RULE 13</p><h2>Give Your Money a Purpose</h2></div><div class="msg"><p class="">Every part of your income should have a job.</p><p class="pop">Spend wisely.</p><p class="pop">Save consistently.</p><p class="pop">Invest carefully.</p></div></div></section>
+<section class="slide rule L2" style="--a:#06271e;--b:#0e5240;--acc:#7ff2c8;--ang:200deg" data-acc="#7ff2c8"><i class="r ring-tl"></i><i class="r ring-tl2"></i><div class="in"><div class="head"><p class="small">RULE 14</p><h2>Don&#x27;t Put Everything in One Place</h2></div><div class="msg"><p class="">Diversification can reduce the risk of depending too heavily on one investment.</p><p class="pop">Learn before you invest.</p></div></div></section>
+<section class="slide rule L3" style="--a:#260e38;--b:#4f2578;--acc:#cfaeff;--ang:115deg" data-acc="#cfaeff"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><div class="head"><p class="small">RULE 15</p><h2>Understand How Your Money Works</h2></div><div class="msg"><p class="">Learn about saving, investing, interest, inflation, debt, and risk.</p><p class="">The better you understand money, the better decisions you can make.</p></div></div></section>
+<section class="slide center closing" style="--a:#062f37;--b:#10606c;--acc:#ecd7aa;--ang:220deg" data-acc="#ecd7aa"><i class="r" style="--s:150cqmin"></i><i class="r" style="--s:105cqmin"></i><i class="r" style="--s:62cqmin"></i><div class="in"><div class="cta"><p class="c1">Save with discipline.</p><p class="c2">Spend with intention.</p><p class="c1">Invest carefully.</p><p class="c2">And keep learning.</p></div><span class="pill">FOLLOW MPN FOR MORE</span></div></section>
+</main>
+<div class="bar" aria-hidden="true"><i id="fill"></i></div>
+<script>
+(function(){
+var deck=document.getElementById('deck'),fill=document.getElementById('fill');
+var slides=[].slice.call(deck.querySelectorAll('.slide')),n=slides.length;
+function idx(){return Math.max(0,Math.min(n-1,Math.round(deck.scrollLeft/deck.clientWidth)))}
+function upd(){var i=idx();fill.style.width=((i+1)/n*100)+'%';fill.style.setProperty('--c',slides[i].dataset.acc);fill.style.background=slides[i].dataset.acc}
+function go(d){deck.scrollTo({left:(idx()+d)*deck.clientWidth,behavior:'smooth'})}
+deck.addEventListener('scroll',upd,{passive:true});
+window.addEventListener('keydown',function(e){
+ if(e.key==='ArrowRight'||e.key==='PageDown'){e.preventDefault();go(1)}
+ else if(e.key==='ArrowLeft'||e.key==='PageUp'){e.preventDefault();go(-1)}
+ else if(e.key==='Home'){deck.scrollTo({left:0,behavior:'smooth'})}
+ else if(e.key==='End'){deck.scrollTo({left:n*deck.clientWidth,behavior:'smooth'})}
+});
+function fit(){slides.forEach(function(s){var k=1;s.style.setProperty('--k',1);
+ var inn=s.querySelector('.in');
+ for(var t=0;t<14&&inn.offsetHeight>s.clientHeight-parseFloat(getComputedStyle(s).paddingTop)-parseFloat(getComputedStyle(s).paddingBottom)+1;t++){k-=0.06;s.style.setProperty('--k',k.toFixed(2))}
+})}
+function init(){fit();upd()}
+window.addEventListener('resize',function(){fit();upd()});
+if(document.fonts&&document.fonts.ready)document.fonts.ready.then(init);
+init();deck.focus({preventScroll:true});
+})();
+</script></body></html>
