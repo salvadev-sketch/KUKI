@@ -32,4 +32,14 @@ Cabinet yari igizwe n'abashikiranganji 15 b'Abahutu, 7 b'Abatutsi — Kinigi ayi
 
 Yashize imbere: kusangira ubutegetsi, iterambere ry'ubutunzi, no kugabanya amacakubiri.
 
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia, Britannica, na Grokipedia (ishingiye kuri Akyeampong & Gates, *Dictionary of African Biography*, na Sheldon, *Historical Dictionary of Women in Sub-Saharan Africa*, 2005) bemeza: ivuko (Mugoyi; itariki itandukana gato hagati y'amasoko — Wikipedia ivuga 24 Munyonyo 1953, Britannica ivuga hafi 1952), ishure muri Université du Burundi, akazi muri Banque de la République du Burundi, umwanya w'umujyanama w'ubutunzi kuva 1991, n'itariki yagizwe Umushikiranganji (10 Nyakanga 1993).
+
+Igitigiri cy'abashikiranganji b'Abahutu/Abatutsi (15/7) sinakironderera isoko ryigenga ku giti caco.
+
+---
+
 **MON PAYS NATAL — SEASON 9 — EP06 — PONTIEN KARIBWAMI: INTANGO NA FRODEBU**, ni ho tuzomumenya.

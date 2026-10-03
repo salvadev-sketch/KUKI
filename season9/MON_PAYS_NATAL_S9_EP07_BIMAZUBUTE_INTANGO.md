@@ -43,3 +43,13 @@ Mu 1993, atorwa aba Umushingamateka, hanyuma **Icegera c'Umukuru w'Inama Nshinga
 [FR-CITATION] 🟡 Yaga-Burundi na Wikipedia ("1993 Burundian coup attempt") bemeza ko Bimazubute yari Icegera c'Umukuru w'Inama Nshingamateka, kandi ko urupfu rwiwe hamwe na Karibwami rwakuyeho uburyo bwemewe n'itegeko nshinga bwo gusimbura Ndadaye. Amakuru arambuye ku ntango ze (UCJAB 1959, JNR 1961, Radio Burundi 1962) ntitwabashije kuyemeza ku soko ryo kuri internet ryizewe cane — ni ivyavuye mu nyandiko ya mbere, bikeneye kongera kwemezwa.
 
 **MON PAYS NATAL — SEASON 9 — EP08 — JEAN BIKOMAGU: INTANGO N'UKUZAMUKA**, ni ho tuzomumenya.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Gilles Bimazubute," ishingiye kuri Lemarchand 1970 na Weinstein 1976) yemeza itariki n'ahantu (1934, Ijenda — isoko rikomeye ritanga iyi tariki, naho irya "1937, Mugano" riva ku muhungu wiwe, Adélard, nk'uko bivugwa), UCJAB (1959), guhindura izina kuba JNR (1961), umurimo wa radio (1962), na Ligue Iteka (Gashuantwo 1991, umwe mu bashinze cumi na babiri).
+
+*Umuce w'ingenzi ku bizoza: Wikipedia ivuga ko mu gitondo co ku wa 21 Ukwakira 1993, naho yari Umututsi, Bimazubute yabonywe nk'"umugambanyi" n'abakoze coup kubera ko yashigikiye ubutegetsi bw'abenshi — kandi ko yarashize ku mutima kwambara ikositimu yose n'ingofero imbere y'uko abasirikare bamutwara. Iyi nsobanuro ikwiye kugaragara muri episode ivuga ku rupfu rwiwe.*
+
+---
