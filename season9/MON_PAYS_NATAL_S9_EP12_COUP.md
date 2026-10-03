@@ -26,7 +26,11 @@ Bamwe mu bategetsi bari hafi yiwe na bo barishwe uwo musi nyene:
 
 **Gilles Bimazubute**, Icegera ciwe.
 
+**Juvénal Ndayikeza**, Minisitiri w'Imbere mu Gihugu.
+
 **Richard Ndikumwami**, umuyobozi w'urwego rw'iperereza.
+
+[FR-CITATION] 🟢 Wikipedia ("1993 Burundian coup d'état attempt") itanga urwo rutonde rwuzuye, yongeraho ko Bimazubute ari we Mututsi wenyene yishwe muri ico gikorwa — ibindi byose ari Abahutu. Raporo ya Reuter/Le Soir (14 Myandagaro 1994, ishingiye ku nyandiko ya ONU yamanuwe) ivuga ko iyicwa rya Ndadaye ryari ryarateguwe imbere, rikaba ryarayoborwa n'abasirikare bakuru cane.
 
 ---
 

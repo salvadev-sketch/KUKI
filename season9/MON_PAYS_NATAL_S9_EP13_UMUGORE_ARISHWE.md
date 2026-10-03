@@ -14,6 +14,8 @@ Ariko hari ikintu kibabaje cane mu buzima bwiwe, muri iryo joro:
 
 **Umugore wiwe wa mbere, Eusébie Nshimirimana, yarishwe n'abasirikare, igihe yariko aragerageza kwinyegeza.**
 
+[FR-CITATION] 🟢 Wikipedia ("Sylvestre Ntibantunganya") yemeza izina rya Eusébie Nshimirimana n'uko yishwe n'abasirikare mu gihe yagerageza kwihisha ahandi, mu gihe umwana wabo w'uruhinja yarokotse.
+
 Umwana wabo yararokotse.
 
 ---

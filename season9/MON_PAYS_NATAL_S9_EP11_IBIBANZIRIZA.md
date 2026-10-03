@@ -20,6 +20,8 @@ Kuri uwo musi nyene, Minisitiri w'Ingabo Charles Ntakije yaramenyeshejwe n'umuku
 
 Ni ukuvuga: imisi itatu gusa imbere y'uko ico gikorwa kiba, hari abategetsi bari bamaze kumenya ko hari ikibazo gikomeye kiriko kirategurwa.
 
+[FR-CITATION] 🟢 Raporo nyayo ya International Commission of Inquiry for Burundi (1996, usip.org) yemeza urutonde rw'ibihe: ku wa 18 Gitugutu, Ndadaye yagarutse avuye i Mauritius; ku wa 19 Gitugutu, Minisitiri w'Ingabo yamumenyesheje ko igikorwa co gutembagaza ubutegetsi cariko kiregeranye.
+
 Ntitwovuga ko ata kintu na kimwe cakozwe kugira ngo ico kibazo gihagarikwe — nta gihamya dufise ku vyakozwe muri iyo misi itatu ya nyuma.
 
 **MON PAYS NATAL — SEASON 9 — EP12 — 20–21 GITUGUTU 1993 — IGIKORWA CO GUTEMBAGAZA UBUTEGETSI**, ni ho tuzobibona.
