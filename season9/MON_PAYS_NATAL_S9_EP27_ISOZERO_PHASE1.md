@@ -8,6 +8,8 @@ Si kuba yarabaye Perezida honyene kimutuma ari intwari. Ni uko yatsinze amatora 
 
 ---
 
+[FR-CITATION] 🟢 Leta y'Uburundi imwita "Héros de la démocratie" — ni izina rikoreshwa ku mugaragaro kugeza n'uyu munsi, nk'uko umunsi mukuru wa "President Ndadaye's Day" uhimbazwa ku wa 21 Gitugutu buri mwaka ubivuga.
+
 Iyicwa rya Ndadaye ntiryasibye igitekerezo c'amatora.
 
 Mu myaka yakurikiye, amatora n'ibiganiro vya politike vyaguma ari igice c'ingenzi c'ugushaka kurondera inyishu y'ikibazo c'Uburundi — kugeza ku Masezerano ya Arusha yo mu 2000.
