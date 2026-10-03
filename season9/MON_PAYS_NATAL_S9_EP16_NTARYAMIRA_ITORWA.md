@@ -22,6 +22,8 @@ Ku wa **5 Ruhuhuma 1994**, Ntaryamira yararahiye.
 
 Mu jambo ryiwe, yashize imbere **ubumwe bw'igihugu n'amahoro.**
 
+[FR-CITATION] 🟢 Wikipedia ("Cyprien Ntaryamira") yemeza ko Inama Nshingamateka yamutoye ku wa 13 Nzero 1994, arahira ku wa 5 Ruhuhuma 1994.
+
 Uburundi cari kimaze gutakaza Perezida umwe, cari kimaze kubona ubwicanyi bwinshi, kandi cari gifise ukutumvikana hagati y'amashirahamwe ya politike.
 
 **MON PAYS NATAL — SEASON 9 — EP17 — NTARYAMIRA: LETA Y'UBUMWE**, ni ho tuzoraba ico yagerageje gukora, mu gihe gito yari afise.

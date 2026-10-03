@@ -8,6 +8,8 @@ Bombi barapfuye.
 
 Abantu bose bari muri iyo ndege barapfuye — harimwo n'abandi Barundi babiri: **Bernard Ciza**, Umushikiranganji w'Uburongozi bw'Iterambere n'Ubwubatsi, na **Cyriaque Simbizi**, Umushikiranganji w'Amakuru.
 
+[FR-CITATION] 🟢 Wikipedia ("Assassination of Juvénal Habyarimana and Cyprien Ntaryamira") yemeza urutonde rw'abapfuye bose, harimwo Ciza na Simbizi, n'uko iyo ndege yarashwe n'ibisasu vyaturutse hasi, ibisanzwe biterwa amakenga ku RPF canke ku bakoze coup ya Habyarimana, ariko ata cemezo ca ngombwa kitarageragwa.
+
 ---
 
 ONU ivuga ko indege yarashwe n'ibisasu vyaturutse hasi, ariko ko abatwaye ico gikorwa batigeze bamenyekana neza muri raporo, kandi ko iperereza ryuzuye ku gituma indege yahanutse ritashobotse.

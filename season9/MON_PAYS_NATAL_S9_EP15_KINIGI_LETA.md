@@ -28,6 +28,8 @@ Ku wa **13 Nzero 1994**, Inama Nshingamateka yarahinduye ingingo y'Itegeko Nshin
 
 Ku wa **5 Ruhuhuma 1994**, Ntaryamira ararahira, Kinigi ava ku mwanya wiwe wa Umushikiranganji wa mbere.
 
+[FR-CITATION] 🟢 Wikipedia ("Sylvie Kinigi," "Cyprien Ntaryamira," "1993 Burundian coup attempt") yemeza iryo tandukaniro ryose: ukwihisha mu ma-ambassade, ihiganwa ry'ingabo mpuzamakungu zidashoboka, isabwa rya Commission internationale d'enquête, n'itariki ebyiri za nyuma (13 Nzero itora, 5 Ruhuhuma kurahira).
+
 **MON PAYS NATAL — SEASON 9 — EP16 — NTARYAMIRA: ITORWA**, ni ho tuzobibona.
 
 ---
