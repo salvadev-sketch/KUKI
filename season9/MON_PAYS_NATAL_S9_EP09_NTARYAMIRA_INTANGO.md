@@ -14,6 +14,8 @@ Yari umwe mu **batangije Sahwanya-FRODEBU**, kandi yari afitaniye ubucuti bwa ha
 
 Inyuma y'amatora ya Ruheshi 1993, yahawe **Ubushikiranganji bw'Uburimyi n'Ubworozi.**
 
+[FR-CITATION] 🟢 Wikipedia ("Cyprien Ntaryamira") yemeza ko yari umwe mu bashinze FRODEBU mu 1986, kandi ko yagenywe ku wa 10 Mukakaro 1993 kuba Minisitiri w'Uburimyi n'Ubworozi, munsi ya Kinigi.
+
 ---
 
 Ntiyashatse ko umurimo wiwe ugarukire kuri politike gusa.

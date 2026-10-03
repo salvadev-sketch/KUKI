@@ -1,6 +1,8 @@
 # MON PAYS NATAL — SEASON 9 — EP10 — SYLVESTRE NTIBANTUNGANYA: URUGENDO RURERURE
 
-Sylvestre Ntibantunganya yavutse ku wa **8 Rusama 1956**, i Nyamutobo, Nyabiraba, intara ya Gitega.
+Sylvestre Ntibantunganya yavutse ku wa **8 Rusama 1956**, i Nyamutobo.
+
+[FR-CITATION] 🟡 Wikipedia ("Sylvestre Ntibantunganya") yemeza itariki (8 Rusama 1956) ariko ivuga ko ikibanza ari komine Gishubi, intara ya Gitega — atari Nyabiraba nk'uko episode ivuga. Twasize "Nyamutobo" (umusozi) kuko ata soko ryawuvuguruza, ariko twasize ikimenyetso 🟡 ku bijanye n'izina ry'akomine.
 
 Igihe yari umusore, yigeze kwiyumvira kuba umupadiri — ni co catumye aja muri **Petit Séminaire de Mugera**.
 
@@ -35,5 +37,7 @@ Ntitwovuga ngo ivyo ari ukwiyunga ata nsobanuro — ivyo bishobora kuba biratwer
 Ku wa **29 Ruheshi 1993**, atorwa aba umushingamateka wa FRODEBU i Gitega.
 
 Ku wa **10 Mukakaro 1993**, agenwa kuba **Umushikiranganji w'Imigenderanire n'Amahanga**, muri Leta ya Ndadaye.
+
+[FR-CITATION] 🟢 Wikipedia ("Sylvestre Ntibantunganya") yemeza ko yatorewe mu Nama Nshingamateka inyuma y'intsinzi ya FRODEBU muri Mukakaro 1993, kandi ko yagenywe Minisitiri w'Imigenderanire n'Amahanga ku wa 10 Mukakaro, akorera munsi ya Kinigi.
 
 **MON PAYS NATAL — SEASON 9 — EP11 — IBIBANZIRIZA Y'IGIKORWA CO GUTEMBAGAZA UBUTEGETSI**, ni ho tuzoraba iminsi imbere y'ubwicanyi.

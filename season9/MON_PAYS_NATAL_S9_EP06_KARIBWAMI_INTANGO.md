@@ -16,6 +16,8 @@ Ku wa **29 Ruheshi 1993**, ariko amatora y'Abashingamateka:
 
 **UPRONA — imyanya 16 kuri 81.**
 
+[FR-CITATION] 🟢 Wikipedia ("1993 Burundian parliamentary election") na IPU (Inter-Parliamentary Union, archive.ipu.org) bemeza itariki (29 Ruheshi 1993) n'imyanya (FRODEBU 65, UPRONA 16, ku myanya 81 yose).
+
 ---
 
 Inama Nshingamateka nshasha yatoye **Pontien Karibwami** kuba **Umukuru wayo**, **Gilles Bimazubute** aba **Icegera ciwe.**

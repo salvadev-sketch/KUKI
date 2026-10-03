@@ -40,4 +40,6 @@ Kandi **Commission internationale d'enquête ntiyamushize ku rutonde rw'abemejwe
 
 Ntitwovuga "Bikomagu ni we yategetse iyicwa rya Ndadaye." Tuvuga: **yari umwe mu basirikare bakuru bakekwako uruhara, ariko yarabihakanye, kandi Commission mpuzamakungu ntiyamuhamije.**
 
+[FR-CITATION] 🟢 Human Rights Watch ("Burundi: A Rwanda-style genocide in the making"?) na Wikipedia ("1993 Burundian coup d'état attempt," "Jean Bikomagu") bemeza iyi migani yose: urwego rwa Bikomagu (Chef d'État-Major), ubuhamya bwa Rukindikiza, uko yabihakanye kuri radio, n'uko Commission internationale d'enquête itamuhamije.
+
 **MON PAYS NATAL — SEASON 9 — EP09 — CYPRIEN NTARYAMIRA: INTANGO**, ni ho tuzomumenya.

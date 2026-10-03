@@ -1,6 +1,8 @@
 # MON PAYS NATAL — SEASON 9 — EP05 — SYLVIE KINIGI: INTANGO NA PREMIER MINISTRE
 
-Yavutse **Sylvie Ntigashira**, hafi 1952/1953, i Mugoyi.
+Yavutse **Sylvie Ntigashira**, ku wa 24 Munyonyo 1953, i Mugoyi, intara ya Bujumbura Rural.
+
+[FR-CITATION] 🟢 Wikipedia ("Sylvie Kinigi") yemeza itariki (24 Munyonyo 1953) n'ikibanza (Mugoyi, Bujumbura Rural).
 
 Se yari umudandaza, nyina akora uburimyi.
 
@@ -25,6 +27,8 @@ Yahisemwo **Sylvie Kinigi**, Umututsikazi wo muri UPRONA, kugira abe Umushikiran
 ---
 
 Cabinet yari igizwe n'abashikiranganji 15 b'Abahutu, 7 b'Abatutsi — Kinigi ayirongoye.
+
+[FR-CITATION] 🟢 Wikipedia ("Sylvie Kinigi," "Melchior Ndadaye") yemeza ko yagenywe ku wa 10 Mukakaro 1993, asimbura Adrien Sibomana, akaba Minisitiri w'Intara wa mbere w'umugore mu mateka y'Uburundi.
 
 Yashize imbere: kusangira ubutegetsi, iterambere ry'ubutunzi, no kugabanya amacakubiri.
 

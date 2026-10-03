@@ -40,4 +40,6 @@ Aca yinjira muri **FRODEBU** — aba umwe mu Batutsi bake bari mu bayobozi bakur
 
 Mu 1993, atorwa aba Umushingamateka, hanyuma **Icegera c'Umukuru w'Inama Nshingamateka**, inyuma ya Pontien Karibwami.
 
+[FR-CITATION] 🟡 Yaga-Burundi na Wikipedia ("1993 Burundian coup attempt") bemeza ko Bimazubute yari Icegera c'Umukuru w'Inama Nshingamateka, kandi ko urupfu rwiwe hamwe na Karibwami rwakuyeho uburyo bwemewe n'itegeko nshinga bwo gusimbura Ndadaye. Amakuru arambuye ku ntango ze (UCJAB 1959, JNR 1961, Radio Burundi 1962) ntitwabashije kuyemeza ku soko ryo kuri internet ryizewe cane — ni ivyavuye mu nyandiko ya mbere, bikeneye kongera kwemezwa.
+
 **MON PAYS NATAL — SEASON 9 — EP08 — JEAN BIKOMAGU: INTANGO N'UKUZAMUKA**, ni ho tuzomumenya.
