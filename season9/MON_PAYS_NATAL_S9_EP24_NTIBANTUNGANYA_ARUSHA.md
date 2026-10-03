@@ -10,6 +10,8 @@ Mu **1997**, ONU yavuze ko Ntibantunganya, hamwe n'uwahoze ari Perezida Jean-Bap
 
 Ikintu gihambaye cane ku murage wiwe: yari ahari mu gihe c'**Amasezerano y'Amahoro n'Uwiyunge ya Arusha yo mu 2000**, uwo twize muri Season 8 EP13-14.
 
+[FR-CITATION] 🟢 Wikipedia ("Arusha Accords (Burundi)") ivuga ko "The Arusha Peace and Reconciliation Agreement... was a transitional peace treaty signed on 28 August 2000 in Arusha, Tanzania."
+
 Inyandiko yemewe y'amasezerano imushira ku rutonde rw'abahoze ari ba Perezida b'Uburundi bari bitavye uwo muhango.
 
 ---
