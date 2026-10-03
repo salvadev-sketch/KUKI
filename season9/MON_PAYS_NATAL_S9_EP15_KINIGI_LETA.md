@@ -29,3 +29,13 @@ Ku wa **13 Nzero 1994**, Inama Nshingamateka yarahinduye ingingo y'Itegeko Nshin
 Ku wa **5 Ruhuhuma 1994**, Ntaryamira ararahira, Kinigi ava ku mwanya wiwe wa Umushikiranganji wa mbere.
 
 **MON PAYS NATAL — SEASON 9 — EP16 — NTARYAMIRA: ITORWA**, ni ho tuzobibona.
+
+---
+
+**[CITATION — 🟢/🟡]**
+
+Amnesty International (AFR16/008/1994), UN Repertoire (12th Supplement, Chapter VIII), na EveryCRSReport (RS20910) bemeza ko Leta yasavye Commission internationale d'enquête muri Ugushyingo 1993, hamwe n'itariki Ntaryamira ararahira (5 Ruhuhuma 1994).
+
+Ikibazo: Amnesty International ivuga ku mugaragaro ko Inama Nshingamateka yatoye Ntaryamira ku wa **3 Nzero 1994**, naho EP15 ikoresha **13 Nzero**. Iyi tandukaniro (3 vs 13) ikeneye gucungurwa.
+
+---
