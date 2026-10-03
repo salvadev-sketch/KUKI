@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP27 — ISOZERO — IHEREZO RYA PHASE 1
 
-Melchior Ndadaye yamaze ku butegetsi iminsi 112 gusa.
+Melchior Ndadaye yamaze ku butegetsi iminsi 112 gusa. 🔴 *(Nk'uko twabivuze muri EP04, ivyo twabonye bisa n'ukwerekana iminsi ~103, atari 112 — iki gikeneye gusuzumwa.)*
 
 Ariko uyu musi, Leta y'Uburundi imwita **"Héros de la démocratie"** — Intwari ya Demokarasi.
 
