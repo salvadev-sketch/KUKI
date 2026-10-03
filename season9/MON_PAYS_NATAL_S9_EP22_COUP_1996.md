@@ -2,15 +2,21 @@
 
 Ku wa **20 Mukakaro 1996**, abarwanyi barishe abantu barenga 300, ahanini abagore n'abana b'Abatutsi, mu kigo c'abavuye mu vyabo i **Bugendana.**
 
+[FR-CITATION] 🟢 Inama Nkenguzamateka y'Umuryango w'Abibumbye (UN Security Council, S/1996/591, 23 Nyakanga 1996) yagize iti: « more than 300 women, children and elderly men were [killed] » i Bugendana — bihuza n'imibare EP22 ivuga.
+
 ---
 
 Ku wa **23 Mukakaro 1996**, Sylvestre Ntibantunganya yagiye kwihisha mu rugo rw'Ambasaderi wa Amerika i Bujumbura, kubera ko yari atinya ko ashobora kwicwa canke gukurwa ku butegetsi.
+
+[FR-CITATION] 🟢 Wikipedia ("1996 Burundian coup d'état") ivuga ko "On 23 July, President Ntibantunganya went into hiding at the home of the US ambassador" — bihuza neza n'itariki EP22 ivuga.
 
 Iki cari ikimenyetso gikomeye c'uko ubutegetsi bwiwe bwari busigaye butagifise ubushobozi bukomeye bwo kugenzura igihugu.
 
 ---
 
 Ku wa **25 Mukakaro 1996**, nk'uko twize muri Season 8, igisirikare carafashe ubutegetsi, **Pierre Buyoya** ashizwe imbere nk'umukuru w'igihugu w'inzibacyuho.
+
+[FR-CITATION] 🟢 Wikipedia ("1996 Burundian coup d'état") ivuga ko "The army took power on 25 July, a move announced over the radio by Defense Minister Firmin Sinzoyiheba" — bihuza neza n'itariki EP22 ivuga.
 
 Ntibantunganya yarakuwe ku butegetsi, atari kuraswa canke gufungwa.
 
