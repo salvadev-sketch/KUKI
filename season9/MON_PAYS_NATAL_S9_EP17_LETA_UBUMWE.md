@@ -23,3 +23,11 @@ Yari asubira i Bujumbura, ari mu ndege ya Perezida w'u Rwanda, **Juvénal Habyar
 [FR-CITATION] 🟢 Wikipedia ("Cyprien Ntaryamira," "Assassination of Juvénal Habyarimana and Cyprien Ntaryamira") yemeza itariki (6 Ndamukiza 1994), inama ya Dar es Salaam, n'uko Ntaryamira yari mu ndege ya Habyarimana.
 
 **MON PAYS NATAL — SEASON 9 — EP18 — 6 NDAMUKIZA 1994 — URUPFU RWA NTARYAMIRA**, ni ho tuzobibona.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia ("Assassination of Juvénal Habyarimana and Cyprien Ntaryamira") yemeza itariki (6 Ndamukiza 1994), inama ya Dar es Salaam, n'uko yari mu ndege ya Habyarimana.
+
+---

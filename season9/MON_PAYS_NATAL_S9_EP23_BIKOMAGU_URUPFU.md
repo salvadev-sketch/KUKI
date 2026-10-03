@@ -20,6 +20,8 @@ Yagize uruhara mu nzego z'inzibacyuho, hanyuma akora muri **SOCABU** (ishirahamw
 
 Ku wa **15 Myandagaro 2015**, **Jean Bikomagu yarishwe mu gitero c'abantu bitwaje ibirwanisho, i Bujumbura.**
 
+[FR-CITATION] 🟢 African Union (itangazo ryo ku wa 16 Myandagaro 2015) ryagize iti: « assassination of Colonel... Jean Bikomagu... on 15 August 2015 » — bihuza neza n'itariki EP23 ivuga.
+
 Urupfu rwiwe rwabaye mu yindi krize ikomeye ya politike yari yatanguye muri uwo mwaka — ijanye n'igihe Perezida Pierre Nkurunziza yashakaga manda ya gatatu.
 
 ---

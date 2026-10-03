@@ -8,6 +8,8 @@ Kinigi yakoranye n'uwuserukira ONU mu Burundi, Ahmedou Ould-Abdallah, mu kuronde
 
 Ku wa **5 Ruhuhuma 1994**, Ntaryamira ararahira. Kinigi ntiyagerageje kuguma ku butegetsi — yararetse ububasha, **Anatole Kanyenkiko** amusubirira.
 
+[FR-CITATION] 🟢 Discours présidentiels (Université d'Anvers, archive) ivuga ko "Cyprien Ntaryamira prête serment" ku wa "5 février 1994" inyuma yo gutorwa n'Inteko ku wa 13 Nzero 1994 — bihuza neza n'itariki EP26 ivuga.
+
 ---
 
 Inyuma yo kuva muri politike, Kinigi yasubiye mu gisata yari asanzwe azi neza: **ubutunzi n'imari**, akorera muri Banque Centrale du Burundi, hanyuma muri Banque Commerciale.

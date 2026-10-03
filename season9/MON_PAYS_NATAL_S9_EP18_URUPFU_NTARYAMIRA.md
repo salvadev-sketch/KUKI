@@ -31,3 +31,11 @@ Ku Burundi ubwabwo, urupfu rwa Ntaryamira rwaciye rusiga igihugu kidafise Perezi
 Uburundi ntibwari bugishoboye kubandanya nk'uko vyari bisanzwe.
 
 **MON PAYS NATAL — SEASON 9 — EP19 — NTIBANTUNGANYA: ABA PEREZIDA**, ni ho tuzoraba icakurikiye.
+
+---
+
+**[CITATION — 🟢]**
+
+Wikipedia (inyandiko zihariye: "Assassination of Juvénal Habyarimana and Cyprien Ntaryamira," "Bernard Ciza," "Cyriaque Simbizi") byemeza amazina y'abashikiranganji babiri bapfuye, n'uko nta cemezo cuzuye kiri ku bavuzwe ko barashe indege — ubwitonzi bwa EP18 buhuye n'uko impaka ziri.
+
+---

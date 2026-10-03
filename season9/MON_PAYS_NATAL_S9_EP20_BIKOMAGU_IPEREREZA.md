@@ -33,3 +33,11 @@ Ntitwovuga "urukiko rwaramwehereye." Tuvuga: **urukiko rwamurekuye kubera kubura
 Ntitwovuga na ngo yari "umutima mweru rwose" — ni ikintu urukiko ntacyavuze.
 
 **MON PAYS NATAL — SEASON 9 — EP21 — NTIBANTUNGANYA: INTAMBARA 1994–96**, ni ho tuzobandanya.
+
+---
+
+**[CITATION — 🟢]**
+
+IRIN/UN OCHA (17 Gitugutu 1999) na SOS Torture Burundi (biciye kuri Cour Suprême, Affaire R.P.S. 38, icemezo co ku wa 14 Gicurasi 1999) byemeza igitigiri (79 baciriwe, 38 barekuwe) n'amazina (Bikomagu, Charles Ntakije — uwahoze ari Umushikiranganji w'Ingabo — na Isaie Nibizi).
+
+---

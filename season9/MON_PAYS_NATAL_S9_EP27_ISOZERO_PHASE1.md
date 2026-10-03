@@ -1,12 +1,14 @@
 # MON PAYS NATAL — SEASON 9 — EP27 — ISOZERO — IHEREZO RYA PHASE 1
 
-Melchior Ndadaye yamaze ku butegetsi iminsi 112 gusa.
+Melchior Ndadaye yamaze ku butegetsi iminsi 112 gusa. 🔴 *(Nk'uko twabivuze muri EP04, ivyo twabonye bisa n'ukwerekana iminsi ~103, atari 112 — iki gikeneye gusuzumwa.)*
 
 Ariko uyu musi, Leta y'Uburundi imwita **"Héros de la démocratie"** — Intwari ya Demokarasi.
 
 Si kuba yarabaye Perezida honyene kimutuma ari intwari. Ni uko yatsinze amatora yo mu 1993, mu gihe Uburundi bwari buvuye mu gihe kirekire c'ubutegetsi bwiganjemwo igisirikare — twize iryo gendo ryose, kuva Season 6 gushika Season 8.
 
 ---
+
+[FR-CITATION] 🟢 Leta y'Uburundi imwita "Héros de la démocratie" — ni izina rikoreshwa ku mugaragaro kugeza n'uyu munsi, nk'uko umunsi mukuru wa "President Ndadaye's Day" uhimbazwa ku wa 21 Gitugutu buri mwaka ubivuga.
 
 Iyicwa rya Ndadaye ntiryasibye igitekerezo c'amatora.
 

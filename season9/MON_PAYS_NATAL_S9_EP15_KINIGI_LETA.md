@@ -31,3 +31,13 @@ Ku wa **5 Ruhuhuma 1994**, Ntaryamira ararahira, Kinigi ava ku mwanya wiwe wa Um
 [FR-CITATION] 🟢 Wikipedia ("Sylvie Kinigi," "Cyprien Ntaryamira," "1993 Burundian coup attempt") yemeza iryo tandukaniro ryose: ukwihisha mu ma-ambassade, ihiganwa ry'ingabo mpuzamakungu zidashoboka, isabwa rya Commission internationale d'enquête, n'itariki ebyiri za nyuma (13 Nzero itora, 5 Ruhuhuma kurahira).
 
 **MON PAYS NATAL — SEASON 9 — EP16 — NTARYAMIRA: ITORWA**, ni ho tuzobibona.
+
+---
+
+**[CITATION — 🟢/🟡]**
+
+Amnesty International (AFR16/008/1994), UN Repertoire (12th Supplement, Chapter VIII), na EveryCRSReport (RS20910) bemeza ko Leta yasavye Commission internationale d'enquête muri Ugushyingo 1993, hamwe n'itariki Ntaryamira ararahira (5 Ruhuhuma 1994).
+
+*(Icyitonderwa canje ca mbere ku bijanye n'itariki 3 vs 13 Nzero cariyongeye: Universalis (inshuro nyinshi) na Antwerp University (archive y'amajambo ya Ba Perezida) byemeza 13 Nzero 1994 — EP15 ni yo nyakuri.)*
+
+---

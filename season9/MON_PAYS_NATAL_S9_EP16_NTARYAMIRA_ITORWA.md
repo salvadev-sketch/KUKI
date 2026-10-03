@@ -27,3 +27,11 @@ Mu jambo ryiwe, yashize imbere **ubumwe bw'igihugu n'amahoro.**
 Uburundi cari kimaze gutakaza Perezida umwe, cari kimaze kubona ubwicanyi bwinshi, kandi cari gifise ukutumvikana hagati y'amashirahamwe ya politike.
 
 **MON PAYS NATAL — SEASON 9 — EP17 — NTARYAMIRA: LETA Y'UBUMWE**, ni ho tuzoraba ico yagerageje gukora, mu gihe gito yari afise.
+
+---
+
+**[CITATION — 🟢]**
+
+Universalis (inyandiko nyinshi) na Antwerp University (DPP-Burundi, archive y'amajambo ya Ba Perezida) byemeza ku mugaragaro itariki (13 Nzero 1994) Inama Nshingamateka yatoye Ntaryamira, n'itariki yararahiye (5 Ruhuhuma 1994). Wikipedia ("1993 Burundian coup attempt") yemeza ko Urukiko rw'Igihugu (Constitutional Court) rwabanje kuziba inzira, imbere yuko hashikwa ku bwumvikane.
+
+---
