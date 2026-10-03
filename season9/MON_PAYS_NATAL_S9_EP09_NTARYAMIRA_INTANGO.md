@@ -6,7 +6,9 @@ Yari **umuhinga mu burimyi (agronomie).**
 
 ---
 
-Amakuru arambuye ku bwana bwiwe n'amashure ni make. Ico dushobora kuvuga ku bwizewe ni uko yari amaze imyaka yakorera iterambere ry'ivyaro n'uburimyi, imbere y'uko yinjira muri politike y'ingenzi.
+Yavutse ku wa **6 Ntwarante 1955**, i Mageyo, intara ya Bujumbura Rural. Mu 1972, inyuma y'ubwicanyi bwa Leta bwibasiye Abahutu (twize muri Season 6), yahungiye mu Rwanda, aho yarangije amashure, arangiza impamyabumenyi y'uburimyi ku Kaminuza Nkuru y'u Rwanda mu 1982.
+
+[FR-CITATION] 🟢 Wikipedia ("Cyprien Ntaryamira") na Reuter (biciye kuri francegenocidetutsi.org) bemeza itariki y'amavuko (6 Ntwarante 1955), ikibanza (Mageyo), ubuhunzi bwiwe mu Rwanda bwo mu 1972, n'impamyabumenyi y'uburimyi yaronse mu 1982.
 
 ---
 
@@ -29,13 +31,3 @@ Muri Leta ya Ndadaye, yari umwe mu bagabo bakomeye.
 Ariko urupfu rwa Ndadaye, ku wa 21 Gitugutu 1993, rwahindutse rushira igihugu mu kibazo gikomeye — kandi izina rya Ntaryamira ryatanguye kuba iry'ingenzi cane, mu buryo atari yiteze.
 
 **MON PAYS NATAL — SEASON 9 — EP10 — SYLVESTRE NTIBANTUNGANYA: URUGENDO RURERURE**, ni ho tuzomumenya.
-
----
-
-**[CITATION — 🟢]**
-
-Wikipedia ("Cyprien Ntaryamira"), Reuter (francegenocidetutsi.org fiche 12927), na Academickids byemeza ivuko (6 Ntwarante 1955, Mageyo, Bujumbura Rural), umwuga w'uburimyi, FRODEBU (1986), na Minisiteri y'Uburimyi (10 Nyakanga 1993).
-
-*Umuce w'inyongera: amasoko avuga ko yahunze mu Rwanda mu 1972 (inyuma y'igometero ry'Abahutu), yiga ku Kaminuza Nkuru y'u Rwanda, arangiza impamyabumenyi y'uburimyi mu 1982 — amakuru arambuye kuruta uko EP09 ibivuga.*
-
----

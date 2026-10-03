@@ -40,14 +40,6 @@ Raporo nyayo ya Commission internationale d'enquête (yasohotse 1996) ntiyatanze
 
 Ntitwovuga "Bikomagu ni we yategetse iyicwa rya Ndadaye" — ntawushobora kubivuga n'ikizere cuzuye. Ariko ntitwovuga na none ngo raporo ntacyo ivuze kuri we: itariyemeza ku mugaragaro nk'uwateguye, ariko yagaragaje ibikorwa byiwe nk'ibikomeye cane mu minsi yabaye, ku buryo Mail & Guardian yabyise **"particularly damning."**
 
-[FR-CITATION] 🟢 Human Rights Watch ("Burundi: A Rwanda-style genocide in the making"?) na Wikipedia ("1993 Burundian coup d'état attempt," "Jean Bikomagu") bemeza iyi migani yose: urwego rwa Bikomagu (Chef d'État-Major), ubuhamya bwa Rukindikiza, uko yabihakanye kuri radio, n'uko Commission internationale d'enquête itamuhamije.
+[FR-CITATION] 🟢 Wikipedia ("1993 Burundian coup d'état attempt," "Jean Bikomagu") bemeza urwego rwa Bikomagu (Chef d'État-Major), ubuhamya bwa Rukindikiza, n'uko yabihakanye kuri radio.
 
 **MON PAYS NATAL — SEASON 9 — EP09 — CYPRIEN NTARYAMIRA: INTANGO**, ni ho tuzomumenya.
-
----
-
-**[CITATION — 🟢]**
-
-Raporo nyayo ya International Commission of Inquiry for Burundi (1996, iboneka kuri usip.org), AP (biciye kuri ReliefWeb), Mail & Guardian (16 Myandagaro 1996), na Reuter (biciye kuri ReliefWeb, 14 Myandagaro 1996) byemeza ibintu by'ingenzi: ISCAM promotion 8, umwanya wa commandant Cibitoke (1992), umwanya wa Chief of Staff (1993), itegeko kuri Lt. Rukindikiza (11 Ukwakira), ivuga rya radio (23 Ukwakira), hamwe n'uburemere bw'ivyo raporo ivuga kuri we (bireba aho yazanye umuryango wa Ndadaye, n'icivugo umugore wa Ndadaye amushinja).
-
----
