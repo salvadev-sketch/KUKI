@@ -1,0 +1,70 @@
+<!doctype html><html lang="en"><head><meta charset="utf-8"><meta name="viewport" content="width=device-width,initial-scale=1,viewport-fit=cover"><title>MPN 8 Laws of Life You Must Understand</title>
+<link rel="preconnect" href="https://fonts.googleapis.com"><link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link rel="stylesheet" href="https://fonts.googleapis.com/css2?family=Figtree:wght@500;600&family=Newsreader:ital,opsz,wght@0,6..72,400;0,6..72,500;0,6..72,600;1,6..72,400;1,6..72,500&display=swap">
+<style>
+:root{color-scheme:dark}
+*{box-sizing:border-box;margin:0}
+html,body{height:100%;background:#050505;overflow:hidden}
+body{font-family:'Newsreader',Georgia,'Times New Roman',serif;color:#f5f3ee;-webkit-font-smoothing:antialiased}
+.deck{position:fixed;inset:0;height:100%;display:flex;overflow-x:auto;overflow-y:hidden;scroll-snap-type:x mandatory;scroll-behavior:smooth;scrollbar-width:none;overscroll-behavior-x:contain}
+.deck::-webkit-scrollbar{display:none}
+.p0{--b1:#0a1530;--b2:#18306b;--a:#e8bd55;--ang:160deg}
+.p1{--b1:#2b0a17;--b2:#5e1832;--a:#ff8a73;--ang:135deg}
+.p2{--b1:#04241b;--b2:#0c4d3a;--a:#72e8b8;--ang:200deg}
+.p3{--b1:#1f0e30;--b2:#43215f;--a:#cdaaff;--ang:120deg}
+.p4{--b1:#052a2e;--b2:#0e5057;--a:#ecd8a8;--ang:170deg}
+.p5{--b1:#141414;--b2:#2d2d31;--a:#ff4d4d;--ang:145deg}
+.p6{--b1:#050818;--b2:#101a45;--a:#3fe0ff;--ang:185deg}
+.p7{--b1:#191f06;--b2:#364310;--a:#c8f25c;--ang:110deg}
+.p8{--b1:#1e120c;--b2:#44271a;--a:#f4a6bc;--ang:155deg}
+.p9{--b1:#161e28;--b2:#313e50;--a:#ff9a3c;--ang:130deg}
+.s{flex:0 0 100%;width:100%;height:100%;position:relative;overflow:hidden;scroll-snap-align:start;scroll-snap-stop:always;container-type:size;background:linear-gradient(var(--ang),var(--b1),var(--b2));color:#f5f3ee}
+.dc{position:absolute;inset:0;pointer-events:none}
+.rg{position:absolute;left:50%;top:50%;width:calc(var(--z)*1cqmin);height:calc(var(--z)*1cqmin);border-radius:50%;border:.45cqmin solid var(--a);transform:translate(-50%,-50%);opacity:.15}
+.dc .rg:nth-child(2){opacity:.1}.dc .rg:nth-child(3){opacity:.07}.dc .rg:nth-child(4){opacity:.05}
+.rg.tl{transform:none;left:calc(11cqmin - var(--z)*.5cqmin);top:calc(11cqmin - var(--z)*.5cqmin)}
+.rg.br{transform:none;left:auto;top:auto;right:-32cqmin;bottom:-38cqmin;border-width:1.7cqmin;opacity:.11}
+.bk{position:absolute;width:60cqmin;height:60cqmin;right:-14cqmin;bottom:-18cqmin;background:var(--a);opacity:.07;transform:rotate(24deg);border-radius:3cqmin}
+.in{position:absolute;inset:0;z-index:1;display:flex;align-items:center;justify-content:center;padding:calc(env(safe-area-inset-top,0px) + 7cqmin) calc(env(safe-area-inset-right,0px) + 8cqmin) calc(env(safe-area-inset-bottom,0px) + 10cqmin) calc(env(safe-area-inset-left,0px) + 8cqmin)}
+.c{width:100%;max-width:170cqmin;display:flex;flex-direction:column;gap:calc(var(--k,1)*5cqmin)}
+.lab{font-family:'Figtree',system-ui,-apple-system,'Segoe UI',sans-serif;font-weight:600;letter-spacing:.22em;text-transform:uppercase;font-size:calc(var(--k,1)*3.2cqmin);color:var(--a);margin-bottom:calc(var(--k,1)*2.4cqmin)}
+.ttl,.it{font-weight:600;line-height:1.06;letter-spacing:-.005em;overflow-wrap:break-word;font-size:calc(var(--k,1)*var(--ts,9)*1cqmin)}
+.msg p{font-size:calc(var(--k,1)*4.9cqmin);line-height:1.38;margin-top:.62em;color:rgba(245,243,238,.9)}
+.msg p:first-child{margin-top:0}
+.msg p.q{color:var(--a);font-style:italic;font-weight:500;font-size:calc(var(--k,1)*5.7cqmin)}
+.dv{height:.35cqmin;background:var(--a);opacity:.4;align-self:stretch}
+.l3 .c,.ct .c{text-align:center;align-items:center}
+.l3 .msg{max-width:120cqmin}
+.l4 .hd::after{content:'';display:block;width:14cqmin;height:.9cqmin;border-radius:1px;background:var(--a);margin-top:calc(var(--k,1)*3.6cqmin)}
+.l4 .c{max-width:130cqmin}
+.ct .c{gap:calc(var(--k,1)*4.5cqmin)}
+.wb{font-family:'Figtree',system-ui,-apple-system,'Segoe UI',sans-serif;font-weight:500;letter-spacing:.14em;font-size:calc(var(--k,1)*3.4cqmin);color:rgba(245,243,238,.55)}
+.it{font-size:calc(var(--k,1)*var(--ts,11)*1cqmin)}
+.go{font-style:italic;color:var(--a);font-size:calc(var(--k,1)*6cqmin)}
+.cl{font-size:calc(var(--k,1)*var(--cs,7)*1cqmin);line-height:1.18;font-weight:500;color:#f5f3ee}
+.cl.ca{color:var(--a);font-style:italic}
+.cls{display:flex;flex-direction:column;gap:calc(var(--k,1)*2.2cqmin);align-items:center}
+.pill{margin-top:calc(var(--k,1)*3cqmin);border:.5cqmin solid var(--a);color:var(--a);border-radius:999px;padding:calc(var(--k,1)*2.4cqmin) calc(var(--k,1)*6.5cqmin);font-family:'Figtree',system-ui,-apple-system,'Segoe UI',sans-serif;font-weight:600;letter-spacing:.2em;font-size:calc(var(--k,1)*3.2cqmin)}
+@media (orientation:landscape){
+.l1 .c{display:grid;grid-template-columns:1fr auto 1fr;column-gap:6cqmin;align-items:center}
+.l1 .dv{width:.35cqmin;height:auto}
+.l2 .c{display:grid;grid-template-columns:1fr 1fr;column-gap:10cqmin;align-items:center}
+.l2 .hd{order:2;text-align:right}.l2 .msg{order:1}
+.l3 .c{display:flex}
+}
+.pb{position:fixed;left:0;right:0;bottom:0;padding-bottom:env(safe-area-inset-bottom,0px);z-index:5;pointer-events:none}
+.tr{height:3px;background:rgba(255,255,255,.12)}
+.fl{height:100%;width:0;background:#fff;transition:background-color .4s}
+</style></head><body><main class="deck" id="deck"><section class="s p4 ct"><div class="dc" aria-hidden="true"><i class="rg" style="--z:46"></i><i class="rg" style="--z:70"></i><i class="rg" style="--z:96"></i><i class="rg" style="--z:126"></i></div><div class="in"><div class="c"><p class="wb">Welcome back to MPN</p><h1 class="it" style="--ts:8.14">8 Laws of Life You Must Understand</h1><p class="go">Let’s get into it.</p></div></div></section><section class="s p5 l1"><div class="dc" aria-hidden="true"><i class="rg br" style="--z:110"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 01</div><h2 class="ttl" style="--ts:6.02">Consistency Beats Knowledge Without Action</h2></div><div class="dv"></div><div class="msg"><p>Knowing a lot doesn’t guarantee success.</p><p>You can have knowledge, talent, and great ideas… but without action, they stay ideas.</p><p class="q">Make a plan.</p><p class="q">Take action.</p><p class="q">Keep going.</p><p>Consistency turns knowledge into results.</p></div></div></div></section><section class="s p6 l2"><div class="dc" aria-hidden="true"><i class="rg tl" style="--z:70"></i><i class="rg tl" style="--z:92"></i><i class="rg tl" style="--z:118"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 02</div><h2 class="ttl" style="--ts:9.4">Know Your Flaws</h2></div><div class="msg"><p>If you can’t recognize your weaknesses, you can’t improve them.</p><p>Self-awareness means being honest about yourself.</p><p class="q">Know what you’re good at.</p><p class="q">Know where you need to grow.</p><p class="q">The goal isn’t perfection.</p><p class="q">The goal is improvement.</p></div></div></div></section><section class="s p7 l3"><div class="dc" aria-hidden="true"><i class="rg" style="--z:46"></i><i class="rg" style="--z:72"></i><i class="rg" style="--z:100"></i><i class="rg" style="--z:132"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 03</div><h2 class="ttl" style="--ts:6.96">Character Shows in What You Can Resist</h2></div><div class="msg"><p>Getting what you want can show ability.</p><p>Walking away from what you don’t need can show self-control.</p><p>You don’t have to buy everything you can afford.</p><p>You don’t have to chase every opportunity.</p><p>Sometimes, knowing when to say no is strength.</p></div></div></div></section><section class="s p8 l4"><div class="dc" aria-hidden="true"><i class="bk"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 04</div><h2 class="ttl" style="--ts:6.02">Time Alone Doesn’t Make a Relationship Successful</h2></div><div class="msg"><p>A relationship lasting many years doesn’t automatically mean it’s healthy or fulfilling.</p><p>What matters is how people treat each other.</p><p class="q">Respect.</p><p class="q">Trust.</p><p class="q">Communication.</p><p class="q">Growth.</p></div></div></div></section><section class="s p9 l1"><div class="dc" aria-hidden="true"><i class="rg br" style="--z:110"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 05</div><h2 class="ttl" style="--ts:6.96">Self-Respect Requires Self-Control</h2></div><div class="dv"></div><div class="msg"><p>Every time you abandon your values just to please someone, you can lose a little connection with yourself.</p><p class="q">Learn to say no.</p><p class="q">Set boundaries.</p><p class="q">Keep your promises to yourself.</p><p>Self-respect grows when your actions match your values.</p></div></div></div></section><section class="s p0 l2"><div class="dc" aria-hidden="true"><i class="rg tl" style="--z:70"></i><i class="rg tl" style="--z:92"></i><i class="rg tl" style="--z:118"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 06</div><h2 class="ttl" style="--ts:6.96">Don’t Depend on Everyone’s Approval</h2></div><div class="msg"><p class="q">Wanting to be loved is human.</p><p>But constantly needing approval can control your decisions.</p><p class="q">Learn to appreciate yourself.</p><p class="q">Know your worth.</p><p>You don’t need everyone to approve of your life.</p></div></div></div></section><section class="s p1 l3"><div class="dc" aria-hidden="true"><i class="rg" style="--z:46"></i><i class="rg" style="--z:72"></i><i class="rg" style="--z:100"></i><i class="rg" style="--z:132"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 07</div><h2 class="ttl" style="--ts:6.96">Your Biggest Battle Can Be Internal</h2></div><div class="msg"><p>Sometimes, the biggest obstacle isn’t another person.</p><p class="q">It’s your fear.</p><p class="q">Your doubt.</p><p class="q">Your insecurity.</p><p class="q">Your negative thinking.</p><p>Learn to challenge the thoughts that hold you back.</p></div></div></div></section><section class="s p2 l4"><div class="dc" aria-hidden="true"><i class="bk"></i></div><div class="in"><div class="c"><div class="hd"><div class="lab">Rule 08</div><h2 class="ttl" style="--ts:8.08">Protect What Matters Most</h2></div><div class="msg"><p>Some opportunities aren’t worth the price they demand from your peace.</p><p class="q">Money can be replaced.</p><p class="q">Things can be replaced.</p><p>But your time and well-being matter.</p><p>Learn to recognize what is costing you too much.</p></div></div></div></section><section class="s p3 ct"><div class="dc" aria-hidden="true"><i class="rg" style="--z:46"></i><i class="rg" style="--z:70"></i><i class="rg" style="--z:96"></i><i class="rg" style="--z:126"></i></div><div class="in"><div class="c"><div class="cls" style="--cs:5.6"><p class="cl ca">Build consistency.</p><p class="cl">Know yourself.</p><p class="cl ca">Control yourself.</p><p class="cl">Protect your peace.</p><p class="cl ca">And keep becoming a better version of yourself.</p></div><div class="pill">FOLLOW MPN FOR MORE</div></div></div></section></main><div class="pb"><div class="tr"><div class="fl" id="fl"></div></div></div><script>(()=>{const d=document.getElementById('deck'),ss=[...d.children],n=ss.length,fl=document.getElementById('fl');
+const ac=ss.map(s=>getComputedStyle(s).getPropertyValue('--a').trim());
+function prog(){const w=d.clientWidth,x=d.scrollLeft,i=Math.min(n-1,Math.max(0,Math.round(x/w)));fl.style.width=((x+w)/(w*n)*100)+'%';fl.style.backgroundColor=ac[i]}
+d.addEventListener('scroll',prog,{passive:true});
+addEventListener('keydown',e=>{const w=d.clientWidth,i=Math.round(d.scrollLeft/w),k=e.key;let t=null;
+if(k==='ArrowRight'||k==='PageDown'||k===' ')t=i+1;else if(k==='ArrowLeft'||k==='PageUp')t=i-1;else if(k==='Home')t=0;else if(k==='End')t=n-1;
+if(t!==null){e.preventDefault();d.scrollTo({left:Math.max(0,Math.min(n-1,t))*w,behavior:'smooth'})}});
+function fit(){ss.forEach(s=>{const o=s.querySelector('.in'),c=s.querySelector('.c');let k=1;s.style.setProperty('--k',k);
+const cs=getComputedStyle(o),ah=o.clientHeight-parseFloat(cs.paddingTop)-parseFloat(cs.paddingBottom),aw=o.clientWidth-parseFloat(cs.paddingLeft)-parseFloat(cs.paddingRight);
+while((c.offsetHeight>ah||c.scrollWidth>aw+1)&&k>.4){k=Math.round((k-.04)*100)/100;s.style.setProperty('--k',k)}});prog()}
+let tm;const rf=()=>{clearTimeout(tm);tm=setTimeout(fit,120)};
+addEventListener('resize',rf);addEventListener('orientationchange',rf);addEventListener('load',fit);
+if(document.fonts&&document.fonts.ready)document.fonts.ready.then(fit);fit()})();</script></body></html>
