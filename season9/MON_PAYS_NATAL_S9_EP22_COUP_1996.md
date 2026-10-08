@@ -1,8 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP22 — 1996: IGIKORWA CA BUYOYA CO GUTEMBAGAZA UBUTEGETSI, NTIBANTUNGANYA AKURWA
 
-Ku wa **20 Mukakaro 1996**, abarwanyi barishe abantu barenga 300, ahanini abagore n'abana b'Abatutsi, mu kigo c'abavuye mu vyabo i **Bugendana.**
-
-[FR-CITATION] 🟢 Inama Nkenguzamateka y'Umuryango w'Abibumbye (UN Security Council, S/1996/591, 23 Mukakaro 1996) yagize iti: « more than 300 women, children and elderly men were [killed] » i Bugendana — bihuza n'imibare EP22 ivuga.
+Muri Mukakaro 1996, ubutegetsi bwa Ntibantunganya bwaragiye kurangira. Ibijanye na Bugendana n'igikorwa ca Buyoya twarabirondoye muri Season 8, EP11. Ubu turabona ibyo duhereye kuri Ntibantunganya.
 
 ---
 
@@ -14,7 +12,7 @@ Iki cari ikimenyetso gikomeye c'uko ubutegetsi bwiwe bwari busigaye butagifise u
 
 ---
 
-Ku wa **25 Mukakaro 1996**, nk'uko twize muri Season 8, igisirikare carafashe ubutegetsi, **Pierre Buyoya** ashizwe imbere nk'umukuru w'igihugu w'inzibacyuho.
+Ku wa **25 Mukakaro 1996**, igisirikare carafashe ubutegetsi, **Pierre Buyoya** ashizwe imbere nk'umukuru w'igihugu w'inzibacyuho.
 
 [FR-CITATION] 🟢 Wikipedia ("1996 Burundian coup d'état") ivuga ko "The army took power on 25 July, a move announced over the radio by Defense Minister Firmin Sinzoyiheba" — bihuza neza n'itariki EP22 ivuga.
 
