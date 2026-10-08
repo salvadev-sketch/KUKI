@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 4 — EP05 — UBURUNDI BUVA KU BADAGI BUJA KU BABILIGI
 
-Mwambutsa yari amaze umwaka umwe gusa ku ngoma, igihe Uburayi bwose bwinjiye mu ntambara.
+Mwambutsa yimye ingoma mu mpera za 1915, igihe Uburayi bwose bwari bwaramaze kwinjira mu ntambara.
 
 Intambara ya Mbere y'Isi Yose.
 

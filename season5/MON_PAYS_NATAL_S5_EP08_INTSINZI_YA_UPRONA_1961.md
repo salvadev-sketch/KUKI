@@ -34,4 +34,4 @@ Kandi mu myaka mike gusa, iryo hombo rizoza kugira ingaruka zibabaje.
 
 ---
 
-**MON PAYS NATAL — SEASON 5 — EP09 — UMUSHIKIRANGANJI WA MBERE — IMINSI 16**, ni ho tuzoraba iherezo ry'ubwo butegetsi.
+**MON PAYS NATAL — SEASON 5 — EP09 — UMUSHIKIRANGANJI WA MBERE — IMINSI 15**, ni ho tuzoraba iherezo ry'ubwo butegetsi.

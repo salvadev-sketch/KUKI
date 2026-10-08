@@ -8,7 +8,7 @@ Amasoko atandukanya ku kibanza nyaco: hari avuga Rutovu, andi Murambi. Ntitwokwe
 
 ---
 
-Yize ku **Collège du Saint-Esprit**, i Bujumbura, hanyuma aja mu Bubiligi, kuri **Royal Military Academy**, aho yarangije mu 1970, afise ubumenyi mu Social and Military Sciences, hamwe na specialization mu bijanye n'infanterie.
+Yize ku **Collège du Saint-Esprit**, i Bujumbura, hanyuma aja mu Bubiligi, kuri **Royal Military Academy**, aho yarangije mu 1971, afise ubumenyi mu Social and Military Sciences, hamwe na specialization mu bijanye n'infanterie.
 
 [FR-CITATION] 🟡 Amasoko menshi (Wikipedia, FactSnippet, peoplepill) avuga ko yagiye mu Bubiligi mu 1966, akaronka amashuri kuri Royal Military Academy i Brussels **gushika mu 1971** (atari 1970), asubira mu Burundi ico co gihe nyene. Isoko rimwe (World Biographical Encyclopedia/prabook) ritanga ubundi buryo bw'amashuri: "École des Cadets" i Brussels na "Belgian Mil. School" i Arlon. Nta soko ryavuze "Collège du Saint-Esprit".
 

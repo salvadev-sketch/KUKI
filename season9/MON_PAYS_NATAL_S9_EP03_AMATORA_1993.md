@@ -38,4 +38,4 @@ Ku wa **10 Mukakaro 1993**, Melchior Ndadaye yararahijwe.
 
 [FR-CITATION] 🟢 Wikipedia ("Melchior Ndadaye") ivuga ko "Ndadaye was sworn in as the first Hutu president of Burundi on 10 July 1993" — bihuza neza n'itariki EP03 ivuga.
 
-**MON PAYS NATAL — SEASON 9 — EP04 — NDADAYE: IMINSI 112**, ni ho tuzoraba ingoma yiwe ngufi.
+**MON PAYS NATAL — SEASON 9 — EP04 — NDADAYE: IMINSI 103**, ni ho tuzoraba ingoma yiwe ngufi.

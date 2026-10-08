@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 9 — EP27 — ISOZERO — IHEREZO RYA PHASE 1
 
-Melchior Ndadaye yamaze ku butegetsi iminsi 112 gusa. 🔴 *(Nk'uko twabivuze muri EP04, ivyo twabonye bisa n'ukwerekana iminsi ~103, atari 112 — iki gikeneye gusuzumwa.)*
+Melchior Ndadaye yamaze ku butegetsi iminsi 103 gusa.
 
 Ariko uyu musi, Leta y'Uburundi imwita **"Héros de la démocratie"** — Intwari ya Demokarasi.
 
@@ -26,7 +26,7 @@ Twaraye tubona **Ntare Rushatsi** avuka mu makimbirane ya Jabwe na Nsoro, akaguk
 
 Twaraye tubona **Ntare Rugamba** yaguye ubwo bwami akubya kabiri, **Mwezi Gisabo** ahangana n'Abadagi, **Mutaga IV** na **Mwambutsa IV** babona Uburundi buva ku Badagi buja ku Babiligi, hanyuma bugana ku bwigenge.
 
-Twaraye tubona **Rwagasore** ashinga UPRONA, agatsindira ubwigenge, akaguya iminsi 16 gusa ari Umushikiranganji wa mbere — hanyuma **Mirerekano** na **Ngendandumwe**, bombi bagwa mu bwicanyi bw'abanyapolitike bwabaye imwe mu migenzo mibi y'Uburundi.
+Twaraye tubona **Rwagasore** ashinga UPRONA, agatsindira ubwigenge, akaguya iminsi 15 gusa ari Umushikiranganji wa mbere — hanyuma **Mirerekano** na **Ngendandumwe**, bombi bagwa mu bwicanyi bw'abanyapolitike bwabaye imwe mu migenzo mibi y'Uburundi.
 
 Twaraye tubona **Ntare V**, umwami wa nyuma, akuwe se ku ngoma na **Micombero**, hanyuma Uburundi bugwa mu bwicanyi bukomeye bwo mu 1972 — na **Kayoya**, umwanditsi yishwe, ari kimwe mu bihumbi.
 

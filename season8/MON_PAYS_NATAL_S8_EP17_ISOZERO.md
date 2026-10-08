@@ -50,6 +50,6 @@ Yari umuntu wagiye hagati y'ugufata ubutegetsi n'ugushaka ubwumvikane — kandi 
 
 ---
 
-Uburundi bwarahavuye buja mu bindi bihe, ariko hari inkuru imwe idasozerewe: iy'umuntu yaguye ku wa 21 Gitugutu 1993, mu minsi mike gusa inyuma yo gutorwa nk'umwami w'ejo hazoza h'igihugu.
+Uburundi bwarahavuye buja mu bindi bihe, ariko hari inkuru imwe idasozerewe: iy'umuntu yaguye ku wa 21 Gitugutu 1993, mu mezi make inyuma yo gutorwa nk'Umukuru w'Igihugu.
 
 **MON PAYS NATAL — SEASON 9 — MELCHIOR NDADAYE**, ni ho tuzokomeza.

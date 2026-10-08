@@ -8,7 +8,7 @@ Iyi nkuru y'ubwiwe — urupfu rwiwe, iperereza, n'abandi bategetsi barishwe (Pon
 
 Ku ruhande rwa Buyoya: ni ngombwa gushimikira ku kintu kimwe gikomeye.
 
-**Buyoya yari amaze kuva ku butegetsi ku wa 10 Mukakaro 1993** — ni ukuvuga imisi mike inyuma y'itorwa rya Ndadaye. Igihe ico gikorwa cabaye, Buyoya ntiyari Perezida.
+**Buyoya yari amaze kuva ku butegetsi ku wa 10 Mukakaro 1993** — ni ukuvuga ibyumweru bitanu inyuma y'itora rya Ndadaye. Igihe ico gikorwa cabaye, Buyoya ntiyari Perezida.
 
 ---
 

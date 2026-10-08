@@ -182,3 +182,13 @@ Yavuze ko
 - 1987 coup: owned by S7 EP16. S8 EP02 now opens with a back-reference. Removed from S8 EP02 because S7 had already dropped them as unverifiable: Le Monde interview of 20 Nyakanga 1987, the Refworld claim, the Gitega cathedral reopening on 13 Nyakanga 1987, and the uncited detail about armoured vehicles, the curfew and the Présidence.
 - 1996 coup: owned by S8 EP11. S9 EP22 now opens with a back-reference and keeps only Ntibantunganya's side (hiding on 23 Mukakaro, removal on 25 Mukakaro). The Bugendana paragraph and its UN citation were removed from S9 EP22.
 - 1993 election: owned by S9 EP03 (S9 EP02 stays as the lead-in). S8 EP09 now keeps only Buyoya's side and points to S9 EP03. Fixed the contradiction: S8 EP09 used to say Buyoya did not run, but S9 EP02/EP03 (and the 65.68% vs 32.86% result) show he was UPRONA's candidate.
+
+
+# Contradictions fixed (sections B–J of the error list)
+- Ndadaye's time in office: 103 days (10 Mukakaro to 21 Gitugutu 1993). S9 EP04 retitled and renamed to IMINSI_103; S9 EP03 teaser and S9 EP27 updated.
+- Rwagasore's term as PM: 15 days (28 Nyakanga to 13 Gitugutu 1961). S5 EP08/EP09 titles and S9 EP27 updated.
+- Bagaza finished at the Royal Military Academy in 1971 (S7 EP01).
+- S4 EP05: Mwambutsa was enthroned at the end of 1915, so "one year when WWI began" was removed.
+- S4 EP19: dropped "21 of 33" for Hutu candidates (it clashed with UPRONA's 21 in S4 EP18).
+- S6 EP04: death toll now 2.500–5.000, as in its source.
+- S8 EP15: "seven years" after 1996; S8 EP17: Ndadaye died months, not days, after the vote and is no longer called "umwami"; S8 EP10: Buyoya left office five weeks after the election.

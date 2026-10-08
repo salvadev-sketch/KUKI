@@ -44,7 +44,7 @@ Umunyamabanga Mukuru wa ONU yaramushimiye ku bwo kwubahiriza ivyo yari yiyemeje.
 
 ---
 
-Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka umunani inyuma y'uko yagarutse ku butegetsi biciye ku gikorwa co gutembagaza ubutegetsi.
+Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka irindwi inyuma y'uko yagarutse ku butegetsi biciye ku gikorwa co gutembagaza ubutegetsi.
 
 ---
 

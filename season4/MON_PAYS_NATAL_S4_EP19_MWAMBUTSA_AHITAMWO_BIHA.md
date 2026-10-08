@@ -6,7 +6,7 @@ Bamina rero ntiyari umukandida mushasha inyuma y'amatora — yari asanzwe ari we
 
 ---
 
-Naho abakandida b'Abahutu bari bararonse imyanya myinshi mu Nteko (21 kuri 33), ivyo ntibyahinduye ubutegetsi bw'igihe cose: Bamina yagumye ku murimo amezi menshi inyuma y'amatora.
+Naho abakandida b'Abahutu bari bararonse imyanya myinshi mu Nteko, ivyo ntibyahinduye ubutegetsi bw'igihe cose: Bamina yagumye ku murimo amezi menshi inyuma y'amatora.
 
 Ariko ku wa **30 Nyakanga 1965**, Bamina yavuwe ku mwanya wiwe.
 

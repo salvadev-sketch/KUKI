@@ -24,7 +24,7 @@ Ntitwovuga rero ko Micombero ari we yateguye wenyene ico gikorwa.
 
 Inyuma y'ico kibazo, habaye ugufata no guhana abantu benshi, cane cane abanyapolitike n'abasirikare b'Abahutu.
 
-Abadipolomate bari mu Burundi bagereranije abishwe hagati ya Gitugutu 1965 na Nzero 1966 n'abantu 2.000 gushika 5.000.
+Hagati ya Gitugutu 1965 na Nzero 1966, hagereranijwe ko hapfuye abantu 2.500 gushika 5.000.
 
 [FR-CITATION] 🟢 Wikipedia ("1965 Burundian coup attempt," ikurikiza Eggers 2006) ivuga ko abagize umugambi 86 bishwe, hiyongereyeko "several thousand" mu bwicanyi bwakurikiye. EBSCOhost ("Burundi Commits Genocide of Hutu Majority") itanga umubare uwo nyene: hagati y'2.500 na 5.000.
 
