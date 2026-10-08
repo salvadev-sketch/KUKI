@@ -176,3 +176,7 @@ Yavuze ko
 - `MON_PAYS_NATAL_S8_EP17_ISOZERO.md`
   - removed: atazohambwa ubwo nyene mu Burundi — yahambwe igihe gito muri Mali, mu gihe umuryango utari uraf��ta ingingo ya nyuma.
   - now: atazohambwa ubwo nyene mu Burundi.
+
+# A2 — duplicate events: who owns what
+- 1976 coup: owned by S6 EP18. S7 EP04 now opens with a back-reference and keeps only the Bagaza side (2 and 9 Munyonyo).
+- 1987 coup: owned by S7 EP16. S8 EP02 now opens with a back-reference. Removed from S8 EP02 because S7 had already dropped them as unverifiable: Le Monde interview of 20 Nyakanga 1987, the Refworld claim, the Gitega cathedral reopening on 13 Nyakanga 1987, and the uncited detail about armoured vehicles, the curfew and the Présidence.

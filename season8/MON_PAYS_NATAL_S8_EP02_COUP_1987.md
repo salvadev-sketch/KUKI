@@ -2,23 +2,13 @@
 
 Ku wa **3 Nyakanga 1987**, Major Pierre Buyoya yahiritse Perezida Jean-Baptiste Bagaza.
 
-Twize iki gikorwa muri Season 7, ku ruhande rwa Bagaza. Ubu tuzokiraba ku ruhande rwa Buyoya.
+Twize iki gikorwa muri Season 7, EP16, ku ruhande rwa Bagaza. Ubu turakiraba duhereye kuri Buyoya, kuko ari we twubakiyeho iyi Season.
 
-Amasoko amwe (Wikipedia, Military Wiki) avuga ko Buyoya na Bagaza bari **abavukana** (cousins) — bombi bo muri Rutovu.
-
----
-
-Ico gihe, Bagaza yari i **Québec, Canada**, mu nama ya Francophonie.
-
-Igikorwa cakozwe mu buryo butarimwo imirwano ikomeye: umutwe umwe w'abasirikare, ufashijwe n'ibimodoka vy'intambara, wafashe ibiro vya Présidence. Murwa wa Bujumbura waratandukanijwe n'ibindi bice vy'igihugu, hashirwaho amabwiriza yo kutagenda nijoro. Nta maraso menshi yamennwe.
+Amasoko amwe (Wikipedia, Military Wiki) avuga ko Buyoya na Bagaza bari **abavukana** (cousins) — bombi bo mu ntara ya Bururi.
 
 ---
 
-Mu kiganiro yagiranye na Le Monde, ku wa 20 Nyakanga 1987, Buyoya yavuze ko ubutegetsi bwa Bagaza bwari bwatanguye neza, ariko ko mu nyuma yagiye mu **"confiscation du pouvoir."**
-
-Yavuze ko igikorwa cabo kitari gusa "révolution de palais," ahubwo ko bashaka impinduka zikomeye zijanye n'ubutungane n'ubuyobozi.
-
-Ariko izo ni mvo Buyoya ubwiwe yatanze — ntitwovuga ko abashakashatsi bose bazemera nk'ukuri kwose. Raporo ya Refworld ivuga ko mu 1987 hari ukwiyongera kw'ukutishimira ubutegetsi bwa Bagaza, cane cane mu gisirikare no mu bantu bamwe bo mu ntwaro.
+Ico gihe, Bagaza yari i **Québec, Canada**, mu nama ya Francophonie. Igikorwa cakozwe nta maraso menshi.
 
 ---
 
@@ -32,15 +22,13 @@ Icakurikiye caragenze mu ntambwe eshatu zitomoye:
 
 ---
 
-Buyoya yahise atangaza ko ashaka: gusubiza igihugu ituze, kurekura bamwe mu banyororo ba politike, gusubiza ubuyobozi bw'abasivile, no kuganira na Kiliziya Gatolika.
-
-Ku wa 13 Nyakanga 1987, Cathédrale ya Gitega, yari yarafunzwe mu gihe ca Bagaza, yarasubiye gufungura.
+Buyoya yatangaje ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya Gatolika, kandi ubutegetsi bwiwe bwarekuye Abahutu amajana bari bafunzwe kubera politike.
 
 ---
 
 **[CITATION — 🟢/🟡]**
 
-Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nyakanga 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Gitugutu 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya: CIDOB na archontology.org (urutonde rw'abakuru b'igihugu) byombi byemeza 9 Nyakanga 1987 — iki gikosoye 11 Nyakanga yari muri iyi episode mbere.
+Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nyakanga 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Gitugutu 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya: CIDOB na archontology.org (urutonde rw'abakuru b'igihugu) byombi byemeza 9 Nyakanga 1987. Ibijanye na Kiliziya n'Abahutu bafunzwe bivuye kuri Wikipedia ("1987 Burundian coup d'état" na "1988 ethnic violence in Burundi").
 
 ---
 
