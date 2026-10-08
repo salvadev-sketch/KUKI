@@ -32,7 +32,7 @@ Amatati y'amoko, ubwoba mu gisirikare, n'ukutizerana hagati y'imirwi ya politike
 
 **[CITATION — 🟢]**
 
-Wikipedia ("1993 Burundian presidential election," "Sylvie Kinigi," "Adrien Sibomana") byemeza ko Buyoya yari umukandida wa UPRONA, n' itariki y'amatora (1 Ruheshi/Juin 1993) n'iyo Ndadaye yararahiye (10 Mukakaro/Juillet 1993).
+Wikipedia ("1993 Burundian presidential election," "Sylvie Kinigi," "Adrien Sibomana") byemeza ko Buyoya yari umukandida wa UPRONA, n'itariki y'amatora (1 Ruheshi/Juin 1993) n'iyo Ndadaye yararahiye (10 Mukakaro/Juillet 1993).
 
 ---
 
