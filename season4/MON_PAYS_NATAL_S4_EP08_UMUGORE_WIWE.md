@@ -14,7 +14,7 @@ Warren Weinstein, *Historical Dictionary of Burundi* (Scarecrow Press, 1976) na 
 
 ---
 
-Bararonse abana.
+Mwambutsa yarabonye abana.
 
 Muri bo, bane bazoba ingenzi cane muri iyi nkuru:
 
@@ -24,7 +24,7 @@ Muri bo, bane bazoba ingenzi cane muri iyi nkuru:
 
 **Régine Kanyange.**
 
-**Charles Ndizeye**, uwaje kuba **Ntare V**.
+**Charles Ndizeye**, uwaje kuba **Ntare V** — umwana wa Mwambutsa na Baramparaye, atari uwa Thérèse Kanyonga.
 
 ---
 

@@ -1,6 +1,6 @@
 # MON PAYS NATAL — SEASON 4 — EP11 — UPRONA IRASHINGWA
 
-Mwambutsa ntiyari wenyene mu rugamba rwo kwikukira.
+Mwambutsa ntiyari wenyene mu rugamba rwo kwikukira. Ibyabaye kuri UPRONA, Rwagasore na Ngendandumwe tuzobivugira vyimbitse muri Season 5; hano turabibona duhereye kuri Mwambutsa.
 
 Kandi imbere y'uko urwo rugamba rutangura, hari umurwi tugomba kwibuka: **Bezi na Batare** — imigwi ibiri y'abaganwa, twize inkomoko yayo mu Season 3, twavuze ko yavuye ku matati ya Ndivyariye.
 

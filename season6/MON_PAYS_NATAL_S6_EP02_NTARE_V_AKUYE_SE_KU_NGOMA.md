@@ -14,9 +14,9 @@ Yavuze ko akoze gutyo kubera ukudashobora kwihanganira ukutaba kwa se, hamwe n'i
 
 ---
 
-Mu nyuma, ku wa 3 Nyakanga (Septembre) 1966, aca yimikwa mu buryo bwa gitsina, afata izina rya **Ntare V.**
+Mu nyuma, mu ntango za Nyakanga (Septembre) 1966, aca yimikwa mu buryo bwa gitsina, afata izina rya **Ntare V.**
 
-[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi") yemeza itariki zombi: 8 Mukakaro 1966 (gufata ubutegetsi) na 3 Nyakanga 1966 (kwimikwa ku mugaragaro).
+[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi") yemeza itariki zombi: 8 Mukakaro 1966 (gufata ubutegetsi) n'ukwezi kwa Nyakanga 1966 (kwimikwa ku mugaragaro). Itariki nyayo y'ukwimikwa iratandukanye mu masoko: 1 canke 3 Nyakanga.
 
 ---
 

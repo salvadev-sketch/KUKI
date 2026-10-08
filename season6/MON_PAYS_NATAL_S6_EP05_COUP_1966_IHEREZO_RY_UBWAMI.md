@@ -28,7 +28,7 @@ Micombero aca atangaza ko Uburundi bubaye **Repubulika**, aba na we Perezida wa 
 
 ---
 
-Aha, amateka y'ingoma y'abami b'Uburundi — urugendo twagize kuva ku Ntwero na Ntare Rushatsi, imyaka amajana menshi imbere, gushika kuri uyu musi — yahagarariye burundu.
+Nk'uko twabibonye muri Season 4, aho ni ho amateka y'ubwami bw'Uburundi yarangiriye.
 
 Ntare V ava ku butegetsi. Ntasubira ku ngoma.
 

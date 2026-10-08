@@ -192,3 +192,12 @@ Yavuze ko
 - S4 EP19: dropped "21 of 33" for Hutu candidates (it clashed with UPRONA's 21 in S4 EP18).
 - S6 EP04: death toll now 2.500–5.000, as in its source.
 - S8 EP15: "seven years" after 1996; S8 EP17: Ndadaye died months, not days, after the vote and is no longer called "umwami"; S8 EP10: Buyoya left office five weeks after the election.
+
+
+# A2 — S4 EP11–EP20 versus S5
+Decision: S5 is the full telling (Rwagasore, Ngendandumwe, 1961–1965). S4 EP11–EP20 stay as short Mwambutsa-side summaries (120–330 words each). S4 EP11 now says so at the start. Nothing else was cut from them.
+
+# A2 — S4 EP22 versus S6 EP02 / EP05
+- Ntare V's coronation date: sources disagree (1 September: Wikipedia "July 1966 Burundian coup d'état", APA, a 1966 coin; 3 September: Wikipedia "Ntare V of Burundi", Royal Ark). The narration now gives only the month and both citations list both dates.
+- S6 EP05 no longer repeats S4 EP22's closing sentence word for word.
+- S4 EP08: Ndizeye's mother is Baramparaye (as in S6 EP01), not Thérèse Kanyonga.
