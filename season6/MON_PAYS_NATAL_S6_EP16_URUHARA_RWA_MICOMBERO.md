@@ -8,7 +8,7 @@ Impamvu nyayo y'iyo ngingo ntirasobanuka neza. Bishobora kuba vyari bifitaniye i
 
 Ariko inyuma y'iyo ngingo, Micombero yahavuye aba umuntu mukuru mu gutunganya ibikorwa vy'inyishu ya Leta — kuva ku guhasha Abahutu bakekwa mu Bururi, gushika ku gukuraho abasirikare b'Abahutu mu gisirikare, hanyuma repression iraguka gushika ku gihugu cose.
 
-Abakuru b'ingabo bari hafi yiwe — Ndabememye, Shibura, Yanda, Rwuri — ni bo bari mu gutunganya ibikorwa vya gisirikare. Simbananiye we yari afise umwidegemvyo munini mu ntara.
+Abakuru b'ingabo bari hafi yiwe — Ndabemeye, Shibura, Yanda, Rwuri — ni bo bari mu gutunganya ibikorwa vya gisirikare. Simbananiye we yari afise umwidegemvyo munini mu ntara.
 
 Ntitwovuga ngo Micombero wenyene ni we yategura buri gikorwa cose. Ariko ntitwovuga na ngo ntaco yari azi.
 

@@ -10,7 +10,7 @@ Uwo mwanya yawugumyeho gushika mu 1978.
 
 ---
 
-Iyi ni intambwe ya mbere ya Mworoha muri gouvernome — ariko atari iya nyuma.
+Iyi ni intambwe ya mbere ya Mworoha muri gouvernement — ariko atari iya nyuma.
 
 Kuva ku burezi, aja mu bushakashatsi, aja muri politike y'urwaruka n'umuco — Mworoha yari agenda yubaka inzira igana ku bubasha bukomeye kurushiriza.
 

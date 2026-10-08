@@ -14,15 +14,15 @@ Ni ukuvuga: ubutegetsi bushasha ntibwahavuye buva mu gisirikare. Igisirikare ni 
 
 ---
 
-Ku wa 13 Munyonyo 1976, hatangajwe gouvernome nshasha.
+Ku wa 13 Munyonyo 1976, hatangajwe gouvernement nshasha.
 
 [FR-CITATION] 🟢 Iyi tariki yemejwe n'inyandiko rusange ya Leta ubwayo: "Décret présidentiel n° 100/259 du 13 novembre 1976, portant composition du Gouvernement de la République du Burundi" (biciye ku bushakashatsi bwakusanyirijwe muri Repository ya Kaminuza ya Texas).
 
-Ariko hari ikibazo gikomeye tudakwiye kwirengagiza: Bagaza yavuze ko ashaka gukuraho regionalisme, ariko composition ya gouvernome yiwe ya mbere yarimwo cane abantu bakomoka i Bururi — akarere kiwe bwite.
+Ariko hari ikibazo gikomeye tudakwiye kwirengagiza: Bagaza yavuze ko ashaka gukuraho regionalisme, ariko composition ya gouvernement yiwe ya mbere yarimwo cane abantu bakomoka i Bururi — akarere kiwe bwite.
 
-Ntitwovuga ko yararwanije regionalisme ariko ntiyabishize mu ngiro — ivyo vyoba ari jugement. Tuvuga gusa: nubwo yavuze ko ashaka kubikuraho, gouvernome yiwe ya mbere yarangwaga n'abantu bakomoka mu karere kamwe.
+Ntitwovuga ko yararwanije regionalisme ariko ntiyabishize mu ngiro — ivyo vyoba ari jugement. Tuvuga gusa: nubwo yavuze ko ashaka kubikuraho, gouvernement yiwe ya mbere yarangwaga n'abantu bakomoka mu karere kamwe.
 
-[FR-CITATION] 🟡 IWACU ivuga ko, mu bagize gouvernome ya mbere (abaminisitiri 18), 3 gusa bari Abahutu — kandi ko bose (nk'uko ingingo ivuga) bakomoka i Bururi. Ariko iyo nkuru ifise impaka: mu vyavuzwe n'abasomyi, hari uwavuze ko umwe muri bo (Jean Kabura) yakomoka i Ijenda (Intara ya Bujumbura Rural), atari i Bururi — ico kintu kigomba kwongera gusuzumwa. Icizigiro rusange (ko ubutegetsi bwa Bagaza bwaranzwe n'ubukomezi bw'umuryango wa Bururi/Hima-Tutsi) na co kiboneka muri Wikipedia y'Igifaransa.
+[FR-CITATION] 🟡 IWACU ivuga ko, mu bagize gouvernement ya mbere (abaminisitiri 18), 3 gusa bari Abahutu — kandi ko bose (nk'uko ingingo ivuga) bakomoka i Bururi. Ariko iyo nkuru ifise impaka: mu vyavuzwe n'abasomyi, hari uwavuze ko umwe muri bo (Jean Kabura) yakomoka i Ijenda (Intara ya Bujumbura Rural), atari i Bururi — ico kintu kigomba kwongera gusuzumwa. Icizigiro rusange (ko ubutegetsi bwa Bagaza bwaranzwe n'ubukomezi bw'umuryango wa Bururi/Hima-Tutsi) na co kiboneka muri Wikipedia y'Igifaransa.
 
 ---
 

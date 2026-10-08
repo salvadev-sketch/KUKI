@@ -1,4 +1,4 @@
-# MON PAYS NATAL — SEASON 6 — EP05 — COUP YA GUSHYINGO 1966 — IHEREZO RY'UBWAMI
+# MON PAYS NATAL — SEASON 6 — EP05 — COUP YA MUNYONYO 1966 — IHEREZO RY'UBWAMI
 
 Ntare V yahisemwo Michel Micombero kugira abe umushikiranganji wa mbere.
 

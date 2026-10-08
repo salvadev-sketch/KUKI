@@ -36,6 +36,6 @@ Ntitwovuga ko yari mu bakoze ubwicanyi. Ntitwovuga na ngo ata co yari azi.
 
 ---
 
-Inyuma y'ivyo, aja i Buraya, arangiza amashure, hanyuma asubira mu Burundi, aja muri gouvernome ya Bagaza.
+Inyuma y'ivyo, aja i Buraya, arangiza amashure, hanyuma asubira mu Burundi, aja muri gouvernement ya Bagaza.
 
 **MON PAYS NATAL — SEASON 7 — EP13 — MWOROHA MURI GUVERINOMA YA BAGAZA**, ni ho tuzobandanya.

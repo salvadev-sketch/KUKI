@@ -20,7 +20,7 @@ Ndizeye yari umuhungu wa kabiri wa Mwambutsa IV — umwana wa mbere ari Louis Rw
 
 ---
 
-Yakuze mu gihe cabaye ikigoye ku muryango wiwe: mukuru wiwe, Louis Rwagasore (avutse mu 1932, ku wundi mugore wa se), na bashiki biwe, Rosa Paula na Régine Kanyange. Ariko Rwagasore yaguye igihe Ndizeye akiri umwana w'imyaka 9 — twize iyo nkuru muri Season 5.
+Yakuze mu gihe cabaye ikigoye ku muryango wiwe: mukuru wiwe, Louis Rwagasore (avutse mu 1932, ku wundi mugore wa se), na bashiki biwe, Rosa Paula na Régine Kanyange. Ariko Rwagasore yaguye igihe Ndizeye akiri umwana w'imyaka 13 — twize iyo nkuru muri Season 5.
 
 [FR-CITATION] 🟢 Wikipedia ("Mwambutsa IV of Burundi") ivuga ko abana ba Mwambutsa ari Louis Rwagasore, Rosa Paula Iribagiza, Régine Kanyange, na Charles Ndizeye. Twahinduye "murumuna" (uwato) aja "mukuru" kuko Rwagasore yavutse mu 1932, imyaka 15 imbere ya Ndizeye (1947).
 

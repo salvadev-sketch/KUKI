@@ -8,7 +8,7 @@ Ibice bimwe vy'ingabo vyatanguye guhiga Abahutu bakekwa kuba baragize uruhara mu
 
 ---
 
-Abasirikare bakuru bari mu kuyobora ibikorwa barimwo: Thomas Ndabememye (Chef d'État-Major), Albert Shibura, André Yanda, na Joseph Rwuri.
+Abasirikare bakuru bari mu kuyobora ibikorwa barimwo: Thomas Ndabemeye (Chef d'État-Major), Albert Shibura, André Yanda, na Joseph Rwuri.
 
 **Artémon Simbananiye**, na we, yarahawe ubushobozi bunini cane: ku wa 12 Rusama 1972, yarahawe ubushobozi bwo kuba **ambassadeur itinérant à pouvoirs plénipotentiaires**, akaba yari afise umwidegemvyo munini mu gutunganya ibikorwa vyo mu ntara.
 

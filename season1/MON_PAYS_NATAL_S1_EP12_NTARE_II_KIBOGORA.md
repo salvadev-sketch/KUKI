@@ -1,4 +1,4 @@
-# MON PAYS NATAL — EP12 — NTARE II KIBOGORA
+# MON PAYS NATAL — S1 — EP12 — NTARE II KIBOGORA
 
 Inyuma y'aba bami batandatu bo mu mwijima, hari umwe muri bo tudashobora kuraba mu buryo bumwe.
 

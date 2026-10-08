@@ -14,7 +14,7 @@ Ariko hano hari itandukaniro ry'ingenzi tudakwiye kwibagirwa:
 
 Inyuma y'urupfu rwa Ntaryamira, Urukiko Nshingamategeko rw'Uburundi rwaciye rufata ko ukutorwa kwiwe kwari gufise ikibazo c'amategeko, kuko atari yatorewe n'abanyagihugu biciye mu matora rusangi.
 
-Ntitwovuge ko Ntaryamira yari "Perezida atemewe." Tuvuge: **yari Perezida yatowe n'Inama Nshingamateka mu gihe c'inzibacyuho, kandi inyuma y'urupfu rwiwe havutse ikibazo c'ukuntu ubutegetsi bwiwe bwari buhuye n'Itegeko Nshingiro.**
+Ntitwovuge ko Ntaryamira yari "Perezida atemewe." Tuvuge: **yari Perezida yatowe n'Inama Nshingamateka mu gihe c'inzibacyuho, kandi inyuma y'urupfu rwiwe havutse ikibazo c'ukuntu ubutegetsi bwiwe bwari buhuye n'Itegeko Nshinga.**
 
 ---
 
