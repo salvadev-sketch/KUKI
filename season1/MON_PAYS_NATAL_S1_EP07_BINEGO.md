@@ -2,7 +2,7 @@
 
 Ryangombe yishwe n'igikoko/inyamaswa gifise amahembe.
 
-Kiranga na we yishwe gutyo nyene, n'impongo.
+Kiranga na we yishwe gutyo nyene, n'imbogo.
 
 Kandi mu nkuru zombi, hari umuntu umwe usigara inyuma, afise igikoresho kimwe mu ntoke:
 
@@ -33,7 +33,7 @@ Hari inkuru y'ubuhangange bwa Binego, akiri muto.
 
 Iyi nkuru ivuga ko yakuze afise inguvu zidasanzwe, akagira ibikorwa bikomeye kurusha uko umuntu asanzwe yokora — birimwo n'ivyo vyerekeye inka n'abantu — hanyuma akaja kurondera se, Ryangombe.
 
-Kandi hari igice kimwe kizwi cane: Ryangombe amaze kwicwa n'imbogo, Binego arahora, akica iyo mpongo yishe se, akoresheje icumu.
+Kandi hari igice kimwe kizwi cane: Ryangombe amaze kwicwa n'imbogo, Binego arahora, akica iyo mbogo yishe se, akoresheje icumu.
 
 [FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981, asubiramwo Luc de Heusch, *Le Rwanda et la civilisation interlacustre*, 1966, urup. 263) avuga ko iki gikorwa ca Binego gifasha se gihuzwa n'ikindi gikorwa gisa, ica Kyomya (umuhungu w'umwami Wamara) uza gufasha se, muri izindi migenzo yo mu karere k'ibiyaga bigari.
 

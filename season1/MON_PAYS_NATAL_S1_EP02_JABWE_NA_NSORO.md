@@ -20,7 +20,7 @@ Izina Ryansoro ubwaryo risobanurwa mu migenzo nk'**"itongo rya Nsoro"** — ubut
 
 Ntitwovuga ngo iyi migenzo yose ihuriye ku murongo umwe. Hari inyandiko imwe ivuga rugarugu: **Ntwero → Jabwe na Nsoro**, bakaba abavukana. Ariko hari n'indi nyandiko ivuga urundi rurondogoro: **Rufuku → Ntwero → Nsoro → Jabwe**, aho Jabwe na Nsoro batagizwe abavukana na gato.
 
-[FR-CITATION] 🟢 Chrétien (1981) yemeza ko "Rufuku" (ikinyugunyugu, canke inyamaswa yacukuye ubutaka) ari rimwe mu mazina ya Ntare Rushatsi ubwiwe, kandi ko iryo zina rigaragara mu migenzo hafi yose y'iki gice — harimwo n'iy'iyi EP02 ikurikiza (icibare c'inkuru za Nkoma abarungitsi barundamiye ni 64). Umugani "Rufuku rwafukiye Uburundi" ntuvuguruza rero inkuru y'iyi episode — urayikomeza.
+[FR-CITATION] 🟢 Chrétien (1981) yemeza ko "Rufuku" (ikinyugunyugu, canke inyamaswa yacukuye ubutaka) ari rimwe mu mazina ya Ntare Rushatsi ubwiwe, kandi ko iryo zina rigaragara mu migenzo hafi yose y'iki gice — harimwo n'iy'iyi EP02 ikurikiza. Umugani "Rufuku rwafukiye Uburundi" ntuvuguruza rero inkuru y'iyi episode — urayikomeza.
 
 [FR-CITATION] 🟡 Chrétien avuga na none ku rundi rurondogoro rutandukanye rwose, ico Jan Vansina yise "l'Anonyme de Kigamba" — inkuru imwe rudende, yakuwe ku muvugizi umwerukumbi mu 1959 ahitwa Cankuzo. Muri iyo nkuru, Ntare wa mbere (Rushatsi/Rufuku/Ruhinda) yari umwami w'igihugu c'i Kiremera; iyo apfuye, abana biwe babiri (Bubinga na Buhura) baratongana ku ngoma; nyuma y'amapfa akomeye, abarozi barondera uwundi mwami, baramubona ari umukorikori bita Ntare Biti; ku muryango wa uwo Ntare Biti niho hazokomoka uwitwa "Ntare Bitwero" (canke Ntwero), uwaje gutwara Ubututsi.
 
