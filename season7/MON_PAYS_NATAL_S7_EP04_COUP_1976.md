@@ -30,11 +30,11 @@ Micombero yarakuwe ku butegetsi. Thomas Ndabemeye na we yarakuwe mu mabanga yiwe
 
 Ku wa 2 Munyonyo, Bagaza yarasomye itangazo asigura impamvu z'ico gikorwa: ububasha bwose bwari bwarakoranirijwe ku muntu umwe, inzego zari zarahagaze, "nouvelle monarchie" yari itanguye kuboneka, UPRONA yari yaratakaje uruhara rwayo, kandi Itegeko Nshinga ntiryari rikiburahwa.
 
-Ijambo rye ryagumye: **"Les forces armées n'avaient plus d'autre choix."**
+Ijambo rye ryagumye: **« Reculer devant une telle situation aurait été un acte de défaillance... »**
 
 Ariko ntidukwiye gufata izo mvo nk'ukuri kudashidikanywako — ni ivyo ubutegetsi bushasha bwatanze, atari preuve.
 
-[FR-CITATION] 🟡 IWACU isubiramwo indi mvugo ivuye muri iryo tangazo: « Reculer devant une telle situation aurait été un acte de défaillance... » — ivyerekana ko koko Bagaza yasobanuye ico gikorwa nk'ikitagira uburyo bundi.
+[FR-CITATION] 🟡 IWACU isubiramwo iyi mvugo ivuye muri iryo tangazo — ivyerekana ko koko Bagaza yasobanuye ico gikorwa nk'ikitagira uburyo bundi.
 
 ---
 

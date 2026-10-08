@@ -18,11 +18,7 @@ Ntitwovuga 20.000 nk'igitigiri cemejwe. Tuvuga: 5.000 ni igiharuro cemejwe n'aba
 
 ---
 
-Ku wa **25 Myandagaro 1988**, Buyoya yavuze:
-
-**"Crimes were committed and committed in broad daylight."**
-
-Yavuze ko amategeko atavangura hagati y'imiryango, uturere, canke ubwoko, kandi yasezeranye ko abari inyuma y'ubwicanyi bazohanwa.
+Buyoya yavuze ko amategeko atavangura hagati y'imiryango, uturere, canke ubwoko, kandi yasezeranye ko abari inyuma y'ubwicanyi bazohanwa.
 
 ---
 

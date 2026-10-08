@@ -16,8 +16,6 @@ Mu **Ruheshi 1957**, yashinze **CCB — Coopérative des Commerçants du Burundi
 
 Ayo makoperative yaragutse.
 
-Mu **1958**, Rwagasore ubwiwe yaranditse ko CCB yari imaze gushikira **abadandaza 1.050**.
-
 Ntiyari iyo kugurisha gusa: yashaka kudandaza ikawa, itabi, ubunyobwa, ricin, amavuta y'ibigazi, ku masoko yo mu gihugu no hanze.
 
 Yarandikye ko ari **"une force économique future"** — ni co gituma, nk'uko yabyanditse, "on la combat sérieusement."

@@ -120,3 +120,59 @@ These were removed from the text so only spoken content remains. Nothing here is
 - `MON_PAYS_NATAL_S7_EP01_BAGAZA_INTANGO.md` — **First-person / to-do:** Sinabashije kubona isoko na rimwe rivuga Murambi — ico gice kigomba kwongera gusuzumwa niba dushaka kugikomeza muri iki kiganiro.  ⇒ replaced with: Nta soko rivuga Murambi.
 - `MON_PAYS_NATAL_S7_EP09_KILIZIYA.md` — **Revision note:**  Twakuyeho itariki ya 13 Nyakanga 1987 y'ifungurwa rya Cathédrale ya Gitega yari mu nyandiko ya mbere, kuko nta soko na rimwe ryizewe ryayemeje.
 - `MON_PAYS_NATAL_S7_EP16_COUP_1987.md` — **First-person:** Itariki nyayo yo gufungura Cathédrale ya Gitega ntitwabashije kuyibona, ni co gituma tutayivuga.  ⇒ replaced with: Nta soko ritanga itariki nyayo yo gufungura Cathédrale ya Gitega, ni co gituma tutayivuga.
+
+# A4 — unsourced claims removed from narration (re-add only with a source)
+
+- `MON_PAYS_NATAL_S5_EP04_AMAKOPERATIVE.md`
+  - removed: Mu **1958**, Rwagasore ubwiwe yaranditse ko CCB yari imaze gushikira **abadandaza 1.050**.
+
+
+  - now: (deleted)
+- `MON_PAYS_NATAL_S5_EP21_IFUNGWA_1963.md`
+  - removed: Ku wa **17 Mukakaro 1963**, arekuwe rwose — inyuma y'intervention ya **Mwambutsa IV Bangiricenge**.
+  - now: Ku wa **1 Ntwarante 1963**, arekuwe rwose.
+- `MON_PAYS_NATAL_S5_EP21_IFUNGWA_1963.md`
+  - removed: [FR-CITATION] 🟡 Wikipedia ("Claver Nuwinkware") ivuga ko "In late February 1963, Hutu political leader Paul Mirerekano was arrested, but Nuwinkware ordered him released on 1 March" — itariki y'ifatwa (hafi) ihuye n'iyo EP21 ivuga, ariko itariki yo kurekurwa (1 Ntwarante) itandukanye n'iyo EP21 ivuga (17 Mukakaro). Ntitwovuga rimwe muri izo nk'ukuri kwose.
+  - now: [FR-CITATION] 🟢 Wikipedia ("Claver Nuwinkware") ivuga ko mu mpera za Ruhuhuma 1963 Paul Mirerekano yafashwe, maze Nuwinkware agategeka ko arekurwa ku wa 1 Ntwarante.
+- `MON_PAYS_NATAL_S6_EP24_UMURAGE.md`
+  - removed: Ku wa **28 Ntwarante 2019**, Vatican yaratanze **nihil obstat** ku ntango y'ikibazo co gusaba **beatification na canonisation** ya Michel Kayoya, hamwe n'abandi 43 bapfuye mu bihe bitandukanye mu Burundi.
+
+[FR-CITATION] 🟡 Nta soko ryihariye ryo kuri internet ryemeza iyi tariki n'uyu mubare (43); iri gice rikeneye kwongera kwemezwa, naho rihuye n'ingene Kiliziya Gatolika mu Burundi yagiye ivuga ku bapfuye ba 1972 nk'abahowe Imana.
+
+Ivyo ntibisobanura ko Kayoya yamaze kuba umutagatifu. Bisobanura ko inzira y'ubushakashatsi bw'iryo hangiro yashoboye gutangura.
+
+---
+
+
+  - now: (deleted)
+- `MON_PAYS_NATAL_S7_EP04_COUP_1976.md`
+  - removed: **"Les forces armées n'avaient plus d'autre choix."**
+  - now: **« Reculer devant une telle situation aurait été un acte de défaillance... »**
+- `MON_PAYS_NATAL_S7_EP04_COUP_1976.md`
+  - removed: IWACU isubiramwo indi mvugo ivuye muri iryo tangazo: « Reculer devant une telle situation aurait été un acte de défaillance... » — ivyerekana
+  - now: IWACU isubiramwo iyi mvugo ivuye muri iryo tangazo — ivyerekana
+- `MON_PAYS_NATAL_S8_EP05_INYISHU_IGISIRIKARE.md`
+  - removed: Ku wa **25 Myandagaro 1988**, Buyoya yavuze:
+
+**"Crimes were committed and committed in broad daylight."**
+
+Yavuze ko
+  - now: Buyoya yavuze ko
+- `MON_PAYS_NATAL_S8_EP06_IMPUNZI.md`
+  - removed: Amakuru yo muri ico gihe avuga hafi **60.000** b'Abarundi bahungiye mu Rwanda.
+  - now: Amakuru yo muri ico gihe avuga ko Abarundi benshi bahungiye mu Rwanda.
+- `MON_PAYS_NATAL_S8_EP06_IMPUNZI.md`
+  - removed: Ku wa **8 Kigarama 1988**, UPI yatangaje ko abarenga **50.000** bari bamaze gusubira mu Burundi. UNHCR ivuga ko mu 1988 habaye **53.000 b'Abarundi** basubiye mu Burundi bavuye mu Rwanda.
+  - now: Inyuma y'aho, benshi mu bahunze baratanguye gusubira mu Burundi bavuye mu Rwanda.
+- `MON_PAYS_NATAL_S8_EP06_IMPUNZI.md`
+  - removed:  Amazu hafi **1.800** yari amaze gusubirwamwo canke gufashwa kwubakwa, biciye ku mugambi witwa **"Operation Solidarity."**
+  - now: (deleted)
+- `MON_PAYS_NATAL_S8_EP16_MALI_SAHEL.md`
+  - removed: Le Monde yamudondoye nk'umuntu wagiye hagati ya **"coups d'État et compromis"** — hagati y'ugufata ubutegetsi n'ugushaka ubwumvikane bwa politike.
+  - now: Ubuzima bwiwe bwarangwa n'ugufata ubutegetsi n'ugushaka ubwumvikane bwa politike.
+- `MON_PAYS_NATAL_S8_EP17_ISOZERO.md`
+  - removed: avuga ko rwari nk'**"urubanza rutari urw'ubutungane"** — nk'uko Le Monde yabivuze.
+  - now: .
+- `MON_PAYS_NATAL_S8_EP17_ISOZERO.md`
+  - removed: atazohambwa ubwo nyene mu Burundi — yahambwe igihe gito muri Mali, mu gihe umuryango utari uraf��ta ingingo ya nyuma.
+  - now: atazohambwa ubwo nyene mu Burundi.

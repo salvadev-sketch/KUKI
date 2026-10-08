@@ -6,7 +6,7 @@ Mu **Gitugutu 2020**, ubutungane bw'Uburundi bwamukatiye **igifungo c'ubuzima bw
 
 Urubanza rwabaye Buyoya atari mu Burundi.
 
-We ubwiwe yararwiyamirije, avuga ko rwari nk'**"urubanza rutari urw'ubutungane"** — nk'uko Le Monde yabivuze.
+We ubwiwe yararwiyamirije.
 
 ---
 
@@ -22,7 +22,7 @@ African Union yemeje ko yapfiriye i Paris.
 
 ---
 
-Inyuma y'urupfu rwiwe, umuryango wiwe watangaje ko atazohambwa ubwo nyene mu Burundi — yahambwe igihe gito muri Mali, mu gihe umuryango utari uraf��ta ingingo ya nyuma.
+Inyuma y'urupfu rwiwe, umuryango wiwe watangaje ko atazohambwa ubwo nyene mu Burundi.
 
 Ntidushobora kuvuga vyinshi ku bijanye n'ihambwa rya nyuma — nta soko ikomeye tudufise.
 

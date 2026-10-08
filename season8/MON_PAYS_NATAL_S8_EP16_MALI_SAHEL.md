@@ -24,7 +24,7 @@ Inshingano ziwe zari zijanye no gusubiza ubusugire bwa Leta ya Mali, kugarukana 
 
 Yagumye kuri uwo mwanya imyaka hafi umunani, gushika mu **Munyonyo 2020**.
 
-Le Monde yamudondoye nk'umuntu wagiye hagati ya **"coups d'État et compromis"** — hagati y'ugufata ubutegetsi n'ugushaka ubwumvikane bwa politike.
+Ubuzima bwiwe bwarangwa n'ugufata ubutegetsi n'ugushaka ubwumvikane bwa politike.
 
 ---
 

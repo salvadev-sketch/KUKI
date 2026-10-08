@@ -28,9 +28,9 @@ Ariko ntitwovuga ngo Gendarmerie yose yari ku ruhande rwiwe. Igice gusa ni co ca
 
 Mirerekano yarasubijwe mw'ibohero.
 
-Ku wa **17 Mukakaro 1963**, arekuwe rwose — inyuma y'intervention ya **Mwambutsa IV Bangiricenge**.
+Ku wa **1 Ntwarante 1963**, arekuwe rwose.
 
-[FR-CITATION] 🟡 Wikipedia ("Claver Nuwinkware") ivuga ko "In late February 1963, Hutu political leader Paul Mirerekano was arrested, but Nuwinkware ordered him released on 1 March" — itariki y'ifatwa (hafi) ihuye n'iyo EP21 ivuga, ariko itariki yo kurekurwa (1 Ntwarante) itandukanye n'iyo EP21 ivuga (17 Mukakaro). Ntitwovuga rimwe muri izo nk'ukuri kwose.
+[FR-CITATION] 🟢 Wikipedia ("Claver Nuwinkware") ivuga ko mu mpera za Ruhuhuma 1963 Paul Mirerekano yafashwe, maze Nuwinkware agategeka ko arekurwa ku wa 1 Ntwarante.
 
 Umwami, naho atari umunywanyi wa Monrovia canke Casablanca, yagumye afise uruhara mu bibazo bikomeye vya politike y'igihugu.
 
