@@ -24,6 +24,6 @@ Ntitwovuga ngo abantu bose bafatanywe uruhara rumwe — Iatrou ubwiwe yarahakany
 
 **[CITATION — 🟢]**
 
-Inyandiko nyayo ya Commission y'Umuryango w'Abibumbye ku rupfu rwa Rwagasore (francegenocidetutsi.org, fiche 25932) ni yo soko nyamukuru, kandi iyemeza ko Ntidendereza avugwa cane muri ubwo buhamya — atari uko EP11 yabivuze mbere. Wikipedia ("Jean-Baptiste Ntidendereza"), Guy Poppe (*L'assassinat de Rwagasore, le Lumumba Burundais*, biciye kuri Iwacu-Burundi), na Afrika Focus (impapuro za kaminuza) bakomeza bemeza iyi nkuru, harimwo n'uko Iatrou yahakanye uruhara rwiwe naho Ntidendereza yaciye avuguruza ivyo yavuze.
+Inyandiko nyayo ya Commission y'Umuryango w'Abibumbye ku rupfu rwa Rwagasore (francegenocidetutsi.org, fiche 25932) ni yo soko nyamukuru, kandi iyemeza ko Ntidendereza avugwa cane muri ubwo buhamya. Wikipedia ("Jean-Baptiste Ntidendereza"), Guy Poppe (*L'assassinat de Rwagasore, le Lumumba Burundais*, biciye kuri Iwacu-Burundi), na Afrika Focus (impapuro za kaminuza) bakomeza bemeza iyi nkuru, harimwo n'uko Iatrou yahakanye uruhara rwiwe naho Ntidendereza yaciye avuguruza ivyo yavuze.
 
 ---

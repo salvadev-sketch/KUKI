@@ -26,6 +26,4 @@ Ubutungane bw'Uburundi bwigenga, bwari bugiye gufata ingingo ku kibazo cari kima
 
 Wikipedia ("Jean-Baptiste Ntidendereza," "Supreme Court of Burundi") yemeza itariki (27 Gitugutu 1962) Supreme Court yafashe ingingo yo gusubiramwo urubanza, kubera ko urubanza rwa mbere rutari rwubahirije uburenganzira bwo guburanishwa na "jury" nk'uko Itegeko Nshinga rishasha ribisaba.
 
-*Iki gikemura ikibazo twari twaravuze kuri EP12: "27 Munyonyo" ntiwari uvuguruza "2 Ndamukiza" — ni ibintu bibiri bikurikirana: Gitugutu 27 = Supreme Court yategeka gusubiramwo; Munyonyo 27 = urukiko rwo hasi rwaciye urundi rubanza (EP14).*
-
 ---

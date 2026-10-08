@@ -20,8 +20,6 @@ Mworoha yarandikiye amabaruwa, harimwo rimwe ryo ku wa **15 Rusama 1972**.
 
 Iryo baruwa ryerekana ko ku bwiwe, uburyozwe bw'ivyariko biraba butari ubwa JRR nk'umuryango, ahubwo bwari bufitaniye isano n'ubutegetsi bw'igihugu n'igisirikare.
 
-🟡 *(Iyo ngingo ya IWACU ni hommage yanditswe nyuma y'urupfu rwiwe; hari kandi amasoko atunga urutoki Mworoha nk'uwagize uruhara muri JRR mu 1972 (nk'uko urubuga burundi-agnews.org rubivuga, rufise ingingo ishinja). Ivyo ni ibirego bitandukanye, bidashigikiwe n'ibimenyetso by'ibanze twabonye; tubishira ku ruhande rumwe n'irindi.)*
-
 ---
 
 [FR-CITATION] 🟡 JusticeInfo.net (4 Ntwarante 2021) ivuga ko imirimo ya CVR yibanze ku bwicanyi bwo mu 1972 bwibasiye Abahutu, kandi ko ari commission yari yaramaze kuvugwako ari igikoresho cya propagande y'ubutegetsi buriho. Ico ni co gituma isoko ya CVR ikeneye kwemezwa n'indi.

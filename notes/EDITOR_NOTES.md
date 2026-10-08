@@ -87,6 +87,7 @@ These were removed from the text so only spoken content remains. Nothing here is
 - **First-person note (quote still unverified, A4):**  🟡 *(Sinabashije kubona iyi mvugo yihariye "Les forces armées n'avaient plus d'autre choix" muri ico co gitangazo — bishoboka ko ari uwundi murongo w'ijambo rye ridatatuwe muri ubu bushakashatsi, ariko ntibishoboka kwemeza ijambo ku ijambo.)*
 
 ## MON_PAYS_NATAL_S7_EP12_MWOROHA_1972.md
+- **Editor/revision note:** 🟡 *(Iyo ngingo ya IWACU ni hommage yanditswe nyuma y'urupfu rwiwe; hari kandi amasoko atunga urutoki Mworoha nk'uwagize uruhara muri JRR mu 1972 (nk'uko urubuga burundi-agnews.org rubivuga, rufise ingingo ishinja). Ivyo ni ibirego bitandukanye, bidashigikiwe n'ibimenyetso by'ibanze twabonye; tubishira ku ruhande rumwe n'irindi.)*
 - **Revision note:**  Ntitwabashije kuronka inyandiko y'urwo rwandiko ubwarwo. Inyandiko ya mbere yavuze ko yandikiye Perezida Micombero; amasoko dufise avuga abategetsi b'ubucamanza, igisirikare n'umutekano, atari Micombero wenyene.
 
 ## MON_PAYS_NATAL_S7_EP14_MWOROHA_SG.md
@@ -201,3 +202,9 @@ Decision: S5 is the full telling (Rwagasore, Ngendandumwe, 1961–1965). S4 EP11
 - Ntare V's coronation date: sources disagree (1 September: Wikipedia "July 1966 Burundian coup d'état", APA, a 1966 coin; 3 September: Wikipedia "Ntare V of Burundi", Royal Ark). The narration now gives only the month and both citations list both dates.
 - S6 EP05 no longer repeats S4 EP22's closing sentence word for word.
 - S4 EP08: Ndizeye's mother is Baramparaye (as in S6 EP01), not Thérèse Kanyonga.
+
+## MON_PAYS_NATAL_S5_EP11_UBWABUZE_BWA_KAGEORGIS.md
+- **Editor/revision note:** (clause removed from the citation) "— atari uko EP11 yabivuze mbere"
+
+## MON_PAYS_NATAL_S5_EP13_UBWIGENGE_BURAZA_URUBANZA_RURASUBIRWAMWO.md
+- **Editor/revision note:** *Iki gikemura ikibazo twari twaravuze kuri EP12: "27 Munyonyo" ntiwari uvuguruza "2 Ndamukiza" — ni ibintu bibiri bikurikirana: Gitugutu 27 = Supreme Court yategeka gusubiramwo; Munyonyo 27 = urukiko rwo hasi rwaciye urundi rubanza (EP14).*
