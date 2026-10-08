@@ -48,7 +48,7 @@ Hari ikibazo tutigeze dushobora gusubiza, naho twagerageje kenshi:
 
 **Ni nde yamwemeye? Ni nde yamushize ku ngoma?**
 
-Amasoko dufise ubu ntafise inyishu. Amasoko yose ari muri iyi repo ku vyerekeye "ukwimikwa" ni ay'abami bo mu myaka ya vuba — Mwambutsa, Ntare V — atari ay'uwo twita umwami wa mbere. Ni ikibazo dusigaranye, ata guhimba.
+Amasoko dufise ubu ntafise inyishu. Amasoko yose dufise ku vyerekeye "ukwimikwa" ni ay'abami bo mu myaka ya vuba — Mwambutsa, Ntare V — atari ay'uwo twita umwami wa mbere. Ni ikibazo dusigaranye, ata guhimba.
 
 ---
 

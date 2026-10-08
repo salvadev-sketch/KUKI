@@ -32,8 +32,6 @@ Kuri Ntidendereza na Biroli, iyi yari intsinzi ikomeye ibabujije amahirwe bari b
 
 Kandi mu myaka mike gusa, iryo hombo rizoza kugira ingaruka zibabaje.
 
-🟡 *(Icyitonderwa: umutwe w'iyi episode uvuga "iminsi 16" — ibarwa rya 28 Nyakanga gushika 13 Gitugutu ritanga iminsi 15 (ritarimwo) canke 16 (ririmwo byombi) hakurikijwe uburyo bubarwa. EP14 ya Season4 yakoresheje "15." Ikwiye guhuzwa mu nyuma.)*
-
 ---
 
 **MON PAYS NATAL — SEASON 5 — EP09 — UMUSHIKIRANGANJI WA MBERE — IMINSI 16**, ni ho tuzoraba iherezo ry'ubwo butegetsi.

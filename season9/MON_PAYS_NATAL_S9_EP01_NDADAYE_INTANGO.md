@@ -10,7 +10,7 @@ Amakuru arambuye ku bwana bwiwe n'umuryango wiwe ni make — iki ni ikibazo gike
 
 Yagiye kwiga muri Rwanda, aho yize mu Ishuri Rikuru rya Kaminuza y'igihugu (Université Nationale du Rwanda), aronka licence mu 1980, hanyuma agakora nk'umwigisha i Save kuva 1980 gushika 1983.
 
-[FR-CITATION] 🟢 Wikipedia na Universalis bemeza iyo nkuru (Université Nationale du Rwanda, licence 1980, umwigisha i Save 1980-1983); nta soko ryabonye rivuga Côte d'Ivoire — twahinduye iryo tagishimikiro.
+[FR-CITATION] 🟢 Wikipedia na Universalis bemeza iyo nkuru (Université Nationale du Rwanda, licence 1980, umwigisha i Save 1980-1983).
 
 Ntitwovuga ngo turazi neza igituma yagiye kwiga hanze — iki ni ikindi kintu tuzogumana nk'ikibazo, atari ukuri kwuzuye.
 

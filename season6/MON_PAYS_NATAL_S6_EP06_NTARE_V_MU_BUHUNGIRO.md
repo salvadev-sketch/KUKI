@@ -4,7 +4,7 @@ Umwami yakuwe ku ngoma yagiye mu buhungiro.
 
 Yabaye i Buraya, cane cane mu **Budagi** (Icongereza: West Germany).
 
-[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi," "Ikiza") na Executedtoday.com bemeza ko yahunze mu Budagi bw'i Buraya (West Germany), hanyuma nyuma aja muri Uganda. 🔴 *(Ikibanza nyaco ca Munich ntitwabashije kukwemeza mu masoko dufise; birashoboka ko ari ho yari, ariko rikeneye kwongera kwemezwa.)*
+[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi," "Ikiza") na Executedtoday.com bemeza ko yahunze mu Budagi bw'i Buraya (West Germany), hanyuma nyuma aja muri Uganda.
 
 ---
 

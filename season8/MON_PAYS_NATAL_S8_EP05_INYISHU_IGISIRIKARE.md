@@ -34,8 +34,6 @@ Ubwo bwicanyi ntibwaguma ku bihugu vyombi bireba. Bwahindutse ikibazo mpuzamakun
 
 Wikipedia ("1988 ethnic violence in Burundi") na yo ikoresha igitigiri nka 20.000, bihuye n'ico Guichaoua atanga — bikomeza icizere kuri iyi mibare. Ariko ni ngombwa kumenya ko igitigiri cy'abapfuye gifise impaka zikomeye, zishingiye ku ruhande rwa politiki/ubwoko: amasoko amwe (Iwacu-Burundi, AMEPCI) atanga 25.000-50.000; andi (biva ku mbuga zifatanije n'ubwoko bumwe) atanga 150.000 kandi bakita ivyabaye "génocide." Twagumye kuri 5.000 (Leta) na 20.000 (Guichaoua) kubera ko ari amasoko abiri afise agaciro k'ubuhinga, atavuye ku mbuga z'ihaguriro.
 
-Ku bijanye n'icivugo ca Buyoya (25 Myandagaro 1988), sinabashije kuronka isoko ryigenga ku murongo — birashoboka ko civuye mu bubiko bw'ibinyamakuru (nka archives za AP/Le Monde) bidashobora kuboneka ku buntu kuri internet ubu. Ikwiye gucungurwa hakoreshejwe iryo bubiko nimba rihari.
-
 ---
 
 **MON PAYS NATAL — SEASON 8 — EP06 — IMPUNZI N'INGARUKA**, ni ho tuzoraba abahunze n'icabakurikiye.

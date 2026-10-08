@@ -28,7 +28,7 @@ Ubu, Kayoya afatwa nk'umwe mu bantu bakomeye mu mateka y'ubwenge n'ubwanditsi bw
 
 Ku wa **28 Ntwarante 2019**, Vatican yaratanze **nihil obstat** ku ntango y'ikibazo co gusaba **beatification na canonisation** ya Michel Kayoya, hamwe n'abandi 43 bapfuye mu bihe bitandukanye mu Burundi.
 
-[FR-CITATION] 🟡 Sinabashije kubona isoko ryihariye ryo kuri internet ryemeza iyi tariki n'uyu mubare (43); iri gice rikeneye kwongera kwemezwa, naho rihuye n'ingene Kiliziya Gatolika mu Burundi yagiye ivuga ku bapfuye ba 1972 nk'abahowe Imana.
+[FR-CITATION] 🟡 Nta soko ryihariye ryo kuri internet ryemeza iyi tariki n'uyu mubare (43); iri gice rikeneye kwongera kwemezwa, naho rihuye n'ingene Kiliziya Gatolika mu Burundi yagiye ivuga ku bapfuye ba 1972 nk'abahowe Imana.
 
 Ivyo ntibisobanura ko Kayoya yamaze kuba umutagatifu. Bisobanura ko inzira y'ubushakashatsi bw'iryo hangiro yashoboye gutangura.
 

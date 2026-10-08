@@ -30,8 +30,6 @@ Ariko ikibazo gikomeye cane kirasigaye: **Uburundi bushobora gute kwirinda ko ib
 
 **[CITATION — 🟡]**
 
-Inyuma nyayo y'ivyabaye (ubwicanyi bwatumye impunzi zigenda mu Rwanda, hanyuma zigasubira mu Burundi) irahuye n'amateka azwi (Wikipedia). Ariko imibare y'umwihariko (60.000 bahunze; 50.000-53.000 basubiye; amazu 1.800 muri "Operation Solidarity") sinabashije kuyemeza canke kuyihakana binyuze mu bushakashatsi bw'iki gihe kuri internet — ibi bishobora kuba biri mu bubiko bw'umwihariko (UNHCR 1988 Annual Report, UPI wire archives) budashobora kuboneka ku buntu online none. Ikeneye gucungurwa n'uwafashe iryo soko mu ntango.
-
 ---
 
 **MON PAYS NATAL — SEASON 8 — EP07 — GUVERINOMA NSHASHA — ADRIEN SIBOMANA**, ni ho tuzoraba icambwe cy'igisubizo Buyoya yatanze.

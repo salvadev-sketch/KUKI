@@ -34,7 +34,7 @@ Ijambo rye ryagumye: **"Les forces armées n'avaient plus d'autre choix."**
 
 Ariko ntidukwiye gufata izo mvo nk'ukuri kudashidikanywako — ni ivyo ubutegetsi bushasha bwatanze, atari preuve.
 
-[FR-CITATION] 🟡 IWACU isubiramwo indi mvugo ivuye muri iryo tangazo: « Reculer devant une telle situation aurait été un acte de défaillance... » — ivyerekana ko koko Bagaza yasobanuye ico gikorwa nk'ikitagira uburyo bundi. 🟡 *(Sinabashije kubona iyi mvugo yihariye "Les forces armées n'avaient plus d'autre choix" muri ico co gitangazo — bishoboka ko ari uwundi murongo w'ijambo rye ridatatuwe muri ubu bushakashatsi, ariko ntibishoboka kwemeza ijambo ku ijambo.)*
+[FR-CITATION] 🟡 IWACU isubiramwo indi mvugo ivuye muri iryo tangazo: « Reculer devant une telle situation aurait été un acte de défaillance... » — ivyerekana ko koko Bagaza yasobanuye ico gikorwa nk'ikitagira uburyo bundi.
 
 ---
 

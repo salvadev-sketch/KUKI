@@ -26,7 +26,7 @@ Ariko imbere y'uko Ndadaye arahira, hari hamaze kuboneka ikimenyetso c'akaga.
 
 Ku wa **3 Mukakaro 1993**, habaye ikigeragezo c'abasirikare co gufata ubutegetsi.
 
-[FR-CITATION] 🟢 AFP (21 Gitugutu 1993) ivuga itariki ya 3 Mukakaro; twahinduye "2" aja kuri "3" kugira tubihuze n'iryo soko.
+[FR-CITATION] 🟢 AFP (21 Gitugutu 1993) ivuga itariki ya 3 Mukakaro.
 
 **Buyoya ubwiwe, akiri Perezida, ni we yagihagaritse.**
 

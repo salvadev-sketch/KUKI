@@ -50,7 +50,7 @@ Aha ni ho ubutegetsi bwa kabiri bwa Pierre Buyoya burangirira — imyaka umunani
 
 **[CITATION — 🟢/🟡]**
 
-International Crisis Group (raporo ebyiri zitandukanye), Wikipedia ("Burundian Civil War," "Domitien Ndayizeye," "Pierre Buyoya"), na Refworld/CPJ byemeza: itariki Mandela yatanze umugambi (23 Mukakaro 2001 — igikosowe hano, cari 10 mbere), intango y'inzibacyuho (1 Munyonyo 2001), n'itariki Ndayizeye yararahiye (30 Ndamukiza 2003).
+International Crisis Group (raporo ebyiri zitandukanye), Wikipedia ("Burundian Civil War," "Domitien Ndayizeye," "Pierre Buyoya"), na Refworld/CPJ byemeza: itariki Mandela yatanze umugambi (23 Mukakaro 2001), intango y'inzibacyuho (1 Munyonyo 2001), n'itariki Ndayizeye yararahiye (30 Ndamukiza 2003).
 
 ---
 

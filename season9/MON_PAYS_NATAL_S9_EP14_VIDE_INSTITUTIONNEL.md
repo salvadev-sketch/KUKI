@@ -16,7 +16,7 @@ Raporo y'Umunyamabanga Mukuru wa ONU, yo mu mpera za Gitugutu 1993, ivuga ikintu
 
 Ni ukuvuga: mu ntango, Leta n'igisirikare vyombi vyari vyarananiwe gukoresha ububasha bwabyo mu gihugu cose.
 
-[FR-CITATION] 🟡 Sinabashije kubona iyi nkuru nyene y'umutwe wa ONU muri uyu musozo w'ubushakashatsi, ariko iragenda neza n'ivyavuzwe na UN Security Council Resolution 1012 (1995) hamwe n'uruhushya rwa Commission internationale d'enquête (reba EP08).
+[FR-CITATION] 🟡 Nta soko ryavuze iyi nkuru nyene y'umutwe wa ONU, ariko iragenda neza n'ivyavuzwe na UN Security Council Resolution 1012 (1995) hamwe n'uruhushya rwa Commission internationale d'enquête (reba EP08).
 
 ---
 

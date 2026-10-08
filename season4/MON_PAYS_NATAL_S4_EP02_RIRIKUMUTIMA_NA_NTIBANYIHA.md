@@ -42,7 +42,7 @@ Hari n'indi nkuru, ikomeye kurusha, ijanye n'uwitwa **Niyakire**, avugwa nk'umug
 
 Isoko rya kabiri, ridatandukanye na UFRGS: Emile Mworoha (umuhinga w'amateka y'Uburundi, biciye ku bushakashatsi bwakozwe na Yaga-Burundi) na we yemeza ko amakimbirane yo gukurikirana Mwezi Gisabo yazingirwa hagati ya Ririkumutima n'umuhungu wa Gisabo (Mworoha aramwita **Ntarugera** — bitandukanye gato n'imyandikire ya UFRGS, **Ntarurega**; birashoboka ko ari uwo muntu nyene, imyandikire yonyene itandukanye). Ubu buhuza bw'amasoko abiri butandukanye buduha icizere gikomeye kuri iyi ngingo.
 
-Inkuru ya Niyakire (umugore wa Mutaga wivugwa ko yishwe ku kirimba) igumana nk'imigenzo yo mu kanwa — nta soko ry'inyandiko ry'ico gihe naboneye ribemeza.
+Inkuru ya Niyakire (umugore wa Mutaga wivugwa ko yishwe ku kirimba) igumana nk'imigenzo yo mu kanwa — nta soko ry'inyandiko ry'ico gihe twaboneye ribemeza.
 
 ---
 

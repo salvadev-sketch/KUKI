@@ -36,7 +36,7 @@ Inyandiko y'Université du Burundi ivuga ko, inyuma y'ukubura kwa Ndivyariye, ar
 
 Ni ukuvuga: **Batare ≠ abagarariji bose.**
 
-[FR-CITATION] 🟡 Iki gitekerezo cavuye ku "Inyandiko y'Université du Burundi," nk'uko byavuzwe hejuru — sinabashije kuronka indi soko yigenga ivyemeza. Igomba kwongera kwemezwa niba dushaka kuyongera ku rwego rwo hejuru.
+[FR-CITATION] 🟡 Iki gitekerezo cavuye ku "Inyandiko y'Université du Burundi," nk'uko byavuzwe hejuru — nta yindi soko yigenga ivyemeza.
 
 Hari abaganwa bakomoka kuri Ntare Rugamba bashobora kuba bari ku ruhande rwa Mwezi. Abandi bakamurwanya.
 

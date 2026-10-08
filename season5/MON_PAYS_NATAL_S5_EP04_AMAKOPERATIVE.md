@@ -42,8 +42,6 @@ Ubutunzi, kuri Rwagasore, ntibwari bwigenga ku vya politike.
 
 Wikipedia ("Louis Rwagasore"), Christine Deslaurier (biciye kuri Cairn.info), na Yaga-Burundi bemeza: Rwagasore yinjiye mu murimo w'abakoloni muri Ndamukiza 1957, CCB yiyandikishije ku mugaragaro muri Ruheshi 1957 (isoko rimwe ritanga italiki nyayo, 19 Ruheshi), na Paul Mirerekano nk'umufatanije mukuru. CCRU (yiswe na ryo CCC-RU) yari yamaze kuboneka kuva 1955, Rwagasore ayirongoye inyuma.
 
-Sinabashije kuronka isoko ryigenga ku gitigiri "abadandaza 1.050" — gikeneye gucungurwa.
-
 ---
 
 **MON PAYS NATAL — SEASON 5 — EP05 — UPRONA IRASHINGWA**, ni ho tuzoraba ico gitekerezo kiba umugambwe.

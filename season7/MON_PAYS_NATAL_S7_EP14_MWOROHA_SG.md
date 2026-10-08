@@ -10,7 +10,7 @@ Iyi ni yo ntambwe nyamukuru ikomeye cane mu buzima bwiwe bwa politike.
 
 Kuko UPRONA yari umugambwe umwe rukumbi mu Burundi muri ico gihe, uwo mwanya wari ukomeye cane.
 
-[FR-CITATION] 🟡 Guichaoua (Panthéon-Sorbonne) avuga ko UPRONA yavuguruwe kuva mu 1977. Ariko ntitwabonye itariki n'ubwoko bwa congrès ya mbere y'igihugu (ico dutangaza mu nyandiko ya mbere ni 1979), ni co gituma tutayivuga nk'ukuri kwemejwe. 🟡 Ivyo tuzi: Central Committee nshasha yarashizweho, kandi kuva muri Nzero 1980, iyo Central Committee itangura gufata ibikorwa vyari vyasanzwe bikorwa na Conseil Suprême Révolutionnaire — twize kuri iyo mpinduka muri EP07.
+[FR-CITATION] 🟡 Guichaoua (Panthéon-Sorbonne) avuga ko UPRONA yavuguruwe kuva mu 1977. Ariko nta soko ritanga itariki n'ubwoko bwa congrès ya mbere y'igihugu, ni co gituma tutayivuga nk'ukuri kwemejwe. 🟡 Ivyo tuzi: Central Committee nshasha yarashizweho, kandi kuva muri Nzero 1980, iyo Central Committee itangura gufata ibikorwa vyari vyasanzwe bikorwa na Conseil Suprême Révolutionnaire — twize kuri iyo mpinduka muri EP07.
 
 ---
 

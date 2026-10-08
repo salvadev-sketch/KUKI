@@ -4,7 +4,7 @@ Ndadaye yari afise umugambi w'imyaka itanu.
 
 Ariko yagumye ku butegetsi **iminsi 103 gusa** (10 Mukakaro – 21 Gitugutu 1993).
 
-[FR-CITATION] 🟢 Wikipedia ("List of presidents of Burundi") itanga ibarwa ryeruye: iminsi 103. Twahinduye "112" (iryari riri mu mutwe w'iyi episode) kuko nta soko ryaryemeza — 103 ni ryo bibarwa biva ku matariki yombi yemejwe n'amasoko yose (10 Mukakaro n'21 Gitugutu 1993).
+[FR-CITATION] 🟢 Wikipedia ("List of presidents of Burundi") itanga ibarwa ryeruye: iminsi 103, ni ryo bibarwa biva ku matariki yombi yemejwe n'amasoko yose (10 Mukakaro n'21 Gitugutu 1993).
 
 ---
 

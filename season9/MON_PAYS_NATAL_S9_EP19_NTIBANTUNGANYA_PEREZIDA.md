@@ -36,6 +36,4 @@ Imyaka itarenga umwaka, Uburundi bwari bumaze kubona abakuru b'igihugu bane.
 
 Wikipedia ("Sylvestre Ntibantunganya"), The East African, na AllAfrica byemeza itariki (23 Kigarama 1993, Umukuru w'Inama Nshingamateka; 8 Ndamukiza 1994, Umukuru w'Igihugu mu gihe c'agateganyo; 30 Nyakanga 1994, yemejwe burundu).
 
-*Ikosa ryakosowe: iyi episode yari ivuga "8 Nzero 1994," ariko ibi ntibishoboka mu gihe (Ntaryamira yari akiriho muri Nzero, yarapfuye 6 Ndamukiza). Itariki nyayo ni 8 Ndamukiza 1994.*
-
 ---

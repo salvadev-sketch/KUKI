@@ -24,7 +24,7 @@ Kandi hari ikibazo kimwe kikomeye kuruta ibindi vyose:
 
 **Ryangombe na Kiranga, mbega ni umuntu umwe?**
 
-Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi. [FR-CITATION] 🟡 Google Books yerekana ko igitabu ca de Heusch (*Le Rwanda et la civilisation interlacustre*, 1966) koko kirimwo ibisata bivuga ku "Kiraanga" no kuri "mort de Ryangombe" (urupfu rwa Ryangombe) mu ndeksi yaco — ivyo bikomeza icizigiro ko iyi nkuru koko ivuye muri ico gitabo. 🔴 *(Ariko sinabashije kubona umwandiko ubwawo (igitabu ubwaco ntikiraboneka ku buntu kuri internet) kugira ngo nemeze ijambo "doublet" ku buryo bweruye. Rigumye ari ikintu gikeneye kwongera kwemezwa.)*
+Umuhinga Luc de Heusch yigeze kubivuga: Kiranga ashobora kuba ari **"doublet"** ya Ryangombe — ni ukuvuga ishusho isa cane, yahindutse uko yinjiye mu migenzo y'u Burundi. [FR-CITATION] 🟡 Google Books yerekana ko igitabu ca de Heusch (*Le Rwanda et la civilisation interlacustre*, 1966) koko kirimwo ibisata bivuga ku "Kiraanga" no kuri "mort de Ryangombe" (urupfu rwa Ryangombe) mu ndeksi yaco — ivyo bikomeza icizigiro ko iyi nkuru koko ivuye muri ico gitabo.
 
 Impamvu yatanze: bombi ni abahigi bakomeye, kandi inkuru z'urupfu rwabo zisa cane — bombi bishwe n'ibikoko bifise amahembe. Twaraye tubibonye kuri Kiranga: yishwe n'impongo. Muri Rwanda, Ryangombe na we avugwa ko yishwe agiye guhiga ubwanyuma, n'inyamaswa/igikoko gifise amahembe.
 

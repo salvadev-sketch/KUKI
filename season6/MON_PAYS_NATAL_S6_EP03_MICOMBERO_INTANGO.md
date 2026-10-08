@@ -20,7 +20,7 @@ Mu 1962, igihe Uburundi bwaronse ubwigenge, Micombero yari amaze kuba umwe mu ba
 
 Mu **1965** (amwe mu masoko avuga Rusama), aba **Ministre de la Défense nationale**, afise imyaka 23.
 
-[FR-CITATION] 🟡 Wikipedia n'andi masoko menshi (peoplepill, kiddle.co) bemeza ko yashizweho ku mwanya w'umushikiranganji w'ingabo afise imyaka 23, ariko ntibahuriza ku mwaka nyawo (bimwe biterekeza 1964, ibindi 1965); igihe c'ivyabaye (imbere y'ibiza vya Gitugutu 1965) bishimikiza umwaka wa 1965. Twahinduye "Rusama 1963" kuko itariki nyayo idasobanutse.
+[FR-CITATION] 🟡 Wikipedia n'andi masoko menshi (peoplepill, kiddle.co) bemeza ko yashizweho ku mwanya w'umushikiranganji w'ingabo afise imyaka 23, ariko ntibahuriza ku mwaka nyawo (bimwe biterekeza 1964, ibindi 1965); igihe c'ivyabaye (imbere y'ibiza vya Gitugutu 1965) bishimikiza umwaka wa 1965.
 
 Yari atagifise gusa umwanya w'umusirikare — yari amaze kuja hafi cane y'ububasha bw'ingabo n'umutekano w'igihugu.
 

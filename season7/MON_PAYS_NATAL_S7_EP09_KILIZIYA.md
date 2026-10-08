@@ -24,7 +24,7 @@ Ntitwovuga ko ari ikibazo cabaye ku munsi umwe. Cari kimaze imyaka gikura, gushi
 
 Kiliziya yatanguye kubona impinduka inyuma y'uko Bagaza akurwa ku butegetsi: Buyoya, Umugatolika, yavuze ko azokuraho ingingo Bagaza yari yashize kuri Kiliziya.
 
-[FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état") na Wikipedia ("Anti-clerical campaign of the government of Burundi") bemeza ko umubano wa Leta na Kiliziya wongeye gusubira kuba mwiza gusa inyuma ya coup ya 1987. Twakuyeho itariki ya 13 Nyakanga 1987 y'ifungurwa rya Cathédrale ya Gitega yari mu nyandiko ya mbere, kuko nta soko na rimwe ryizewe ryayemeje.
+[FR-CITATION] 🟢 Wikipedia ("1987 Burundian coup d'état") na Wikipedia ("Anti-clerical campaign of the government of Burundi") bemeza ko umubano wa Leta na Kiliziya wongeye gusubira kuba mwiza gusa inyuma ya coup ya 1987.
 
 Iyo mpinduka nyene yerekana neza uburemere bw'ico kibazo mu myaka ya nyuma y'ingoma yiwe.
 

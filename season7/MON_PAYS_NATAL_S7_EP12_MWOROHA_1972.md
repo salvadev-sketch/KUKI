@@ -16,7 +16,7 @@ Hari umurwi tutari twaravuze cane: **Jeunesses Révolutionnaires Rwagasore — J
 
 Mworoha yarandikiye amabaruwa, harimwo rimwe ryo ku wa **15 Rusama 1972**.
 
-[FR-CITATION] 🟡 IWACU ("Hommage | Emile Mworoha, in memoriam", 2025) ivuga ko, nka Secrétaire Général wa JRR, ku wa 15 Rusama 1972 yandikiye abategetsi b'ubucamanza, ab'igisirikare n'ab'umutekano (sûreté), ababurira ku kwifashisha JRR mu bikorwa vy'urugomo no gusaba ko yakoreshwa mu kugarura amahoro. Ntitwabashije kuronka inyandiko y'urwo rwandiko ubwarwo. Inyandiko ya mbere yavuze ko yandikiye Perezida Micombero; amasoko dufise avuga abategetsi b'ubucamanza, igisirikare n'umutekano, atari Micombero wenyene.
+[FR-CITATION] 🟡 IWACU ("Hommage | Emile Mworoha, in memoriam", 2025) ivuga ko, nka Secrétaire Général wa JRR, ku wa 15 Rusama 1972 yandikiye abategetsi b'ubucamanza, ab'igisirikare n'ab'umutekano (sûreté), ababurira ku kwifashisha JRR mu bikorwa vy'urugomo no gusaba ko yakoreshwa mu kugarura amahoro.
 
 Iryo baruwa ryerekana ko ku bwiwe, uburyozwe bw'ivyariko biraba butari ubwa JRR nk'umuryango, ahubwo bwari bufitaniye isano n'ubutegetsi bw'igihugu n'igisirikare.
 

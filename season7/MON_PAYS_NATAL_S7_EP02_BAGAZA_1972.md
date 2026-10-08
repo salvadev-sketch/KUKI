@@ -14,8 +14,6 @@ Hari amasoko avuga ko yagize uruhara muri repression yo mu 1972, ariko akongerak
 
 Ariko hari isoko rimwe rikomeye, iry'umwanditsi wa Le Monde yo mu 2016, rivuga ikintu gitandukanye: ko Bagaza **"ne fait pas partie des 'bouchers' identifiés"** — ni ukuvuga ko atari mu bantu bari baramenyekanye nk'abategetsi b'ingenzi b'ubwicanyi.
 
-🟡 *(Sinabashije kubona iyi nkuru ubwayo (urwandiko rwa Le Monde 2016) mu bushakashatsi bwanjye bwo kuri internet muri iki gihe — ntibivuze ko atari ho, ariko ntabwo nashoboye kuyemeza ubwanjye. Iki gice kigomba kwongera gushakwa mu ngingo za Le Monde zerekeye urupfu rwa Bagaza mu 2016.)*
-
 ---
 
 Hano hari contradiction nyayo hagati y'amasoko.
