@@ -36,6 +36,8 @@ Hari **Jabwe**, twaramaze kwiga inkuru yiwe — atari intambara y'akarere, ahubw
 
 Hari n'andi mazina abiri: **Fumbije**, uwo imigenzo imwe ivuga ko Ntare yatsinze — nta karere kavugwa neza, nta gihe, nta nkuru y'intambara ubwayo, ijambo rimwe gusa. Kandi hari **Ruhinda**, intambara itamenyekana neza — kandi tudashobora kwemeza ko ari uwundi muntu, atari uwo mu Rugo rwo i Buha twize kera, uwitwa na we, mu bindi bisigo, Ruhaga.
 
+Uyu Fumbije si wa wundi tuzosanga muri Season 2, EP06, munsi ya Ntare Rugamba — izina risubiramwo, tubafata nk'abantu babiri basangiye izina.
+
 [FR-CITATION] 🟡 Chrétien ("Du hirsute au hamite," 1981) yagize ati: « Jabwe et Fumbije voisinent, alors qu'un siècle et demi les séparent au moins » — bivuga ko Fumbije ari izina nyakuri riboneka mu migenzo y'aba "roitelets," ariko Chrétien ubwiwe avuga ko iyo migenzo ihuza abantu batandukanijwe n'ibihe birebire, ku buryo tutashobora kwizera intambara zabo nk'inkuru imwe ifise igihe kimwe.
 
 Aha tugomba kwibuka: kutamenya ni na ryo igice c'amateka. Twashoboye kwerekana ukuntu Kiranga yapfuye kubera ko imigenzo yabitse inkuru irambuye. Ntitushoboye kwerekana ukuntu Ntare yatsinze Fumbije, kubera ko imigenzo ntiyabitse uwo murongo w'inkuru — izina gusa.

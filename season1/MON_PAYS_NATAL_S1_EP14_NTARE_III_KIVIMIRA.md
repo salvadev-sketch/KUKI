@@ -22,6 +22,8 @@ Inkuru izwi cane ivuga: Ntare III Kivimira atera u Bugesera; **Nsoro III Nyabare
 
 Nyabarega yagerageje kuronka ubufasha bw'umwami w'u Rwanda, **Yuhi III Mazimpaka**, ngo bamurwanye. Ariko Mazimpaka ntiyabimwemereye, kubera imimaro yari hagati y'ibihugu bibiri.
 
+Ntitwibagirwe: **Nsoro** ni izina risubiramwo. Nsoro Nyabarega w'ino nkuru ni uwo mu gihe ca Ntare III Kivimira. Muri Season 2, EP03, tuzosubira kubona Nsoro Nyabarega munsi ya Ntare Rugamba (1796–1801) — tubafata nk'abami babiri basangiye izina, atari umuntu umwe.
+
 [FR-CITATION] 🟡 Nk'uko bivugwa muri Vansina (2004, urup. 112, biciye ku ncamake ya Wikipedia "Kingdom of Bugesera"): inyuma y'uko Ntare atsinze Nsoro Nyabarega, uyu "fled north... took refuge with Rwandan mwami Yuhi III Mazimpaka. When Ntare threatened to invade Rwanda unless Nsoro was extradited, the latter was expelled from the Rwandan capital but allowed to go free" — arivyo bisobanura mu Kirundi ngo: "yahunze mu bumanuko... aronka ubuhungiro kwa Yuhi III Mazimpaka. Ntare amaze gutera intabaza y'uko azotera u Rwanda Nsoro atatanzwe, uyu araboneka gusohorwa mu gisagara ariko akarekurwa nka ntagenda."
 
 Kivimira ntiyahagaritse. Yarabandanije ibitero.
