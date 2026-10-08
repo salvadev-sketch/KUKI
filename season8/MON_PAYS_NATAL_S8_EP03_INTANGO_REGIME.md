@@ -18,7 +18,7 @@ Muri Myandagaro 1988, ivyo bibazo vyaciye biduka rwose.
 
 **[CITATION — 🟢]**
 
-Itariki (Myandagaro/Kanama 1988) ni yo izwi cane, ivugwa n'amasoko yose (Wikipedia "1988 ethnic violence in Burundi," Human Rights Watch, n'ibindi) ku ntango y'ubwicanyi bwa Ntega na Marangara.
+Itariki (Myandagaro 1988) ni yo izwi cane, ivugwa n'amasoko yose (Wikipedia "1988 ethnic violence in Burundi," Human Rights Watch, n'ibindi) ku ntango y'ubwicanyi bwa Ntega na Marangara.
 
 ---
 

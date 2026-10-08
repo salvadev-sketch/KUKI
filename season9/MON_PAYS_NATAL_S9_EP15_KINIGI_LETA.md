@@ -36,7 +36,7 @@ Ku wa **5 Ruhuhuma 1994**, Ntaryamira ararahira, Kinigi ava ku mwanya wiwe wa Um
 
 **[CITATION — 🟢/🟡]**
 
-Amnesty International (AFR16/008/1994), UN Repertoire (12th Supplement, Chapter VIII), na EveryCRSReport (RS20910) bemeza ko Leta yasavye Commission internationale d'enquête muri Ugushyingo 1993, hamwe n'itariki Ntaryamira ararahira (5 Ruhuhuma 1994).
+Amnesty International (AFR16/008/1994), UN Repertoire (12th Supplement, Chapter VIII), na EveryCRSReport (RS20910) bemeza ko Leta yasavye Commission internationale d'enquête muri Munyonyo 1993, hamwe n'itariki Ntaryamira ararahira (5 Ruhuhuma 1994).
 
 *(Icyitonderwa canje ca mbere ku bijanye n'itariki 3 vs 13 Nzero cariyongeye: Universalis (inshuro nyinshi) na Antwerp University (archive y'amajambo ya Ba Perezida) byemeza 13 Nzero 1994 — EP15 ni yo nyakuri.)*
 

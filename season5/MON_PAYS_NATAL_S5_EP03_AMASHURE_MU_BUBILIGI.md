@@ -22,9 +22,9 @@ Muri iyo nyandiko, Rwagasore yaravuze ko itegeko-shingiro ry'Uburundi ryagombye 
 
 ---
 
-Mu **Kigarama 1956** (Ukuboza), yasubiye mu Burundi.
+Mu **Kigarama 1956**, yasubiye mu Burundi.
 
-[FR-CITATION] 🟢 Wikipedia (ikurikiza Akyeampong & Gates 2012, p. 229) ivuga ko yasubiye i Urundi muri Ukuboza 1956. Twakuyeho inzira ya Léopoldville n'itariki ya Gitugutu, kuko nta soko ryabyemeje.
+[FR-CITATION] 🟢 Wikipedia (ikurikiza Akyeampong & Gates 2012, p. 229) ivuga ko yasubiye i Urundi muri Kigarama 1956. Twakuyeho inzira ya Léopoldville n'itariki ya Gitugutu, kuko nta soko ryabyemeje.
 
 Ntiyasubiye nk'umwigishwa yarangije amashure gusa.
 

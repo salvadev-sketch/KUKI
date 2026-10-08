@@ -26,7 +26,7 @@ Iyi ni imwe mu mice ibabaje kandi ikomeye mu mateka y'Uburundi — kandi ni ngom
 
 **[CITATION — 🟢]**
 
-Wikipedia ("1965 Burundian coup attempt," ishingiye kuri Lemarchand 1970, Weinstein 1976, Eggers 2006) hamwe na ExecutedToday.com (biciye kuri Lemarchand, *Burundi: Ethnic Conflict and Genocide*) byemeza itariki (18-19 Ukwakira 1965), uko Biha yakomerekejwe (ariko ntiyapfuye), uruhara rwa Captain Michel Micombero mu gutsinda iryo gerageza, n'urupfu rwa Bamina (15 Kigarama 1965) mu bwicanyi bwakurikiye.
+Wikipedia ("1965 Burundian coup attempt," ishingiye kuri Lemarchand 1970, Weinstein 1976, Eggers 2006) hamwe na ExecutedToday.com (biciye kuri Lemarchand, *Burundi: Ethnic Conflict and Genocide*) byemeza itariki (18-19 Gitugutu 1965), uko Biha yakomerekejwe (ariko ntiyapfuye), uruhara rwa Captain Michel Micombero mu gutsinda iryo gerageza, n'urupfu rwa Bamina (15 Kigarama 1965) mu bwicanyi bwakurikiye.
 
 ---
 

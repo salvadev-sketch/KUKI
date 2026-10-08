@@ -42,7 +42,7 @@ Hari amasoko avuga ko yari umuntu wari hafi y'ubutegetsi bwa Jean-Baptiste Bagaz
 
 **[CITATION — 🟢]**
 
-Wikipedia ("Pierre Buyoya"), *Dictionary of African Biography* (Akyeampong & Gates, 2012, biciye kuri Wikipedia), na NamuWiki (inyandiko irambuye ku nzira y'amashure n'ubushobozi) byemeza itariki y'ivuko (24 Munyonyo 1949), Rutovu, n'inzira yose y'amashure (École Royale Militaire i Brussels kuva 1967; École d'État-Major i Saumur, Ubufaransa, 1976-77; Bundeswehr Command and Staff College, Ubudagi bw'Iburengero, 1980-82). Micombero (26 Kanama/Myandagaro 1940) na Bagaza (29 Myandagaro 1946) na bo bavuzwe nk'abavukiye Rutovu, biciye ku nzandiko zabo bwite za Wikipedia.
+Wikipedia ("Pierre Buyoya"), *Dictionary of African Biography* (Akyeampong & Gates, 2012, biciye kuri Wikipedia), na NamuWiki (inyandiko irambuye ku nzira y'amashure n'ubushobozi) byemeza itariki y'ivuko (24 Munyonyo 1949), Rutovu, n'inzira yose y'amashure (École Royale Militaire i Brussels kuva 1967; École d'État-Major i Saumur, Ubufaransa, 1976-77; Bundeswehr Command and Staff College, Ubudagi bw'Iburengero, 1980-82). Micombero (26 Myandagaro 1940) na Bagaza (29 Myandagaro 1946) na bo bavuzwe nk'abavukiye Rutovu, biciye ku nzandiko zabo bwite za Wikipedia.
 
 ---
 

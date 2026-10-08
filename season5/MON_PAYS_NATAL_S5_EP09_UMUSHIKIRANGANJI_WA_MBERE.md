@@ -28,7 +28,7 @@ Ku wa **13 Gitugutu 1961**, ibintu vyahindutse burundu.
 
 **[CITATION — 🟢]**
 
-Lemarchand (1970) na Wikipedia bemeza itariki (13 Ukwakira 1961), bihuye n'ivyari vyaravuzwe kuri EP14 ya Season 4.
+Lemarchand (1970) na Wikipedia bemeza itariki (13 Gitugutu 1961), bihuye n'ivyari vyaravuzwe kuri EP14 ya Season 4.
 
 ---
 

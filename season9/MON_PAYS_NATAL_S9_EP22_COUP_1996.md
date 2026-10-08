@@ -2,7 +2,7 @@
 
 Ku wa **20 Mukakaro 1996**, abarwanyi barishe abantu barenga 300, ahanini abagore n'abana b'Abatutsi, mu kigo c'abavuye mu vyabo i **Bugendana.**
 
-[FR-CITATION] 🟢 Inama Nkenguzamateka y'Umuryango w'Abibumbye (UN Security Council, S/1996/591, 23 Nyakanga 1996) yagize iti: « more than 300 women, children and elderly men were [killed] » i Bugendana — bihuza n'imibare EP22 ivuga.
+[FR-CITATION] 🟢 Inama Nkenguzamateka y'Umuryango w'Abibumbye (UN Security Council, S/1996/591, 23 Mukakaro 1996) yagize iti: « more than 300 women, children and elderly men were [killed] » i Bugendana — bihuza n'imibare EP22 ivuga.
 
 ---
 

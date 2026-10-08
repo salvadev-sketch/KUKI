@@ -14,9 +14,9 @@ Yavuze ko akoze gutyo kubera ukudashobora kwihanganira ukutaba kwa se, hamwe n'i
 
 ---
 
-Mu nyuma, ku wa 3 Nzero (Septembre) 1966, aca yimikwa mu buryo bwa gitsina, afata izina rya **Ntare V.**
+Mu nyuma, ku wa 3 Nyakanga (Septembre) 1966, aca yimikwa mu buryo bwa gitsina, afata izina rya **Ntare V.**
 
-[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi") yemeza itariki zombi: 8 Mukakaro 1966 (gufata ubutegetsi) na 3 Nzero 1966 (kwimikwa ku mugaragaro). 🟡 Ijambo "Nzero" twarikoresheje ku kwezi kwa 9 (Septembre); iryo zina ntirikoreshwa mu buryo bumwe muri episode zose z'uyu mushinga.
+[FR-CITATION] 🟢 Wikipedia ("Ntare V of Burundi") yemeza itariki zombi: 8 Mukakaro 1966 (gufata ubutegetsi) na 3 Nyakanga 1966 (kwimikwa ku mugaragaro).
 
 ---
 

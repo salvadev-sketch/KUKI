@@ -28,7 +28,7 @@ Icakurikiye caragenze mu ntambwe eshatu zitomoye:
 
 **9 Nyakanga 1987** — Comité Militaire pour le Salut National (CMSN), inzego nshasha yashizweho, yahisemwo Buyoya kuba Umukuru w'Igihugu.
 
-**2 Ukwakira 1987** — Buyoya ararahira nka Perezida wa Repubulika ya Gatatu.
+**2 Gitugutu 1987** — Buyoya ararahira nka Perezida wa Repubulika ya Gatatu.
 
 ---
 
@@ -40,7 +40,7 @@ Ku wa 13 Nyakanga 1987, Cathédrale ya Gitega, yari yarafunzwe mu gihe ca Bagaza
 
 **[CITATION — 🟢/🟡]**
 
-Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nzeri 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Ukwakira 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya: CIDOB na archontology.org (urutonde rw'abakuru b'igihugu) byombi byemeza 9 Nzeri 1987 — iki gikosoye 11 Nzeri yari muri iyi episode mbere.
+Wikipedia ("1987 Burundian coup d'état") na APA News byemeza itariki (3 Nyakanga 1987), aho Bagaza yari (Québec, sommet ya Francophonie), n'itariki yo kurahira kwa Buyoya (2 Gitugutu 1987). Ku bijanye n'itariki CMSN yahisemwo Buyoya: CIDOB na archontology.org (urutonde rw'abakuru b'igihugu) byombi byemeza 9 Nyakanga 1987 — iki gikosoye 11 Nyakanga yari muri iyi episode mbere.
 
 ---
 

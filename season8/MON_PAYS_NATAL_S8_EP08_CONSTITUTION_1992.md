@@ -28,7 +28,7 @@ Ikintu gikomeye cane: ubutegetsi bwa Buyoya bwemeye gutegura amatora y'amashirah
 
 **[CITATION — 🟢]**
 
-Wikipedia ("1991 Burundian Charter of National Unity referendum," "1992 Burundian constitutional referendum") na IFES (raporo yo muri 1992) byemeza inzira yose: Charte de l'Unité Nationale yemejwe na référendum (Wikipedia ivuga 9 Gashuantano 1991; isoko rimwe ry'ubuhinga mu Bufaransa rivuga 5 Gashuantano — gato gutandukana gukwiye gucungurwa), hanyuma Constitution yemejwe na référendum ku wa 9 Ntwarante 1992, isohoka (promulguée) ku wa 13 Ntwarante 1992.
+Wikipedia ("1991 Burundian Charter of National Unity referendum," "1992 Burundian constitutional referendum") na IFES (raporo yo muri 1992) byemeza inzira yose: Charte de l'Unité Nationale yemejwe na référendum (Wikipedia ivuga 9 Ruhuhuma 1991; isoko rimwe ry'ubuhinga mu Bufaransa rivuga 5 Ruhuhuma — gato gutandukana gukwiye gucungurwa), hanyuma Constitution yemejwe na référendum ku wa 9 Ntwarante 1992, isohoka (promulguée) ku wa 13 Ntwarante 1992.
 
 ---
 

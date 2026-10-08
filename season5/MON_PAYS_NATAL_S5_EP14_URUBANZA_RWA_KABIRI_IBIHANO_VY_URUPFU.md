@@ -34,7 +34,7 @@ Ico kibazo, ntacyo dushobora kukirengagiza.
 
 **[CITATION — 🟢]**
 
-Wikipedia ("Jean-Baptiste Ntidendereza") yemeza ko ku wa 27 Ugushyingo 1962, urukiko rwahamije abo bantu batanu (Ntidendereza, Biroli, Nahimana, Iatrou, Ntakiyica) kandi ko baciriwe urwo gupfa — bihuye 100% n'ivyanditswe muri EP14.
+Wikipedia ("Jean-Baptiste Ntidendereza") yemeza ko ku wa 27 Munyonyo 1962, urukiko rwahamije abo bantu batanu (Ntidendereza, Biroli, Nahimana, Iatrou, Ntakiyica) kandi ko baciriwe urwo gupfa — bihuye 100% n'ivyanditswe muri EP14.
 
 ---
 

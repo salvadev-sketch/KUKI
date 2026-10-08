@@ -44,6 +44,6 @@ Ariko urugendo rw'Uburundi ntirwarangiye.
 
 **[CITATION — 🟢]**
 
-Wikipedia ("Mwambutsa IV of Burundi"), SwissInfo (inyandiko nyinshi, 2016-2017), Face2Face Africa, na Iwacu-Burundi byemeza inkuru yose y'urubanza rwo hagati y'umukobwa wa Mwambutsa (Princesse Paula Rosa Iribagiza, yashaka kwimura umubiri mu Burundi) n'umwishwa wiwe (Esther Kamatari — twize muri EP04 — yarwanya iyo mpinduka): ibisigarira vyaracukuwe mu 2012, urubanza rwamaze imyaka ine, hanyuma urukiko rw'ubushingantahe rw'Ubusuwisi rwaciye mu 2016 ko bigomba kuguma mu Busuwisi, bisubizwa mu mva i Meyrin muri Kamena 2017.
+Wikipedia ("Mwambutsa IV of Burundi"), SwissInfo (inyandiko nyinshi, 2016-2017), Face2Face Africa, na Iwacu-Burundi byemeza inkuru yose y'urubanza rwo hagati y'umukobwa wa Mwambutsa (Princesse Paula Rosa Iribagiza, yashaka kwimura umubiri mu Burundi) n'umwishwa wiwe (Esther Kamatari — twize muri EP04 — yarwanya iyo mpinduka): ibisigarira vyaracukuwe mu 2012, urubanza rwamaze imyaka ine, hanyuma urukiko rw'ubushingantahe rw'Ubusuwisi rwaciye mu 2016 ko bigomba kuguma mu Busuwisi, bisubizwa mu mva i Meyrin muri Ruheshi 2017.
 
 *Icyitonderwa ku miterere ya Season: iyi episode ivuga ngo "Season 5" ikurikira ari iya Ntare V — ariko Season 5 (nk'uko yamaze kwandikwa) ni iyimbitse ijanye na Louis Rwagasore, naho Season 6 ari yo y'ibiganiro bya Ntare V na Micombero. Ikigo cakoze iyi episode kigomba gucungura iyi miterere.*
