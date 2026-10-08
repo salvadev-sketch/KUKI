@@ -2,7 +2,7 @@
 
 Ku wa **1 Munyonyo 1976**, igisirikare carafashe ubutegetsi i Bujumbura, Micombero arakurwa — twarabibonye muri Season 6, EP18. Ubu turabona ico gikorwa duhereye kuri Bagaza, uwabaye Perezida.
 
-Hari amakuru avuga ko umukuru w'ingabo, **Thomas Ndabemeye**, yari amaze igihe ategura gukura Micombero ku butegetsi. Ntitwovuga ngo "Ndabemeye ni we wari yateguye ico gikorwa, Bagaza aca akiyiba" — nta gihamya gihagije kuri ivyo. Ico dushobora kuvuga: Bagaza ni we yafashe intambwe ya nyuma.
+Ibijanye n'ibivugwa kuri **Thomas Ndabemeye** twabirondoye muri Season 6, EP18. Ico dushobora kuvuga hano: Bagaza ni we yafashe intambwe ya nyuma.
 
 [FR-CITATION] 🟢 Amasoko atandukanye (IWACU, Wikipedia y'Igifaransa n'Icongereza, Perspective Monde) yose ahuriza ku nkuru imwe: ko impfune z'ibirego ku Ndabemeye zategura coup ari zo zatumye Bagaza afata intambwe ya mbere, ariko ata na kimwe muri ayo masoko gitanga ibimenyetso bihagije byerekana ko Ndabemeye ubwiwe yari afise umugambi mutomoye w'ico gikorwa.
 

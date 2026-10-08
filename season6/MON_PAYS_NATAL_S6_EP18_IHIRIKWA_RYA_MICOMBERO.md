@@ -30,13 +30,11 @@ Micombero yarakuwe ku butegetsi — ico gihe yari ari mu nama ya Franco-African 
 
 ---
 
-Ku wa 2 Munyonyo, Bagaza yaravuze imvo z'ico gikorwa: ubushobozi bwose bwari bwarakoranirijwe ku muntu umwe, inzego z'igihugu zari zaraguye intege, UPRONA yari yaratakaje uruhara rwayo, hari "ubwami bushasha" bumeze nk'ubwahoze buriho, kandi Itegeko Nshinga ryo mu 1974 ryari ryarenzwe.
-
-Ariko dutegerezwa kwitonda: izo ni mvo ubutegetsi bushasha bwatanze, atari ivyemejwe nk'ukuri kudashidikanywako.
+Imvo Bagaza yatanze ku wa 2 Munyonyo, tuzoziraba muri Season 7, EP04, ku ruhande rwiwe.
 
 ---
 
-Ku wa 9 Munyonyo 1976, Conseil Suprême Révolutionnaire yashize Bagaza ku mwanya wa Perezida.
+Ku wa 9 Munyonyo 1976, Bagaza yashizwe ku mwanya wa Perezida — ibyo tuzobibona muri Season 7, EP04.
 
 Micombero yarafashwe, ashirwa mu buryo bwo kugenzurwa — ariko ntiyishwe.
 
