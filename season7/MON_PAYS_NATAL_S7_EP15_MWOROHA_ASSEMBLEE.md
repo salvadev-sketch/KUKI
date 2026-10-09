@@ -2,11 +2,11 @@
 
 Ku wa 22 Gitugutu 1982, habaye amatora y'abashingamateka.
 
-Assemblée Nationale nshasha yaragizwe n'abashingamateka 65.
+Assemblée Nationale nshasha yaragizwe n'abashingamateka 65: 52 batowe, na 13 bashizweho na Perezida Bagaza.
 
 **Émile Mworoha aba Perezida wa Assemblée Nationale.**
 
-[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 zatorerwa. Académie des sciences d'outre-mer yemeza ko Mworoha kuva 1982 gushika 1987 yari perezida w'Inama Nshingamateka, gushika guhirikwa kwa guverinoma ya Jenerali Bagaza.
+[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 zatorerwa (izindi 13 zashizweho na Perezida). Académie des sciences d'outre-mer yemeza ko Mworoha kuva 1982 gushika 1987 yari perezida w'Inama Nshingamateka, gushika guhirikwa kwa guverinoma ya Jenerali Bagaza.
 
 ---
 

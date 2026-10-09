@@ -6,7 +6,7 @@ Amasoko amushira hamwe na Simbananiye nk'abantu bari bafise uruhara runini mu bi
 
 ---
 
-**François Gisamare** na we ari mu mazina atatu y'ingenzi ahuza na "Groupe de Bururi."
+**François Gisamare** na we yari mu bakomeye muri "Groupe de Bururi": René Lemarchand avuga ko muri guverinoma yashinzwe mu 1968, Simbananiye, Shibura na Gisamare ari bo bari inzego z'imbere za Micombero.
 
 Abo bantu batatu bari bafise inkomoko ya Tutsi-Hima, kandi bari mu bantu bakomeye bari bagize uwo murwi.
 

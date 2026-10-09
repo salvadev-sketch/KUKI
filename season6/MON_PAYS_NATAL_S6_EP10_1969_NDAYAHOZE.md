@@ -2,7 +2,7 @@
 
 Hari umuntu adakwiye gusigara inyuma: **Martin Ndayahoze**.
 
-Yari umutegetsi w'Umuhutu, umwe mu bakomeye muri système ya Micombero — Ministre de l'Information kuva 1966 gushika 1969, hanyuma Ministre de l'Économie gushika 1971.
+Yari umusirikare w'Umuhutu (sous-lieutenant, nyuma capitaine-commandant) kandi umutegetsi, umwe mu bakomeye muri système ya Micombero — Ministre de l'Information kuva 1966 gushika 1969, akaba na Secrétaire général wa UPRONA, hanyuma Ministre de l'Économie gushika 1971. Ni we Muhutu wenyine w'umusirikare wari mu butegetsi bwa Micombero.
 
 ---
 

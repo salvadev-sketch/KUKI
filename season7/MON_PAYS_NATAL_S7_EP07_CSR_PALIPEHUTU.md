@@ -26,7 +26,7 @@ Ariko Uburundi bwagumye ari **one-party state** iyobowe na UPRONA.
 
 Mu **Gitugutu 1982**, habaye amatora ya mbere y'abashingamateka mu gihe c'ico Tegeko Nshinga rishasha.
 
-[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 z'Inama Nshingamateka.
+[FR-CITATION] 🟢 UCA ivuga ko amatora y'abashingamateka yabaye ku wa 22 Gitugutu 1982, UPRONA itsindira intebe zose 52 zatorerwa mu Nama Nshingamateka ya 65; izindi 13 zashizweho na Perezida Bagaza.
 
 Ivyo bidufasha kwibaza: Bagaza yari ariko aragendera kuri démocratie, canke kuri parti imwe yifashisha imigenge ya démocratie?
 

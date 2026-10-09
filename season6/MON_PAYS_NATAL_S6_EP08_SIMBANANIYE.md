@@ -12,7 +12,7 @@ Mu 1967, arahabwa n'ubushobozi ku **Sûreté Nationale** — urwego rw'umutekano
 
 **Artémon Simbananiye** yari umwe mu bantu abashakashatsi bita **"Groupe de Bururi"** — hamwe na Albert Shibura na Sylvère Sota, bose bakomoka mu karere kamwe, bakaba bafise ubushobozi bukomeye mu gisirikare, muri Leta, no muri UPRONA.
 
-[FR-CITATION] 🟢 Yaga-Burundi ("Micombero face à l'exercice du pouvoir") ivuga ko igitekerezo co gushiraho CNR cavuye ku bagabo batatu: Simbananiye, Shibura (yize Saint-Cyr, Ubufaransa), na Sota. Wikipedia ("Ikiza") ivuga ko "Groupe de Bururi" ari ijambo ryakoreshejwe n'abashakashatsi ku bakuru b'igihugu bakomoka i Bururi. 🟡 EP08 na EP09 zivuga François Gisamare nk'uwo mu bo batatu b'ibanze aho kuba Sota; amasoko atatandukanya ku bagize uwo murwi w'ibanze.
+[FR-CITATION] 🟢 Yaga-Burundi ("Micombero face à l'exercice du pouvoir") ivuga ko igitekerezo co gushiraho CNR cavuye ku bagabo batatu: Simbananiye, Shibura (yize Saint-Cyr, Ubufaransa), na Sota. Wikipedia ("Ikiza") ivuga ko "Groupe de Bururi" ari ijambo ryakoreshejwe n'abashakashatsi ku bakuru b'igihugu bakomoka i Bururi. 🟡 Ni amatsinda abiri atandukanye: Sota yari mu batatu bavuzwe n'igitekerezo ca CNR mu 1966 (Yaga-Burundi), naho François Gisamare yari mu bagize inzego z'imbere za Micombero muri guverinoma ya 1968, hamwe na Simbananiye na Shibura (Lemarchand, Sciences Po). EP09 ivuga ayo ya kabiri.
 
 ---
 

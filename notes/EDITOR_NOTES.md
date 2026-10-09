@@ -208,3 +208,8 @@ Decision: S5 is the full telling (Rwagasore, Ngendandumwe, 1961–1965). S4 EP11
 
 ## MON_PAYS_NATAL_S5_EP13_UBWIGENGE_BURAZA_URUBANZA_RURASUBIRWAMWO.md
 - **Editor/revision note:** *Iki gikemura ikibazo twari twaravuze kuri EP12: "27 Munyonyo" ntiwari uvuguruza "2 Ndamukiza" — ni ibintu bibiri bikurikirana: Gitugutu 27 = Supreme Court yategeka gusubiramwo; Munyonyo 27 = urukiko rwo hasi rwaciye urundi rubanza (EP14).*
+
+# More contradictions settled (with sources)
+- Martin Ndayahoze (S6 EP07/EP10/EP11/EP14/EP15): he was all of these at once — a Hutu army officer (sous-lieutenant, later capitaine-commandant), Minister of Information (July 1966–Dec 1969), UPRONA secretary general, then Minister of Economy until March 1971, and killed on 30 April 1972. S6 EP10 now says so. Source: Lemarchand, Sciences Po "Ndayahoze, Martin"; Wikipedia.
+- 1982 National Assembly (S7 EP07, EP15): 52 elected UPRONA seats plus 13 appointed by Bagaza = 65. Source: Wikipedia "1982 Burundian parliamentary election" (IPU).
+- "Groupe de Bururi" (S6 EP08/EP09): two different groups. Sota was one of the three behind the CNR idea in 1966 (Yaga-Burundi); Gisamare was in Micombero's inner circle in the 1968 government with Simbananiye and Shibura (Lemarchand, Sciences Po "Micombero, Michel").
